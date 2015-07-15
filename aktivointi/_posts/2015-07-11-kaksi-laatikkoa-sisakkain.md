@@ -3,7 +3,7 @@ title: "Kaksi laatikkoa sisäkkäin tai kuppi laatikon sisällä"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/jE4lOeGOO8P4VfNnVNFsULkq4kYrrVMJJ87mJsjXyds=w245-h163-no
+  teaser: https://lh3.googleusercontent.com/jE4lOeGOO8P4VfNnVNFsULkq4kYrrVMJJ87mJsjXyds=w245
   thumb:
 ---
 

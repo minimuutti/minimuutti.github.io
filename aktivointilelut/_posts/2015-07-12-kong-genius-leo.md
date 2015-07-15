@@ -3,7 +3,7 @@ title: "Kong Genius Leo"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/r--8dOC6RNmRkg88P0QhD3Wa3h_uXeNV4JhelwOqXWQ=w245-h163-no
+  teaser: https://lh3.googleusercontent.com/r--8dOC6RNmRkg88P0QhD3Wa3h_uXeNV4JhelwOqXWQ=w245
   thumb:
 ---
 

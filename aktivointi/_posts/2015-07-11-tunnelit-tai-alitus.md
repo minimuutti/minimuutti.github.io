@@ -3,7 +3,7 @@ title: "Tunnelit tai alitus"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/8B9vXzYb9Okt-fZm62ts_cQStSbpS3wqoleUio4bXlw=w245-h178-no
+  teaser: https://lh3.googleusercontent.com/8B9vXzYb9Okt-fZm62ts_cQStSbpS3wqoleUio4bXlw=w245
   thumb:
 ---
 

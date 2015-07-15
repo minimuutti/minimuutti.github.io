@@ -3,7 +3,7 @@ title: "Boomer herkkupallo"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/nodspyE_uabizf9Ux63T7tfk_SFLRDJpBuL9_ICyraI=w244-h184-no
+  teaser: https://lh3.googleusercontent.com/nodspyE_uabizf9Ux63T7tfk_SFLRDJpBuL9_ICyraI=w245
   thumb:
 ---
 

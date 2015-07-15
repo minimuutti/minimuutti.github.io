@@ -3,7 +3,7 @@ title: "Namien piilotus puuhun"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/CymxCLi0SZSwbz5fIMRnZ_kl84ogBdYH957wxdsqZIA=w245-h173-no
+  teaser: https://lh3.googleusercontent.com/CymxCLi0SZSwbz5fIMRnZ_kl84ogBdYH957wxdsqZIA=w245
   thumb:
 ---
 

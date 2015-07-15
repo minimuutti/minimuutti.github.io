@@ -3,7 +3,7 @@ title: "Namien piilotus ruohikkoon tai lumihankeen"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/G2O0H22zVGDqRpIFB-b1FDfaZ52LIMK2JRfbnCBsX2A=w245-h175-no
+  teaser: https://lh3.googleusercontent.com/G2O0H22zVGDqRpIFB-b1FDfaZ52LIMK2JRfbnCBsX2A=w245
   thumb:
 ---
 

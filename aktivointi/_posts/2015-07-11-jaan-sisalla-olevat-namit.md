@@ -3,7 +3,7 @@ title: "Jään sisällä olevat namit"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/VFj9FVwYY4YFDOpUKaW-6mh5UpvyT1RuogiQmG0E6Dk=w245-h156-no
+  teaser: https://lh3.googleusercontent.com/VFj9FVwYY4YFDOpUKaW-6mh5UpvyT1RuogiQmG0E6Dk=w245
   thumb:
 ---
 

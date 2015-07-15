@@ -3,7 +3,7 @@ title: "Tehtävälaatikko vaikeutettuna"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/U2kgpNrZebRU3H1MYW7QKM4I1p5bVs1C18rDnDYj8oM=w245-h163-no
+  teaser: https://lh3.googleusercontent.com/U2kgpNrZebRU3H1MYW7QKM4I1p5bVs1C18rDnDYj8oM=w245
   thumb:
 ---
 

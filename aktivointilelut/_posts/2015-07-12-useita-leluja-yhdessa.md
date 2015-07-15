@@ -3,7 +3,7 @@ title: "Useita leluja yhdessä"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/IfQl4BOrKaLHAVG4Wu9UG_YeNEhibRf5DUNAEpK2m8Q=w245-h157-no
+  teaser: https://lh3.googleusercontent.com/IfQl4BOrKaLHAVG4Wu9UG_YeNEhibRf5DUNAEpK2m8Q=w245
   thumb:
 ---
 

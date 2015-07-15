@@ -3,7 +3,7 @@ title: "Kong Satellite"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/wjsMLK5ioS8i9Z8Zh7eEKrZcn-HVUjfr4B6S3-GBDlk=w245-h169-no
+  teaser: https://lh3.googleusercontent.com/wjsMLK5ioS8i9Z8Zh7eEKrZcn-HVUjfr4B6S3-GBDlk=w245
   thumb:
 ---
 

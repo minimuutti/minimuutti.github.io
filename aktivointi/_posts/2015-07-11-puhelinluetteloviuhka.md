@@ -3,7 +3,7 @@ title: "Puhelinluetteloviuhka"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/1-ANJ4MpGTq8IWhBw7nfde-4EmONANq68gVFqMz07aA=w245-h181-no
+  teaser: https://lh3.googleusercontent.com/1-ANJ4MpGTq8IWhBw7nfde-4EmONANq68gVFqMz07aA=w245
   thumb:
 ---
 

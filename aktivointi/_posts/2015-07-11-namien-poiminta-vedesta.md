@@ -3,7 +3,7 @@ title: "Namien poiminta vedestä"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/2qlWlly7usH2DHSe16DtUd8GX-UypkVO7AIVLmG8OgM=w245-h163-no
+  teaser: https://lh3.googleusercontent.com/2qlWlly7usH2DHSe16DtUd8GX-UypkVO7AIVLmG8OgM=w245
   thumb:
 ---
 

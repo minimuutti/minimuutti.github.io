@@ -3,7 +3,7 @@ title: "Odottaminen"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/VXj1DczshuW94cxJ3bKSCRXnVLHeew7OsvE8dvroNpc=w245-h176-no
+  teaser: https://lh3.googleusercontent.com/VXj1DczshuW94cxJ3bKSCRXnVLHeew7OsvE8dvroNpc=w245
   thumb:
 ---
 
@@ -15,6 +15,6 @@ Myöhemmin on tarkoitus saada Miki odottamaan lupaa ottaa sen nenän päälle as
 
 ---
 
-![](https://lh3.googleusercontent.com/1QCvHQdyMKBks0uROzBJbnKo5iY5kTAIS_FXmeevTYo=w1489-h989-no)
+![](https://lh3.googleusercontent.com/1QCvHQdyMKBks0uROzBJbnKo5iY5kTAIS_FXmeevTYo=w800)
 
 ![](https://lh3.googleusercontent.com/krzkcFlQsrfH7N-o80COcERrbhVCt4jO82gCbT24jf4=w800)

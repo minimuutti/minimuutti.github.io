@@ -3,7 +3,7 @@ title: "Limupullo"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/f5zn2JOSXUsRQnk0q1Jp73rx1dsen6DT6Z_57J_qW1o=w245-h172-no
+  teaser: https://lh3.googleusercontent.com/f5zn2JOSXUsRQnk0q1Jp73rx1dsen6DT6Z_57J_qW1o=w245
   thumb:
 ---
 

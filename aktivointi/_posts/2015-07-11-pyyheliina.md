@@ -3,7 +3,7 @@ title: "Pyyheliina"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/jvqUEDmEFi6KkU1ZAAiAJXEvRaOYZSyXRvz6BnDguS8=w122-h184-no
+  teaser: https://lh3.googleusercontent.com/jvqUEDmEFi6KkU1ZAAiAJXEvRaOYZSyXRvz6BnDguS8=w245
   thumb:
 ---
 

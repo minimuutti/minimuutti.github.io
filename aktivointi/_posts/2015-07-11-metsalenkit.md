@@ -3,7 +3,7 @@ title: "Metsälenkit"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/88Ouqw-77GRokbZascFHU-K6r9ezvj_DtpNzq1QyTCU=w245-h163-no
+  teaser: https://lh3.googleusercontent.com/88Ouqw-77GRokbZascFHU-K6r9ezvj_DtpNzq1QyTCU=w245
   thumb:
 ---
 

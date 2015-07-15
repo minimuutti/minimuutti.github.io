@@ -3,7 +3,7 @@ title: "Kong Quest Wishbone"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/fOXrAgSBB3U7XxT-iriO9379kSRz8v7lXZPRbkFoteU=w245-h172-no
+  teaser: https://lh3.googleusercontent.com/fOXrAgSBB3U7XxT-iriO9379kSRz8v7lXZPRbkFoteU=w245
   thumb:
 ---
 

@@ -3,7 +3,7 @@ title: "Kong Quest Star Pod"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/IctO5A-Dr6SGX-7Nuxae-j0sot83GrjF7Ego2-7C1g0=w245-h167-no
+  teaser: https://lh3.googleusercontent.com/IctO5A-Dr6SGX-7Nuxae-j0sot83GrjF7Ego2-7C1g0=w245
   thumb:
 ---
 

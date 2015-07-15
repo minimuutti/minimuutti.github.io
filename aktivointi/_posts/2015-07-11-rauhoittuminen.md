@@ -3,7 +3,7 @@ title: "Rauhoittuminen"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/5AMHm_McRQybDMFsH5uBoUt6-yfuymxLNrNbBj22IVs=w245-h156-no
+  teaser: https://lh3.googleusercontent.com/5AMHm_McRQybDMFsH5uBoUt6-yfuymxLNrNbBj22IVs=w245
   thumb:
 ---
 

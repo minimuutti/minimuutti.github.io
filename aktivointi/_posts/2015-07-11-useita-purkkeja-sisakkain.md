@@ -3,7 +3,7 @@ title: "Useita purkkeja sisäkkäin"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/tL2SBY6Cuubc0Sz6uvVj6tAqaQp0A8hzrLD4zfX5OeI=w245-h163-no
+  teaser: https://lh3.googleusercontent.com/tL2SBY6Cuubc0Sz6uvVj6tAqaQp0A8hzrLD4zfX5OeI=w245
   thumb:
 ---
 

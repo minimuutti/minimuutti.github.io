@@ -3,7 +3,7 @@ title: "Paperituubi"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/QDHlUvesPD54kso1vB9YYqKBYJq-FtJjc0NBA3ZGttE=w245-h171-no
+  teaser: https://lh3.googleusercontent.com/QDHlUvesPD54kso1vB9YYqKBYJq-FtJjc0NBA3ZGttE=w245
   thumb:
 ---
 

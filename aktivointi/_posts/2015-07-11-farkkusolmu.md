@@ -3,7 +3,7 @@ title: "Farkkusolmu"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/Wy_uOESV42ftlVSlkrq5vzomSvCLT41BhqLuyAkVji4=w245-h177-no
+  teaser: https://lh3.googleusercontent.com/Wy_uOESV42ftlVSlkrq5vzomSvCLT41BhqLuyAkVji4=w245
   thumb:
 ---
 

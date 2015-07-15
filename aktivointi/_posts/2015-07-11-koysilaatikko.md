@@ -3,7 +3,7 @@ title: "Köysilaatikko"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/5Eeq50Q1NtvCKtksCrCKhjLKVyMdprCBQrbnaIMo4Zg=w245-h163-no
+  teaser: https://lh3.googleusercontent.com/5Eeq50Q1NtvCKtksCrCKhjLKVyMdprCBQrbnaIMo4Zg=w245
   thumb:
 ---
 

@@ -3,7 +3,7 @@ title: "Namien etsintä kippojen alta"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/5NP38_EKMruEhRSvlEneSRGrz72ETMwBwoiSZFA7AoQ=w245-h163-no
+  teaser: https://lh3.googleusercontent.com/5NP38_EKMruEhRSvlEneSRGrz72ETMwBwoiSZFA7AoQ=w245
   thumb:
 ---
 

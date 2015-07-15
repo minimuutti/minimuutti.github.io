@@ -3,7 +3,7 @@ title: "Pahvilaatikkolasagne"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/LZ4K9FvBualiB0GZhtRtR0hDarCkiy42S8r07MN_PX4=w245-h173-no
+  teaser: https://lh3.googleusercontent.com/LZ4K9FvBualiB0GZhtRtR0hDarCkiy42S8r07MN_PX4=w245
   thumb:
 ---
 

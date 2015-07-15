@@ -3,7 +3,7 @@ title: "Trixie Snack Spinner"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/KGnwILDkh9ZqhHCUk9gVLaHGl6R5jI1DrW-avchAkkQ=w245-h175-no
+  teaser: https://lh3.googleusercontent.com/KGnwILDkh9ZqhHCUk9gVLaHGl6R5jI1DrW-avchAkkQ=w245
   thumb:
 ---
 

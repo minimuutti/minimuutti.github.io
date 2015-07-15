@@ -3,7 +3,7 @@ title: "Etsintä useista laatikoista"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/qs72gdivJskMhKVRrlvir4wsrT7dwRSRoXKcLNx4vyA=w245-h177-no
+  teaser: https://lh3.googleusercontent.com/qs72gdivJskMhKVRrlvir4wsrT7dwRSRoXKcLNx4vyA=w245
   thumb:
 ---
 

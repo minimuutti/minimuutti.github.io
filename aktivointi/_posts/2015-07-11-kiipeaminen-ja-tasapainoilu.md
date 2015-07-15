@@ -3,7 +3,7 @@ title: "Kiipeäminen ja tasapainoilu"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/pMINujXvW11_sAJiaYsyd-6QsgEXe6H_S8Q9VbOeYCo=w134-h184-no
+  teaser: https://lh3.googleusercontent.com/pMINujXvW11_sAJiaYsyd-6QsgEXe6H_S8Q9VbOeYCo=w245
   thumb:
 ---
 

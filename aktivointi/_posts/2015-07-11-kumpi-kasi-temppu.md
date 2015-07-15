@@ -3,7 +3,7 @@ title: "Kumpi käsi -temppu"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/J0qdSfIkuh-Tqe9jPai6P6LAOPDFGvT4ibmxqSWjJow=w245-h173-no
+  teaser: https://lh3.googleusercontent.com/J0qdSfIkuh-Tqe9jPai6P6LAOPDFGvT4ibmxqSWjJow=w245
   thumb:
 ---
 

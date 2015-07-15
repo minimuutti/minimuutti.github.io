@@ -3,7 +3,7 @@ title: "Busy Buddy Twist'n Treat"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/TbT6y3NfI-kNb7pkRBesOtJDzCuBeK5tHihyaFLJoPo=w245-h171-no
+  teaser: https://lh3.googleusercontent.com/TbT6y3NfI-kNb7pkRBesOtJDzCuBeK5tHihyaFLJoPo=w245
   thumb:
 ---
 

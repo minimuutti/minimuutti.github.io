@@ -3,7 +3,7 @@ title: "Kong Classic Extreme"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/O3vOyNbURU_tl5eE_jF723I1eGBo0h1Fff3_Pqquwhs=w245-h166-no
+  teaser: https://lh3.googleusercontent.com/O3vOyNbURU_tl5eE_jF723I1eGBo0h1Fff3_Pqquwhs=w245
   thumb:
 ---
 Klassiseen lumiukko Kongiin (L kokoinen) laitan yleensä keskeltä puoliksi taitetun (V –kirjaimen mallisen) kuivatun kanafileesiivun. Kun filee ”aukeaa” kongin sisällä, niin se on yllättävän vaikea saada ulos, kun fileen kummatkin päädyt tunkee Kongin reunan alle piiloon. Tälläisen kongin tyhjentäminen kestää Mikiltä vaihdellen 2 minuutista 20 minuuttiin. Kerran Kongiin tungetun kanafileen ulossaaminen kesti Mikiltä 4 h 45 min (hih, kerrankin onnistuin runttaamaan sen sinne oikein kunnolla :D ) eikä Mikin into loppunut missään vaiheessa. Mut hei, siellähän oli kanaa!

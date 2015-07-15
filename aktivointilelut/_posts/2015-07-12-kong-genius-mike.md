@@ -3,7 +3,7 @@ title: "Kong Genius Mike"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/-4vfLKxKrP7bY36Pf9MoyrKtQjCOgByHxnhKYlQYTfM=w245-h175-no
+  teaser: https://lh3.googleusercontent.com/-4vfLKxKrP7bY36Pf9MoyrKtQjCOgByHxnhKYlQYTfM=w245
   thumb:
 ---
 

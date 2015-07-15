@@ -3,7 +3,7 @@ title: "Hajujälki"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/KA65tYTnLE0E7VmkFaX8TxNggiPDyo0gI0m6Z1kLXRY=w263-h202-no
+  teaser: https://lh3.googleusercontent.com/KA65tYTnLE0E7VmkFaX8TxNggiPDyo0gI0m6Z1kLXRY=w245
   thumb:
 ---
 

@@ -3,7 +3,7 @@ title: "North Mate Green"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/4IL6rJOYjZZvA-3SLYlq9gBQsIyen5Dz75Syk1k0ubs=w245-h164-no
+  teaser: https://lh3.googleusercontent.com/4IL6rJOYjZZvA-3SLYlq9gBQsIyen5Dz75Syk1k0ubs=w245
   thumb:
 ---
 

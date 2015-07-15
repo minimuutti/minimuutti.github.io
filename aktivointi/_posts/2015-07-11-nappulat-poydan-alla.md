@@ -3,7 +3,7 @@ title: "Nappulat pöydän alla"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/UpKav9Jq57YJhhYknsbDhu1K3r1xwFraLyoGqeQHM9U=w245-h163-no
+  teaser: https://lh3.googleusercontent.com/UpKav9Jq57YJhhYknsbDhu1K3r1xwFraLyoGqeQHM9U=w245
   thumb:
 ---
 

@@ -3,7 +3,7 @@ title: "Lelulaatikko"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/W1ApVm9yhO8CytcAieosXcVcvXXADzgn-w_aP5FN0x4=w245-h163-no
+  teaser: https://lh3.googleusercontent.com/W1ApVm9yhO8CytcAieosXcVcvXXADzgn-w_aP5FN0x4=w245
   thumb:
 ---
 

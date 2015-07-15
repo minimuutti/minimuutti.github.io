@@ -3,7 +3,7 @@ title: "Kong Traxx Extreme"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/eCc5PCKNcKV_VSxB01xddyagsn5nu0Ui1TFUTSsUT6Y=w245-h184-no
+  teaser: https://lh3.googleusercontent.com/eCc5PCKNcKV_VSxB01xddyagsn5nu0Ui1TFUTSsUT6Y=w245
   thumb:
 ---
 

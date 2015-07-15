@@ -3,7 +3,7 @@ title: "Namien piilotus asuntoon"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/bW35JIyzVUXQ69FS86UDV37zOV_JT2_MhH_Mrvrum2E=w245-h167-no
+  teaser: https://lh3.googleusercontent.com/bW35JIyzVUXQ69FS86UDV37zOV_JT2_MhH_Mrvrum2E=w245
   thumb:
 ---
 

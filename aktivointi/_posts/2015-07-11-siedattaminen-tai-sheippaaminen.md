@@ -3,7 +3,7 @@ title: "Siedättäminen tai sheippaaminen"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/vRj6GkSb7AixTdAOUqrJUqFE-gaM0tKMCrVEC4LdFoY=w245-h184-no
+  teaser: https://lh3.googleusercontent.com/vRj6GkSb7AixTdAOUqrJUqFE-gaM0tKMCrVEC4LdFoY=w245
   thumb:
 ---
 

@@ -3,7 +3,7 @@ title: "Käveleminen oudoilla pinnoilla"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/ejiLLUSQtdFtI0ZF98UqDxnjckW_S9NNvXx-P3ixS7I=w245-h184-no
+  teaser: https://lh3.googleusercontent.com/ejiLLUSQtdFtI0ZF98UqDxnjckW_S9NNvXx-P3ixS7I=w245
   thumb:
 ---
 

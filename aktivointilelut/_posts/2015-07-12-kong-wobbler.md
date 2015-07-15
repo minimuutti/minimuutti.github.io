@@ -3,7 +3,7 @@ title: "Kong Wobbler"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/xv6Anfh77_aF5TXMpjEB5MyWCqD5RfUq33n1PrsfU7U=w245-h163-no
+  teaser: https://lh3.googleusercontent.com/xv6Anfh77_aF5TXMpjEB5MyWCqD5RfUq33n1PrsfU7U=w245
   thumb:
 ---
 

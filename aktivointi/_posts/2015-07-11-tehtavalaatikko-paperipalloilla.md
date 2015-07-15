@@ -4,7 +4,7 @@ title: "Tehtävälaatikko paperipalloilla"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/jW1YrNe4n9Ea8UiVVupXgqWGzCmRFvSDGosvTgL0oWQ=w245-h181-no
+  teaser: https://lh3.googleusercontent.com/jW1YrNe4n9Ea8UiVVupXgqWGzCmRFvSDGosvTgL0oWQ=w245
   thumb:
 ---
 

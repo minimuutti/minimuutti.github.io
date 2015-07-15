@@ -3,7 +3,7 @@ title: "Hihnan kiertäminen tolpan ympäri"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/fAqZavbHzGUH6eHDjRhtiho7obRzr1gULVXOu8uDKDo=w245-h165-no
+  teaser: https://lh3.googleusercontent.com/fAqZavbHzGUH6eHDjRhtiho7obRzr1gULVXOu8uDKDo=w245
   thumb:
 ---
 

@@ -3,7 +3,7 @@ title: " Kartonkipakkaukset"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/Bt0NrKqwQZ-Bb1U1VAUPGNMxRPTLymRaRWtSk0odPSw=w245-h176-no
+  teaser: https://lh3.googleusercontent.com/Bt0NrKqwQZ-Bb1U1VAUPGNMxRPTLymRaRWtSk0odPSw=w245
   thumb:
 ---
 
