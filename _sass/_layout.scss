@@ -16,7 +16,11 @@
 	}
 	.inner-wrap {
 		@include outer-container;
+		padding: 0 $gutter;
 	}
+	background-image: url(https://lh3.googleusercontent.com/kEQRnOwrnySq73PSoLg8OFcwtYX4KfUGajF_H-LToRw=s0);
+	background-position-x: center;
+	background-repeat: no-repeat;
 }
 .site-title {
 	@include row;
@@ -27,11 +31,13 @@
 	height: $masthead-height;
 	text-decoration: none;
 	color: $black;
-	font-family: $alt-font;
+	font-family: "kaushan_scriptregular", $alt-font;
 	font-weight: 700;
 	@include font-size(20,no);
 	line-height: .5 * $masthead-height; // half the height to center vertically
 	text-transform: uppercase;
+	font-size: 3em;
+	width: auto !important;
 }
 
 
@@ -84,7 +90,7 @@
 /* Top menu navigation */
 
 .top-menu {
-	display: none;
+	width: 100% !important;
 	position: relative;
 	@include media($medium) {
 		@include span-columns(12);
@@ -154,12 +160,6 @@
 	@at-root {
 		.page-content {
 			@include fill-parent;
-			// larger font for intro paragraph
-			> p {
-				&:first-child {
-					@include font-size(20,yes,30);
-				}
-			}
 			// cleaner underlines for links
 			a { text-decoration: none; }
 			p a,

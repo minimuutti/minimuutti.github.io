@@ -1,11 +1,11 @@
 # Site wide configuration
 
-title:
+title: Minimuutin matkassa
 description:
 logo: # 120x120 px default image used for Twitter summary card
 teaser: # 400x250 px default teaser image used in image archive grid
 locale:
-url:
+url: http://minimuutti.com/
 
 # Jekyll configuration
 
@@ -22,14 +22,14 @@ gems:
 
 # Site owner
 owner:
-  name:
+  name: Susu
   email:
   twitter:
   google:
-    ad-client: 
-    ad-slot: 
-  bio: 
-  avatar: bio-photo.jpg # 160x160 px image for author byline
+    ad-client:
+    ad-slot:
+  bio:
+  avatar: # 160x160 px image for author byline
 disqus-shortname:
 
 

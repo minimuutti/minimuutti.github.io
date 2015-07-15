@@ -2,6 +2,9 @@
    Tiles
    ========================================================================== */
 
+.tiles {
+  overflow: hidden;
+}
 .tile {
   @include outer-container;
   margin-bottom: $gutter;
@@ -18,6 +21,8 @@
   }
   .post-title {
     @include font-size(18,no);
+    overflow: hidden;
+    text-overflow: ellipsis;
   }
   .post-excerpt {
     @include font-size(16);

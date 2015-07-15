@@ -1,0 +1,28 @@
+---
+title: " Kartonkipakkaukset"
+layout: article
+image:
+  feature:
+  teaser: https://lh3.googleusercontent.com/Bt0NrKqwQZ-Bb1U1VAUPGNMxRPTLymRaRWtSk0odPSw=w245-h176-no
+  thumb:
+---
+
+Maitotölkit, kananmunakotelot, muropaketit, talouspaperirullien hylsyt tai muut elintarvikkeille tarkoitetut kartonkipakkaukset ovat hyviä koiran tuhottavaksi. Maitotölkit kannattaa pestä ennenkuin antaa ne koiralle. Laitan näihin kartonkipakkauksiin useimmiten nappuloita.
+
+Nämä ovat Mikille niin helppoja, että teippaan aina kaikki tällaiset rasiat. Teipatun rasian tyhjentämiseen kuluu noin 2 minuuttia pakkauksesta riippuen.
+
+Pyöräilykypärän laatikko oli yllättävän vaikea Mikille, koska siellä sisällä oli sellainen välipohja, johon namit menivät sopivasti jumiin.
+
+Jos esim. maitotölkki on koirallesi liian vaikea, voit valmiiksi tehdä pienen reiän tölkin kylkeen tai antaa tölkin ilman kierrekorkkia.
+
+---
+
+![](https://lh3.googleusercontent.com/U-ZijnUPEYXn1RWAJ5pYCjWMHFTntAx31S27X_PZe4o=w800)
+
+![](https://lh3.googleusercontent.com/1DKg9sQq2y6JU4QeQr0N6MZ_GSYIcYzhwEJSrz0KpLw=w800)
+
+![](https://lh3.googleusercontent.com/EarnIhphFDX0u3QrojcknkMGBHOMs3RUQNT8KLfySZ8=w800)
+
+![](https://lh3.googleusercontent.com/mTwsd3rhTmbEo0L4up4VRfbWKUmAfUeKnCN-xdGQ9ck=w800)
+
+![](https://lh3.googleusercontent.com/Wz0QCZIiaj1xlereqi_Mr86nlSNOVqEGBFGrLE55m7g=w800)

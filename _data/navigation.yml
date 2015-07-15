@@ -1,6 +1,31 @@
 # Site navigation links
 
-- title:
-  url:
+- title: Etusivu
+  url: /
+  excerpt:
+  image:
+
+- title: Aktivointi
+  url: /aktivointi/
+  excerpt:
+  image:
+
+- title: Aktivointilelut
+  url: /aktivointilelut/
+  excerpt:
+  image:
+
+- title: Temput
+  url: /temput/
+  excerpt:
+  image:
+
+- title: Kuvia Mikistä
+  url: /kuvia-mikista/
+  excerpt:
+  image:
+
+- title: Luontokuvat
+  url: /luontokuvat/
   excerpt:
   image:
