@@ -1,7 +1,7 @@
 ---
 layout: default
 permalink: /
-title: "Latest Posts"
+title: "Etusivu"
 ---
 
 # Tervetuloa Minimuutin matkaan!
@@ -12,7 +12,7 @@ Miki (inuiittikieltä, tarkoittaa pientä) on elokuussa 2012 syntynyt alaskanmal
 
 Alaskanmalamuutti on jalostettu vetämään raskaita kuormia vaativissa olosuhteissa väsymättä. Malamuutit ovat yksi älykkäimmistä koiraroduista ja ne ovat myös erittäin nokkelia. Erittäin hyvin kirjoitettu alaskanmalamuutin rotukuvaus löytyy [malamuutti comin](http://malamuutti.com/index5.php?page=rotu) sivuilta.
 
-Mikin hellittelynimenä käytetään usein ”wulffia”. Sutta Mikissä ei ole sen enempää kuin muissakaan koirissa (tarkoitan, että Miki ei todellakaan ole mikään koirasusi; sudet kuuluvat vapaana luontoon), mutta Mikin ulkonäön perusteella sekä sen alkukantaisuuden perusteella se on wulffi. Lapset usein ulkona huomaavat Mikin muiden koirien joukosta. Vähintään kerran viikossa kuulemme niin lasten kuin aikuistenkin kutsuvan sitä sudeksi. Kuvia Mikistä voit käydä katsomassa "kuvia Mikistä" -kohdassa.
+Mikin hellittelynimenä käytetään usein ”wulffia”. Sutta Mikissä ei ole sen enempää kuin muissakaan koirissa (tarkoitan, että Miki ei todellakaan ole mikään koirasusi; sudet kuuluvat vapaana luontoon), mutta Mikin ulkonäön perusteella sekä sen alkukantaisuuden perusteella se on wulffi. Lapset usein ulkona huomaavat Mikin muiden koirien joukosta. Vähintään kerran viikossa kuulemme niin lasten kuin aikuistenkin kutsuvan sitä sudeksi. Kuvia Mikistä voit käydä katsomassa [täällä](/kuvia-mikista/).
 
 Kuvailen Mikiä usein näillä sanoilla: elämänhaluinen, sydämellinen, todella ihmisrakas, erittäin älykäs ja aina innokas tekemään ja kokeilemaan uutta. Tuo voimakas elämänhalu ja innokkuus tuovat mukanaan sen kääntöpuolen, että virtaa vaan riittää ja riittää ja riittää. Mutta toisaalta se on juuri se, mikä tekee koirasta "hyvän". Useimmilla "ongelmakoirilla" saattaa olla mitä parhain motivaatio omistajan ohjaamaan työskentelyyn, koiran halukkuus pitäisi vaan pystyä näkemään niiden ongelmien takaa. Miki ei koskaan kieltäydy mistään aktiviteeteista tai harjoituksista kunhan tarjolla on ruokapalkkaa. Onneksi Mikillä on pohjaton vatsa ja loputon ruokahalu :D
 
@@ -42,6 +42,6 @@ Eläimet ovat aina olleet intohimoni. Tällä hetkellä vapaa-aikani kuluu Mikin
 
 Toivottavasti viihdyt Minimuutin matkassa ja tämä sivusto antaa sinulle vinkkejä aktivoida omaa vilkasta koiraasi ja helpottaa sinun sekä koirasi arkea.
 
-Mikäli pidät suomalaisista luontokuvista, niin kannattaa käydä katsomassa myös "Luontokuvat" -osio. Mikistä otettuja kuvia voit katsella "Kuvia Mikistä" -osiossa.
+Mikäli pidät suomalaisista luontokuvista, niin kannattaa käydä katsomassa myös "[Luontokuvat](/luontokuvat/)" -osio.
 
 Minimuutin matkassa mennään ja lujaa mennäänkin!
