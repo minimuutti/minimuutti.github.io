@@ -10,6 +10,9 @@ image:
 ### Tässä on muutamia käskyjä ja temppuja mitä tällä hetkellä opetellaan
 
 * seiso (odotellaan siepattavia hetkiä)
+
+![](https://lh3.googleusercontent.com/83GXrS90Xpz1VkNpW5X0XaxpiK4KKSsN6SpT5uZj5AA=w245)
+
 * rengas puhkee (makaa selällään, odotellaan siepattavia hetkiä)
 
 ![](https://lh3.googleusercontent.com/3o272aBNRpW-kZsIKtrosnme7B2ByV8WxYSWn8vv--w=w245)

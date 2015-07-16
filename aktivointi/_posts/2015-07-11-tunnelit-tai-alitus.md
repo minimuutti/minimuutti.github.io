@@ -9,7 +9,7 @@ image:
 
 Agilitystä on varmaan monelle tuttu asia putki ja vielä sellainen minkä loppuosana on kankainen sukka.
 
-Me ollaan itse tehty apupöydästä ja pyyhkeestä tunneli, mistä mikin pitää mennä läpi. (Itse pöytä on niin hutera, että toisen täytyy aina pitää pöydästä kiinni.) Tuota sukkaosuutta pidennetään vähän jokaisella harjoituskerralla.
+Me ollaan itse tehty apupöydästä ja pyyhkeestä tunneli, mistä Mikin pitää mennä läpi. (Itse pöytä on niin hutera, että toisen täytyy aina pitää pöydästä kiinni.) Tuota sukkaosuutta pidennetään vähän jokaisella harjoituskerralla.
 
 Alla olevissa kuvissa on pelkkä pöytä ilman pyyhettä, jotta Miki näkyy kuvissa.
 

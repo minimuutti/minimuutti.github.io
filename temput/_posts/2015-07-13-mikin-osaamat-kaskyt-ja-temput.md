@@ -72,6 +72,15 @@ image:
 * vasen (kääntyy kävellessä vasemmalle)
 * oikee (kääntyy kävellessä oikealle)
 * hyppää (jonkun yli)
+
+* ylös (nousee esineen päälle tai jos esine on pieni niin pelkät etutassut riittää)
+
+![](https://lh3.googleusercontent.com/cEMALzzu39Vj6eY-ipdwJB4SoxHe2hhelJN0g2_X5y4=w245)
+
+* alas (tulee alas esineeltä)
+
+![](https://lh3.googleusercontent.com/EVOClj7rD1JrfCgxzm2A7dpe0JOwjXfnePHbiTfkDgI=w245)
+
 * kierrä (kiertää esim. tolpan ympäri samalle puolelle kuin omistaja)
 
 ![](https://lh3.googleusercontent.com/a8_8bGj8q0CkhQNj0z37k8sVLgy15-aYZIXP0mu0FF4=w245)
@@ -129,10 +138,16 @@ image:
 
 * peruuta (peruuttaa kävellen)
 * ryömi (ryömii mahallaan eteenpäin)
+
+![](https://lh3.googleusercontent.com/f_SHotxX6lsnD8lFYkvcj7mfuSmo7sNhVnrS8IhS344=w245)
+
 * pakita (ryömii mahallaan peruuttaen)
+
+![](https://lh3.googleusercontent.com/pjlFzKhdMQTEfBPSE28AM6ABgHJoQ9qnRxdcgkQhbZU=w245)
+
 * alla (tulee minun alle jalkojen väliin ja kävelee siinä eteen tai taaksepäin kanssani)
-* missä janne (etsii jannen ja menee luokse)
-* missä susu (etsii susun ja menee luokse)
+* missä Janne (etsii Jannen ja menee luokse)
+* missä Susu (etsii Susun ja menee luokse)
 * puske (puskee pyytäjää päällään tai puske henkilöä X niin menee puskemaan tätä nimettyä henkilöä)
 * sulje (sulkee avoimen kaapin tai laatikon kuonollaan)
 
@@ -150,26 +165,22 @@ image:
 ![](https://lh3.googleusercontent.com/T4_nHc6dlY-01qB9u6jtXCMzO2iG0PsyfJwaUeP3a0U=w245)
 ![](https://lh3.googleusercontent.com/6ZgZZi9vuj9S4KH_sbCLQtVXULsfqWA8AN0zf6U8tYc=w245)
 
-* ylös (nousee esineen päälle tai jos esine on pieni niin pelkät etutassut riittää)
-
-![](https://lh3.googleusercontent.com/cEMALzzu39Vj6eY-ipdwJB4SoxHe2hhelJN0g2_X5y4=w245)
-
-* alas (tulee alas esineeltä)
-
-![](https://lh3.googleusercontent.com/EVOClj7rD1JrfCgxzm2A7dpe0JOwjXfnePHbiTfkDgI=w245)
-
 * kaada (kaataa lattialla olevan esineen)
 
 ![](https://lh3.googleusercontent.com/EdyHVb13IbFbhrT83BFQen42fSr1SJ2U6eCkHB5eVmY=w245)
 ![](https://lh3.googleusercontent.com/hNxPRi1FtnVwElU9GORx2jm4Wx0r7LZ3wepsC-l3CR8=w245)
 
 * post-it lapun koskeminen (koskee lappua kuonolla, tähän ei ole mitään käskyä mutta tällä on opetettu muita temppuja)
+
+![](https://lh3.googleusercontent.com/N0ZL5ovJA-93qPjmc7Ekztazeu976x2QeT8zDkxXwH8=w245)
+![](https://lh3.googleusercontent.com/7CxiuHgQk4MT1TtolC7nOOfIJ5eD5NyT0qN1WcO81OM=w245)
+
 * kosketusalustalle meneminen (laittaa etutassut alustalle, tähän ei myöskään ole käskyä mutta käytetään apuna tempuissa)
 
 ![](https://lh3.googleusercontent.com/LAz4Y2VtuLUlafykTERwJeni6w9FG3pvIoSn63sPF9Y=w245)
 ![](https://lh3.googleusercontent.com/L24nTvpXyRPkC4mSIY_HabZWmGrF8Pkp-CaYWQj2wl8=w245)
 
-* mangusti (nousee istuma-asennosta istumaan pystyasentoon eng. sit pretty)
+* mangusti (nousee istuma-asennosta istumaan pystyasentoon)
 
 ![](https://lh3.googleusercontent.com/8OjwWKDL2fhVFu8ssZ-hxJIHul93Tyv39qhBrgW_-1g=w245)
 ![](https://lh3.googleusercontent.com/_D9Ecyr906vcBYuNW_WjtcLgGjQrzqO4VLRaEEkHLi4=w245)
@@ -179,7 +190,7 @@ image:
 ![](https://lh3.googleusercontent.com/HGDs8l3PTzWnXalQc2ofWQ28ZfsbvYSvhZVo6n5T3mk=w245)
 ![](https://lh3.googleusercontent.com/PfoMOCt0KJaCT4aUqiPNOLi7CPyK8dvkL2vARrbwID0=w245)
 
-* ohi (ohittaa tällä hetkellä maassa olevat ruuat tai esineet > aiotaan myöhemmin yleistää myös muiden koirien ohitukseen)
+* ohi (tällä hetkellä ohittaa maassa olevat ruuat tai esineet > aiotaan myöhemmin yleistää myös muiden koirien ohitukseen)
 * tassut kohti taivasta (nousee takatassuilleen ja nojaa etutassuilla pyytäjää vasten)
 
 ![](https://lh3.googleusercontent.com/UKqYWPTSRH61-vK444yP2reyiHafdhvuN6GiaM2yf1k=w245)

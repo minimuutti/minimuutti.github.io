@@ -17,9 +17,15 @@ Nykyään rullaan kylpypyyhkeen pitkittäin pitkäksi pötköksi. Kannattaa käy
 
 Nami kannattaa laittaa siihen reunaan mistä aloittaa rullauksen, niin koiralla on sitten vähän enemmän tekemistä. Teen rullattuun pyyhkeeseen solmun ja nami on piilossa siellä rullassa sen solmun kohdalla, jolloin Miki joutuu avaamaan tuon solmun saadakseen namin. Laitan yleensä tämän päälle vielä toisen solmun mikäli pyyhe riittää.
 
-Tuplasolmutun pyyhkeen avaaminen kestää Mikiltä noin 5-15 minuuttia.
+Tuplasolmitun pyyhkeen avaaminen kestää Mikiltä noin 5-15 minuuttia.
 
 ---
+
+![](https://lh3.googleusercontent.com/EUGEMklxbux158kHddEHOsDAixgJ8wfKUzdZzNDo2Cg=w800)
+
+![](https://lh3.googleusercontent.com/7CEeY3kQJs7cJveh2z2qGvMfWSxdP3w_K1kVwdKKpTM=w800)
+
+![](https://lh3.googleusercontent.com/w5xff25n2Z5fEhBVV3Aqgpn3ZdjKKKGdvlERNpUs93E=w800)
 
 ![](https://lh3.googleusercontent.com/EIUowJnFzROpWme2aqztpsmWjmPzB_kjyxE2gmmu4yo=w800)
 

@@ -11,7 +11,7 @@ Tehtävälaatikosta keksin myös tällaisen kivan köysimuunnelman.
 
 Meillä on reilun sentin paksuisesta veneköydestä tehty Mikille 20 metriä pitkä hihna, jota käytetään yleensä jäällä tai kun mennään uimaan tai pellolle tai pelaamaan jalkapalloa. (Mikillä on NIIN voimakas riista- ja saalisvietti, ettei Mikiä voi pitää irti, koska vaarana on että se jää auton alle kun lähtee kanin perään. Ja niitä täällä riittää.)
 
-Eli meillä on sen kokoinen pahvilaatikko, joka tulee täyttyy noin puoliväliin kun köyden laittaa sinne. Sitten vaan nostan sen metallisen lukko-osan pois laatikosta ja heitän laatikkoon nappuloita. Yleensä jaan kerta-annoksen nappuloita kolmeen tai neljään osaan ja heitän nappulat laatikkoon osissa. Köysilaatikon parissa aikaa saa kulumaan noin 10–15 minuuttia kun pihtaa nappuloita tarpeeksi  :D (ne viimeiset on aina ne vaikeimmat saada).
+Eli meillä on sen kokoinen pahvilaatikko, joka täyttyy noin puoliväliin kun köyden laittaa sinne. Sitten vaan nostan sen metallisen lukko-osan pois laatikosta ja heitän laatikkoon nappuloita. Yleensä jaan kerta-annoksen nappuloita kolmeen tai neljään osaan ja heitän nappulat laatikkoon osissa. Köysilaatikon parissa aikaa saa kulumaan noin 10–15 minuuttia kun pihtaa nappuloita tarpeeksi :D (ne viimeiset on aina ne vaikeimmat saada).
 
 ---
 

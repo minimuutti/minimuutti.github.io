@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Tähän tarvitaan vain kulho/vati/ämpäri, johon voi laittaa vettä sekä sellaisia nameja, jotka eivät sula vedessä (esim. kuivatut kanafileen palat, tuoreet lihan palat, nakin palat jne.).
+Tähän tarvitaan vain kulho/vati/ämpäri, johon voi laittaa vettä sekä sellaisia nameja, jotka eivät hajoa vedessä (esim. kuivatut kanafileen palat, tuoreet lihan palat, nakin palat jne.).
 
 Laitoin pesuvatiin vettä noin 10 senttiä. Laitoin veteen muutaman nakin palan ja pyysin Mikiä etsimään. Ensin Miki katsoi mua että mitä ihmettä, mutta sitten ne nakin palaset katosi noin 5 sekunnissa.
 

@@ -37,6 +37,6 @@ Miki ei jaksanut odottaa laatikon kasausta, vaan päätti tarjota laatikkoleikki
 
 ![](https://lh3.googleusercontent.com/ZZS2ww7TxkmDSAwhHSYmPJN3-cP1C7UYbhyYAFSxDis=w800)
 
-Laatikkoleikkiä
+Kuva laatikkoleikistä
 
 ![](https://lh3.googleusercontent.com/LVaOYq4ETi6e3VQGuwvX7LTcs8FxxWQe7tIK6JQo2w=w800)
