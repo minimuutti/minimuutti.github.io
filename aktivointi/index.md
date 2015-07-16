@@ -7,7 +7,7 @@ layout: category
 
 Edellinen koirakouluttajamme ei uskonut, että Miki on TODELLA energinen vaikka sitä vakuutin ennen ensimmäistä tapaamistamme. Kun kouluttaja tajusi miten energisen yksilön kanssa on tekemisissä, hän ehdotti että ennen harjoituksia kannattaa Mikille heittää muutama naminpalanen ruohikkoon etsittäväksi ”se jos mikä väsyttää koiran kuin koiran”. Toimii ehkä ”normaalienergisillä” koirilla ja vielä ehkä ennemmin sellaisilla yksilöillä, jotka eivät ole tottuneet hajutyöskentelyyn tai eivät ole ennen saaneet etsiä ruokaansa.
 
-Mikin päivittäisestä aktivoinnista noin 20 minuuttia on erilaisia ruuan etsimis tehtäviä; esimerkiksi etsiminen ruohikosta, puusta, lumihangesta tai piilotettuna asunnosta, etsimistä sitä jostain väsäämästäni ”laatikkoleikistä” (näistä lisää myöhemmin) tai kaupasta ostetuista aktivointilelusta. Voitte tästä helposti päätellä, ettei kouluttajan ehdottama muutaman namin etsiminen ruohikosta vaikuta suuntaan eikä toiseen.
+Mikin päivittäisestä aktivoinnista noin 20 minuuttia on erilaisia ruuanetsimistehtäviä; esimerkiksi etsiminen ruohikosta, puusta, lumihangesta tai piilotettuna asunnosta, etsimistä sitä jostain väsäämästäni ”laatikkoleikistä” (näistä lisää myöhemmin) tai kaupasta ostetuista aktivointilelusta. Voitte tästä helposti päätellä, ettei kouluttajan ehdottama muutaman namin etsiminen ruohikosta vaikuta suuntaan eikä toiseen.
 
 ### Nenän käyttö ja etsiminen
 
