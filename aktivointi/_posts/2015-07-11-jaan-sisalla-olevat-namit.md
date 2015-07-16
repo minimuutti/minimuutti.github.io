@@ -7,9 +7,7 @@ image:
   thumb:
 ---
 
-Laitan purkkiin vettä ja sinne sekaan esim. nakkipötköjä ja laitan helahoidon pakastimeen muutamaksi tunniksi.
-
-Miki saa sitten kaivella nuo nakin palat tuolta jään sisältä. Alla olevassa kuvassa näkyy ensimmäinen kerta, kun tein Mikille tällaisen kesähelteellä. Tämän syöminen tosin kesti vain minuutin.
+Laitan purkkiin vettä ja sinne sekaan esim. nakkipötköjä ja laitan helahoidon pakastimeen muutamaksi tunniksi. Miki saa sitten kaivella nuo nakin palat tuolta jään sisältä. Alla olevassa kuvassa näkyy ensimmäinen kerta, kun tein Mikille tällaisen kesähelteellä. Tämän syöminen tosin kesti vain minuutin.
 
 Tätä voisi koittaa esimerkiksi niin, että pakastaisi ensin vaikka pari senttiä vettä isoon raejuustopurkkiin. Sen jäädyttyä laittaisi vasta namit ja lisää sen verran vettä, että namit peittyisivät ja tämän jäädyttyä voisi tähän päälle jäädyttää vielä sentin vettä.
 

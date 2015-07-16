@@ -13,7 +13,7 @@ Kuulostaa ”liian helpolta”, mutta kun tuolit on laitettu siististi vierekkä
 
 Käytännössä Miki joutuu kiertelemään pöytää monesti ympäri ja yrittämään eri kulmista saada metsästettyä nappulansa. Lisäksi Miki joutuu ryömimään tuolien ali.
 
-Nappuloiden etsiminen pöydän alta kestää noin 5 minuuttia. Ja wulffin aamujumppa tulee samalla tehtyä :D
+Nappuloiden etsiminen pöydän alta kestää noin 2-3 minuuttia. Ja wulffin aamujumppa tulee samalla tehtyä :D
 
 ---
 

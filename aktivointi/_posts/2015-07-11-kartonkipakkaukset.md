@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Maitotölkit, kananmunakotelot, muropaketit, talouspaperirullien hylsyt tai muut elintarvikkeille tarkoitetut kartonkipakkaukset ovat hyviä koiran tuhottavaksi. Maitotölkit kannattaa pestä ennenkuin antaa ne koiralle. Laitan näihin kartonkipakkauksiin useimmiten nappuloita.
+Maitotölkit, kananmunakotelot, muropaketit, talouspaperirullien hylsyt tai muut elintarvikkeille tarkoitetut kartonkipakkaukset ovat hyviä koiran tuhottavaksi. Maitotölkit kannattaa pestä ennen kuin antaa ne koiralle. Laitan näihin kartonkipakkauksiin useimmiten nappuloita.
 
 Nämä ovat Mikille niin helppoja, että teippaan aina kaikki tällaiset rasiat. Teipatun rasian tyhjentämiseen kuluu noin 2 minuuttia pakkauksesta riippuen.
 

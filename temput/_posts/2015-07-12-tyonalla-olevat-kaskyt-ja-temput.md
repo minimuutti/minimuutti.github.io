@@ -49,7 +49,7 @@ image:
 ![](https://lh3.googleusercontent.com/NxHoNxbkbC1TAT0ubEiqDh9AcPAW5xVbiq5S_VjKKYA=w245)
 
 * suoraan (eli ei käänny risteyksestä oikealle eikä vasemmalle)
-* pidä (pitää esinettä suussaan kunnes saa luvan irrottaa, nyt ottaa esineen suuhun muttei pidä niitä vielä vaan esine putoaa heti)
+* pidä (pitää esinettä suussaan kunnes saa luvan irrottaa, nyt ottaa esineen suuhun muttei pidä sitä vielä, vaan esine putoaa heti)
 * vaihdetaan nenää (tätä sheipataan, eli tarkoitus olisi että Miki koskee kirsulla pyytäjän nenään)
 * kosketuskepin pään koskettaminen kuonolla (koskee tai syö keppiä, muttei vielä tajua koskettaa vain sitä palloa siellä päässä kuin vahingossa, keppi tosin saapui meille vasta eilen.)
 

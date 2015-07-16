@@ -122,8 +122,8 @@ image:
 
 ![](https://lh3.googleusercontent.com/JnjcM-DuW7bea3dqLxvpjtGRoa6Jvh-yibWJ_nBELCE=w245)
 
-* hae kongi (hakee lumiukko kongin)
-* ota kongi (nappaa lattialla lojuvan lumiukkokongin pois tieltä, eli siirtää sen kauemmaksi)
+* hae Kongi (hakee lumiukko Kongin)
+* ota Kongi (nappaa lattialla lojuvan lumiukko Kongin pois tieltä, eli siirtää sen kauemmaksi)
 * matto (rullaa maton auki tai suoristaa sen, jos vain kulma on kurtussa tai taitettuna)
 
 ![](https://lh3.googleusercontent.com/tzwMVo8JQPRmlQskzMVPIMw3Hy0PievUQ6ZtaswkPrU=w245)

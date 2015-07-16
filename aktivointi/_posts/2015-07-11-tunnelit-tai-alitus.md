@@ -13,7 +13,7 @@ Me ollaan itse tehty apupöydästä ja pyyhkeestä tunneli, mistä Mikin pitää
 
 Alla olevissa kuvissa on pelkkä pöytä ilman pyyhettä, jotta Miki näkyy kuvissa.
 
-Myös esim. isot pahvilaatikot ovat hyviä tunneleita.
+Myös isot pahvilaatikot ovat hyviä tunneleita.
 
 ---
 

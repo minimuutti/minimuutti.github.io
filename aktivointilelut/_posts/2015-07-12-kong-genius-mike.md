@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Oranssiin Kong Genius Mikeen (L kokoinen) laitan yleensä nappuloita. Näin täytettynä kongin tyhjentämiseen menee Mikiltä noin 2 minuuttia.
+Oranssiin Kong Genius Mikeen (L kokoinen) laitan yleensä nappuloita. Näin täytettynä Kongin tyhjentämiseen menee Mikiltä noin 2 minuuttia.
 
 Joskus olen laittanut myös kinkkuviipaleen tai juustosiivun, mutta silloin Kongi tyhjenee noin 20 sekunnissa…
 

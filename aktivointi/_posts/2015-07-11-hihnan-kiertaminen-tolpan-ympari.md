@@ -13,6 +13,8 @@ Mutta jos hihnan kiertääkin tolpan ympäri omistaja, ei kiertäminen olekaan k
 
 Tässäkin kannattaa aloittaa ensin yhdellä kierroksella ja se kannattaa aloittaa rauhallisella paikalla.
 
+---
+
 ![](https://lh3.googleusercontent.com/SKpxRvpZePPScS-zxUKLznGo70S5LHprt4IEMSqRv8A=w800)
 
 ![](https://lh3.googleusercontent.com/FtKHcJgaPBtres639PizNA9hREyQCy55WwfXH8GDMCc=w800)

@@ -13,7 +13,7 @@ Esimerkiksi opetin Mikin pitämään tätä karvahattua tai sitten voisi opettaa
 
 Mikäli koirasi on menossa sellaiseen toimenpiteeseen mikä vaatii kaulurin pitämistä, niin kaulurikin kannattaa siedättää sitä ennen.
 
-En pidä koirien inhimillistämisestä enkä suosittele koiralle puettavaksi mitään pelkästään ihmisen huvitukseksi. Mutta Mikin päänmenoksi teemme myös tälläisiä vähemmäntarpeellisiakin asioita, kuluuhan koiralta siinä pähkäilyssä vähän energiaa.
+En pidä koirien inhimillistämisestä, enkä suosittele koiralle puettavaksi mitään pelkästään ihmisen huvitukseksi. Teemme kuitenkin Mikin päänmenoksi myös tälläisiä vähemmäntarpeellisiakin asioita, kuluuhan koiralta siinä pähkäilyssä vähän energiaa.
 
 ---
 

@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Tehtävälaatikosta keksin myös tällaisen kivan köysimuunnelman.
+Lelulaatikosta keksin myös tällaisen kivan köysimuunnelman.
 
 Meillä on reilun sentin paksuisesta veneköydestä tehty Mikille 20 metriä pitkä hihna, jota käytetään yleensä jäällä tai kun mennään uimaan tai pellolle tai pelaamaan jalkapalloa. (Mikillä on NIIN voimakas riista- ja saalisvietti, ettei Mikiä voi pitää irti, koska vaarana on että se jää auton alle kun lähtee kanin perään. Ja niitä täällä riittää.)
 

@@ -10,9 +10,9 @@ image:
 
 Tarvitset yhden isohkon pahvilaatikon, aikakauslehden (josta niitit on poistettu) sekä kuivia nameja (yleensä laitan ihan vaan nappuloita)
 
-Nykyään teen tämän pahvilaatikkolasagnen vaikeutetusti, eli kasaan tehtävälaatikon. Otan aikakauslehdestä yksittäisiä sivuja, ruttaan sivut palloiksi ja laitan yhden namin jokaisen pallon sisään. Näitä palloja teen jonkun 40–50 kpl ja laitan pallot pahvilaatikkoon. Loput nappulat kaadan pallojen sekaan etsittäväksi.
+Nykyään teen pahvilaatikkolasagnen vaikeutetusti, eli kasaan tehtävälaatikon, otan aikakauslehdestä yksittäisiä sivuja, ruttaan sivut palloiksi ja laitan yhden namin jokaisen pallon sisään. Näitä palloja teen jonkun 40–50 kpl ja laitan pallot pahvilaatikkoon. Loput nappulat kaadan pallojen sekaan etsittäväksi.
 
-Ensimmäisellä kerralla kannattaa aloittaa paksulla paperilla (esim. aikakauslehden tai postimyyntikatalogin kansilehdet voisivat olla sopivia) jotta koira ei tulisi syöneeksi koko lehteä ;) Ensimmäisellä kerralla Miki tuli syöneeksi myös paperia kun en itse tajunnut laittaa paksumpaa paperia, mutta jo toisella kerralla se tajusi että on kannattavampaa avata tai repiä ne paperipallot auki kuin syödä niitä :D
+Ensimmäisellä kerralla kannattaa aloittaa paksulla paperilla (esim. aikakauslehden tai postimyyntikatalogin kansilehdet voisivat olla sopivia) jotta koira ei tulisi syöneeksi koko lehteä ;) Ensimmäisellä kerralla Miki tuli syöneeksi myös paperia, kun en itse tajunnut laittaa paksumpaa paperia, mutta jo toisella kerralla se tajusi että on kannattavampaa avata tai repiä ne paperipallot auki kuin syödä niitä :D
 
 ---
 
