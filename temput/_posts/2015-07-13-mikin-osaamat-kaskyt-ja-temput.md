@@ -72,7 +72,6 @@ image:
 * vasen (kääntyy kävellessä vasemmalle)
 * oikee (kääntyy kävellessä oikealle)
 * hyppää (jonkun yli)
-
 * ylös (nousee esineen päälle tai jos esine on pieni niin pelkät etutassut riittää)
 
 ![](https://lh3.googleusercontent.com/cEMALzzu39Vj6eY-ipdwJB4SoxHe2hhelJN0g2_X5y4=w245)
