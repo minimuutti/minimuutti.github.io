@@ -19,12 +19,6 @@ image:
 
 * pyöriminen vastapäivään
 * pysyminen matolla tai viltillä
-* kosketa tassulla pyydettyä esinettä
-
-![](https://lh3.googleusercontent.com/84eAphZaz6OzxiP9D29uk-q657WIeWQRDSX5-jitvyw=w245)
-![](https://lh3.googleusercontent.com/0a1jAwlz-ooFbESzwrQ4FEd1QOlRkkFhQ2EjJ_MHOBw=w245)
-![](https://lh3.googleusercontent.com/Nz9JDJjaY7qCLuVzKrhMj28rR5YcgNXE9EFZ8pgldN4=w245)
-
 * esineiden nimiä
 * istu tuolille
 * high ten (eli antaa yläfemman molemmalla tassulla yhtä aikaa)
