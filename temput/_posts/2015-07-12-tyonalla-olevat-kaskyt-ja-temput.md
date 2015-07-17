@@ -9,7 +9,7 @@ image:
 
 ### Tässä on muutamia käskyjä ja temppuja mitä tällä hetkellä opetellaan
 
-* kosketa tassulla pyydettyä esinettä (koskettaa jo, mutta tähän ei vielä ole lisätty käskyä)
+* kosketa tassulla pyydettyä esinettä (koskettaa jo, mutta tähän ei ole lisätty käskyä, eikä esineiden nimiä ole vielä opetettu)
 
 ![](https://lh3.googleusercontent.com/84eAphZaz6OzxiP9D29uk-q657WIeWQRDSX5-jitvyw=w245)
 ![](https://lh3.googleusercontent.com/0a1jAwlz-ooFbESzwrQ4FEd1QOlRkkFhQ2EjJ_MHOBw=w245)
