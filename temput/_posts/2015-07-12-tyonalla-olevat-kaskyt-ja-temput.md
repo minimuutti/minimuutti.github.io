@@ -15,15 +15,6 @@ image:
 ![](https://lh3.googleusercontent.com/0a1jAwlz-ooFbESzwrQ4FEd1QOlRkkFhQ2EjJ_MHOBw=w245)
 ![](https://lh3.googleusercontent.com/Nz9JDJjaY7qCLuVzKrhMj28rR5YcgNXE9EFZ8pgldN4=w245)
 
-* boxi (seisoo aina vain pienemmissä laatikoissa. Miki jo menee suht pieniin laatikoihin, mutta tähän ei vielä ole lisätty käskyä)
-
-![](https://lh3.googleusercontent.com/m_FNe_z-kBMhO4V4cj6lU5CW6UgnPLBl0PURLyNfqlI=w245)
-![](https://lh3.googleusercontent.com/CF1q4dZABAX43aOF0dW4Px2o6Si8hwBc4BJ1hj90lTQ=w245)
-![](https://lh3.googleusercontent.com/AXLE5MGEgn0CsFiaXHp1oW3IQAeRG9KirFe3hTOk4Sk=w245)
-![](https://lh3.googleusercontent.com/WK0-4bpPu7BDg-hGRoQs_QrxvgMS78u-Iv92Dn9w9-Q=w245)
-![](https://lh3.googleusercontent.com/gO8a6DNtHXOrJGOUSAo4EMb9yDp7s-4HZ7VSXKLieK8=w245)
-![](https://lh3.googleusercontent.com/NxHoNxbkbC1TAT0ubEiqDh9AcPAW5xVbiq5S_VjKKYA=w245)
-
 * vaihdetaan nenää (tätä sheipataan, eli tarkoitus olisi että Miki koskee kirsulla pyytäjän nenään)
 * seiso (odotellaan siepattavia hetkiä)
 

@@ -26,9 +26,7 @@ image:
 ![](https://lh3.googleusercontent.com/WRnNzfp_d-9VO7npm6OstfZ02QEenlFgHVGQdsV5SWw=w245)
 
 * ei
-
 * irti
-
 * tassu (antaa oikean tassun)
 
 ![](https://lh3.googleusercontent.com/NwoEadbxY11lCtn8esH8S5DAeG7ye1VtxIUyXrpaxPY=w245)
@@ -179,6 +177,16 @@ image:
 
 ![](https://lh3.googleusercontent.com/LAz4Y2VtuLUlafykTERwJeni6w9FG3pvIoSn63sPF9Y=w245)
 ![](https://lh3.googleusercontent.com/L24nTvpXyRPkC4mSIY_HabZWmGrF8Pkp-CaYWQj2wl8=w245)
+
+* boxi (menee aina vain pienempiin laatikoihin)
+
+![](https://lh3.googleusercontent.com/m_FNe_z-kBMhO4V4cj6lU5CW6UgnPLBl0PURLyNfqlI=w245)
+![](https://lh3.googleusercontent.com/WK0-4bpPu7BDg-hGRoQs_QrxvgMS78u-Iv92Dn9w9-Q=w245)
+![](https://lh3.googleusercontent.com/NxHoNxbkbC1TAT0ubEiqDh9AcPAW5xVbiq5S_VjKKYA=w245)
+![](https://lh3.googleusercontent.com/gO8a6DNtHXOrJGOUSAo4EMb9yDp7s-4HZ7VSXKLieK8=w245)
+![](https://lh3.googleusercontent.com/dC0RPFqd2kCVAUf0OGA2i5E5egQhhHQrH_-LLRf7ITQ=w245)
+![](https://lh3.googleusercontent.com/OSFi3p17bYXODb8RC85Fo8Hbm8vsM4IMjOJ0dFXe2Ow=w245)
+
 
 * mangusti (nousee istuma-asennosta istumaan pystyasentoon)
 
