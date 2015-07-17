@@ -55,10 +55,8 @@ image:
 
 * hyppää hulavanteen läpi (hyppää jo riman yli, mutta vannetta vasta harjoitellaan)
 * vilkuta (Mikin olisi tarkoitus vilkuttaa vasemmalla tassulla, mutta tässä ollaan vasta alkutekijöissä)
-
 * suoraan (eli ei käänny risteyksestä oikealle eikä vasemmalle)
 * pidä (pitää esinettä suussaan kunnes saa luvan irrottaa, nyt ottaa esineen suuhun muttei pidä sitä vielä, vaan esine putoaa heti)
-
 * kosketuskepin pään koskettaminen kuonolla (koskee tai syö keppiä, muttei vielä tajua koskettaa vain sitä palloa siellä päässä kuin vahingossa, keppi tosin saapui meille vasta eilen.)
 
 ![](https://lh3.googleusercontent.com/59cn-oHeIbbbplPTRECAoTCEGeaAHDnsZAxvD53lO2I=w245)
