@@ -106,6 +106,7 @@ image:
 
 ![](https://lh3.googleusercontent.com/XwOTvMwWrTfgOTweQNJ7Ie-ItekuRxUVWWAIJDmzYyE=w245)
 
+* käy nukkumaan
 * ota vettä (menee juomaan)
 
 ![](https://lh3.googleusercontent.com/ajRm1BWEJrDdvQnGOQ6SoNQgRZLQkLywyw_WIejwiBA=w245)
@@ -164,7 +165,7 @@ image:
 ![](https://lh3.googleusercontent.com/T4_nHc6dlY-01qB9u6jtXCMzO2iG0PsyfJwaUeP3a0U=w245)
 ![](https://lh3.googleusercontent.com/6ZgZZi9vuj9S4KH_sbCLQtVXULsfqWA8AN0zf6U8tYc=w245)
 
-* kaada (kaataa lattialla olevan esineen)
+* kaada (kaataa lattialla olevan esineen tai esineet)
 
 ![](https://lh3.googleusercontent.com/EdyHVb13IbFbhrT83BFQen42fSr1SJ2U6eCkHB5eVmY=w245)
 ![](https://lh3.googleusercontent.com/hNxPRi1FtnVwElU9GORx2jm4Wx0r7LZ3wepsC-l3CR8=w245)
@@ -189,18 +190,17 @@ image:
 ![](https://lh3.googleusercontent.com/HGDs8l3PTzWnXalQc2ofWQ28ZfsbvYSvhZVo6n5T3mk=w245)
 ![](https://lh3.googleusercontent.com/PfoMOCt0KJaCT4aUqiPNOLi7CPyK8dvkL2vARrbwID0=w245)
 
-* ohi (tällä hetkellä ohittaa maassa olevat ruuat tai esineet > aiotaan myöhemmin yleistää myös muiden koirien ohitukseen)
 * tassut kohti taivasta (nousee takatassuilleen ja nojaa etutassuilla pyytäjää vasten)
 
 ![](https://lh3.googleusercontent.com/UKqYWPTSRH61-vK444yP2reyiHafdhvuN6GiaM2yf1k=w245)
 ![](https://lh3.googleusercontent.com/Y4iRaZ3gKptdx634n6GO2VtnrEwVnLGDdnlipHb1Vmw=w245)
 
+* ohi (tällä hetkellä ohittaa maassa olevat ruuat tai esineet > aiotaan myöhemmin yleistää myös muiden koirien ohitukseen)
 * sivulle (tulee oikealle sivulle)
 * seis (pysähtyy)
 
 ![](https://lh3.googleusercontent.com/kwM7qRJ6RPFfBiJhzLzmYaV9Orqu2LdFTfmU9RRal7s=w245)
 
 * oikee reuna (siirtyy tien oikeaan reunaan)
-* käy nukkumaan
 * kasi (pujottelee kasia jalkojen välissä)
 * vapaa
