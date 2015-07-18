@@ -13,6 +13,7 @@ Myöhemmin nameja voi sitten heittää villiintyneeseen heinikkoon, lumihankeen 
 
 Etsiminen hämärässä tai pimeässä on tietenkin koiralle vaikeampaa, koska koira joutuu luottamaan enemmän  pelkkään hajuaistiinsa.
 
+Ulkona käytän aina parempia nameja kuin sisällä, jotta Mikin motivaatio etsimiseen säilyy. Kotona sisällä piilotan useimmiten nappuloita, mutta ulkona käytän usein nakkeja, kuivattuja kanafileitä, kinkun palasia tai jotain muuta lihaa mitä sattuu olemaan.
 
 ---
 

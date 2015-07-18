@@ -11,6 +11,8 @@ Piilota nameja puunrungon koloihin tai kaarnan alle. Esimerkiksi lehmuksen tai h
 
 Puuhun kiipeäminen on myös hyvä tapa aktivoida koiraa, mikäli lenkkipolun varrelta sattuu löytymään sopivia puita. Näissä myös piilotan namit puun runkoon, mutta Mikin on ensin kiivettävä puuhun saadakseen namit.
 
+Yleensä piilotan puuhun ihan pieneksi pilkottuja kuivatun kanafileenpaloja ja joskus harvoin myös kinkkua tai nakin palasia.
+
 ---
 
 ![](https://lh3.googleusercontent.com/XOj5z58Lw2GMpcJFxuUszQ1sUcc5Dcwp3YJKC8TaOXI=w800)
