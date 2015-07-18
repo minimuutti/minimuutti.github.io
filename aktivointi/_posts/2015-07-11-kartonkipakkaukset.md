@@ -15,6 +15,8 @@ Pyöräilykypärän laatikko oli yllättävän vaikea Mikille, koska siellä sis
 
 Jos esim. maitotölkki on koirallesi liian vaikea, voit valmiiksi tehdä pienen reiän tölkin kylkeen tai antaa tölkin ilman kierrekorkkia.
 
+Näitäkin tehtäviä voi vaikeuttaa ripustamalla namipaketin roikkumaan kaiteesta, puunoksasta tai vaikka tikapuista ja koiran on ensin saatava paketti alas. Tämä narulla ripustaminen on meillä vielä testaamatta.
+
 ---
 
 ![](https://lh3.googleusercontent.com/U-ZijnUPEYXn1RWAJ5pYCjWMHFTntAx31S27X_PZe4o=w800)
