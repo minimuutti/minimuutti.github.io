@@ -90,7 +90,7 @@ image:
 ![](https://lh3.googleusercontent.com/FXrh1EHMjvEorrVpo4GdfezAkPrepeUC8OxZwZd35mY=w245)
 
 * väistä (antaa pyytäjälle tilaa, eli väistää johonkin suuntaan)
-* Miki tai Miki täällä (tulee kutsuttaessa)
+* Miki tai Miki täällä (tulee kutsuttaessa) (Miki tosin luulee, että sillä on useampiakin etunimiä, kuten nälkä, ruokaa tai syömään :D )
 
 ![](https://lh3.googleusercontent.com/T46elXbFVrbxPl2Js7auyv2kZSJvAmdMLGmPS590cr4=w245)
 ![](https://lh3.googleusercontent.com/DlfaBTOnwuIaODbVMsnLqCe1bobZQDHrxO07ziNwdJA=w245)
