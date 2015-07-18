@@ -3,7 +3,7 @@ title: "Pyyhelaatikko"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/lUImXIvprC5A8k8Qm2yg7-ozYpPFRYrDkro0eoT-kAQ=w245
+  teaser: https://lh3.googleusercontent.com/ljQnee9ZKNfM1K6g3zv3-E_NYVP4RsE2eVJv0aw-4yI=w245
   thumb:
 ---
 
@@ -13,6 +13,6 @@ Laitoin pahvilaatikkoon neljä pientä pyyhettä ja yhden ison pyyhkeen, jotta l
 
 Piilotin laatikkoon noin 10 isohkoa kuivaa namia pyyhkeiden sisään ja ruttasin tai taittelin pyyhkeet. Mikiltä kesti kaikkien namien löytäminen noin 2 minuuttia.
 
-![](https://lh3.googleusercontent.com/bIb7TA0nGXT8I_Sb89-TGo0f6q0KYeEW0IhWPeCEmKo=w1488-h989-no)
+![](https://lh3.googleusercontent.com/h5ef5-wRRo7lSzqB1pWXBogXeq_7nVcMkY__CyrWCrI=w800)
 
-![](https://lh3.googleusercontent.com/KrgZxvUvMB3FBkjVYsPZWd0rxDVJtQycRkfHJg5mYEs=w1489-h989-no)
+![](https://lh3.googleusercontent.com/osU95ndZ_HbS9-XGA8sprrJeyS6s2NLR15I3SZPgcck=w800)

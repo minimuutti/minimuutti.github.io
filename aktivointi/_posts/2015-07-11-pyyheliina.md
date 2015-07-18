@@ -13,11 +13,9 @@ Ensimmäisellä kerralla namit voi laittaa suoraan lattialle ja asettaa pienen p
 
 Ison pyyhkeen sisään olen yleensä laittanut 1-5 namia. Viikattu, rutattu tai rullattu pyyhe on tyhjennetty noin minuutissa.
 
-Nykyään rullaan kylpypyyhkeen pitkittäin pitkäksi pötköksi. Kannattaa käyttää jotain kuivia nameja. Pari kertaa olen laittanut nakin palan, eikä Miki tule silloin avanneeksi solmuja vaan se kuolaa pyyhkeen märäksi nakin kohdalta ja mussuttaa sen nesteenä pyyhkeen läpi.
+Nykyään rullaan kylpypyyhkeen pitkittäin pitkäksi pötköksi. Nami kannattaa laittaa siihen reunaan mistä aloittaa rullauksen, niin koiralla on sitten vähän enemmän tekemistä. Teen rullattuun pyyhkeeseen solmun ja nami on piilossa siellä rullassa sen solmun kohdalla, jolloin Miki joutuu avaamaan tuon solmun saadakseen namin. Laitan yleensä tämän päälle vielä toisen solmun mikäli pyyhe riittää. Tuplasolmitun pyyhkeen avaaminen kestää Mikiltä noin 5-15 minuuttia.
 
-Nami kannattaa laittaa siihen reunaan mistä aloittaa rullauksen, niin koiralla on sitten vähän enemmän tekemistä. Teen rullattuun pyyhkeeseen solmun ja nami on piilossa siellä rullassa sen solmun kohdalla, jolloin Miki joutuu avaamaan tuon solmun saadakseen namin. Laitan yleensä tämän päälle vielä toisen solmun mikäli pyyhe riittää.
-
-Tuplasolmitun pyyhkeen avaaminen kestää Mikiltä noin 5-15 minuuttia.
+Kannattaa käyttää jotain kuivia nameja. Pari kertaa olen laittanut nakin palan, eikä Miki tule silloin avanneeksi solmuja vaan se kuolaa pyyhkeen märäksi nakin kohdalta ja mussuttaa sen nesteenä pyyhkeen läpi. Kuivien namien kanssa pyyhettä ei myöskään tarvitse pestä jokaisen käytön jälkeen.
 
 ---
 
