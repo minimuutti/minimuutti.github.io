@@ -20,13 +20,14 @@ image:
 ![](https://lh3.googleusercontent.com/RdgfYjp0HzsSBcZR4BMOF3vtIUBvgqesm4a5G1q_z0s=w245)
 ![](https://lh3.googleusercontent.com/Si8eYmER7LukuQMbzqzaxoZnLGy408aG03PBwvwtsGg=w245)
 
-* paina nappia (esim. valokatkaisijaa tai ovikelloa)
-
-![](https://lh3.googleusercontent.com/ZCveg_fIVMFJoqPJZE6YwIOLUG_eVHosRr_N87BRvWA=w245)
-![](https://lh3.googleusercontent.com/WRnNzfp_d-9VO7npm6OstfZ02QEenlFgHVGQdsV5SWw=w245)
-
+* nouse (nousee seisomaan neljälle tassulle esim. istumasta)
 * ei
 * irti
+* Miki tai Miki täällä (tulee kutsuttaessa) (Miki tosin luulee, että sillä on useampiakin etunimiä, kuten nälkä, ruokaa tai syömään :D )
+
+![](https://lh3.googleusercontent.com/T46elXbFVrbxPl2Js7auyv2kZSJvAmdMLGmPS590cr4=w245)
+![](https://lh3.googleusercontent.com/DlfaBTOnwuIaODbVMsnLqCe1bobZQDHrxO07ziNwdJA=w245)
+
 * tassu (antaa oikean tassun)
 
 ![](https://lh3.googleusercontent.com/NwoEadbxY11lCtn8esH8S5DAeG7ye1VtxIUyXrpaxPY=w245)
@@ -43,6 +44,11 @@ image:
 * highfive (antaa yläfemman vasemmalla tassulla)
 
 ![](https://lh3.googleusercontent.com/iAclKdd_MoBaKrB6GNc6W8VOUHIAfG3T08Ry2m0IJts=w245)
+
+* paina nappia (esim. valokatkaisijaa tai ovikelloa)
+
+![](https://lh3.googleusercontent.com/ZCveg_fIVMFJoqPJZE6YwIOLUG_eVHosRr_N87BRvWA=w245)
+![](https://lh3.googleusercontent.com/WRnNzfp_d-9VO7npm6OstfZ02QEenlFgHVGQdsV5SWw=w245)
 
 * läpi (esteen alitus tai tunnelista läpi)
 
@@ -64,11 +70,22 @@ image:
 ![](https://lh3.googleusercontent.com/G73PqpKS2T6S4-sCOngSyEUzSpnFHOiN-T6hvU8rw8M=w245)
 ![](https://lh3.googleusercontent.com/n4Bog9kZkeORymOfXdOF8uCh4lSQYdHfjcSOVdoJseE=w245)
 
+* odota (odottaa jotain niin kauan että saa luvan ottaa, syödä tai mennä)
+
+![](https://lh3.googleusercontent.com/1ag025tJip4yM6pieZJ5Lltmemz3-jd3SJlvUy6ccWc=w245)
+![](https://lh3.googleusercontent.com/LD0JKrXYSPCQ5DlbrUBeKRPqjkstFIbi_jJ5L3ZWWpg=w245)
+
 * saa ottaa
 * saa syödä
+* ota vettä (menee juomaan)
+
+![](https://lh3.googleusercontent.com/ajRm1BWEJrDdvQnGOQ6SoNQgRZLQkLywyw_WIejwiBA=w245)
+
 * mennään
 * vasen (kääntyy kävellessä vasemmalle)
 * oikee (kääntyy kävellessä oikealle)
+* oikee reuna (siirtyy tien oikeaan reunaan)
+* käännytään (käännytään uukkari niin että Miki seuraa oikealla puolella)
 * hyppää (jonkun yli)
 * ylös (nousee esineen päälle tai jos esine on pieni niin pelkät etutassut riittää)
 
@@ -84,31 +101,22 @@ image:
 ![](https://lh3.googleusercontent.com/ZKG3q0bDt6f8yf5EsKT_D1dJDQvCQpoZUCcxHZ7uVC4=w245)
 ![](https://lh3.googleusercontent.com/oXIKJnDGmF8tnbnRIa0ziLtlYQVpos2lM2tYwL5axvM=w245)
 
-* nouse (nousee seisomaan neljälle tassulle esim. istumasta)
 * ota mukaan (ottaa kyseisen kepin tai lelun mukaan)
 
 ![](https://lh3.googleusercontent.com/FXrh1EHMjvEorrVpo4GdfezAkPrepeUC8OxZwZd35mY=w245)
 
 * väistä (antaa pyytäjälle tilaa, eli väistää johonkin suuntaan)
-* Miki tai Miki täällä (tulee kutsuttaessa) (Miki tosin luulee, että sillä on useampiakin etunimiä, kuten nälkä, ruokaa tai syömään :D )
+* ohi (tällä hetkellä ohittaa maassa olevat ruuat tai esineet > aiotaan myöhemmin yleistää myös muiden koirien ohitukseen)
+* sivulle (tulee oikealle sivulle)
+* seis (pysähtyy)
 
-![](https://lh3.googleusercontent.com/T46elXbFVrbxPl2Js7auyv2kZSJvAmdMLGmPS590cr4=w245)
-![](https://lh3.googleusercontent.com/DlfaBTOnwuIaODbVMsnLqCe1bobZQDHrxO07ziNwdJA=w245)
-
-* odota (odottaa jotain niin kauan että saa luvan ottaa, syödä tai mennä)
-
-![](https://lh3.googleusercontent.com/1ag025tJip4yM6pieZJ5Lltmemz3-jd3SJlvUy6ccWc=w245)
-![](https://lh3.googleusercontent.com/LD0JKrXYSPCQ5DlbrUBeKRPqjkstFIbi_jJ5L3ZWWpg=w245)
+![](https://lh3.googleusercontent.com/kwM7qRJ6RPFfBiJhzLzmYaV9Orqu2LdFTfmU9RRal7s=w245)
 
 * nuku vaan (jää nukkumaan tai makaamaan eikä esim. säntää mukaan toiseen huoneeseen)
 
 ![](https://lh3.googleusercontent.com/XwOTvMwWrTfgOTweQNJ7Ie-ItekuRxUVWWAIJDmzYyE=w245)
 
 * käy nukkumaan
-* ota vettä (menee juomaan)
-
-![](https://lh3.googleusercontent.com/ajRm1BWEJrDdvQnGOQ6SoNQgRZLQkLywyw_WIejwiBA=w245)
-
 * jatkakaa (jos joku ääni tai toiminto keskeytti jotain mitä Miki oli tekemässä ennen häiriötä niin se jatkaa sitä mitä oli alun perin tekemässä)
 * kaiva (kaivaa lumeen tai hiekkaan itsensä kokoisen kuopan hetkessä)
 
@@ -116,7 +124,6 @@ image:
 ![](https://lh3.googleusercontent.com/csOlK3W_xnVg551KCuycFfBcGVrFNd0LGo7xGXmS6Cs=w245)
 ![](https://lh3.googleusercontent.com/H_UHX9bOb-hwfv7tlKnWIqMXu2eQzP4Axfei_mrPPj4=w245)
 
-* käännytään (käännytään uukkari niin että Miki seuraa oikealla puolella)
 * hae pallo (hakee pallon)
 
 ![](https://lh3.googleusercontent.com/JnjcM-DuW7bea3dqLxvpjtGRoa6Jvh-yibWJ_nBELCE=w245)
@@ -187,7 +194,6 @@ image:
 ![](https://lh3.googleusercontent.com/dC0RPFqd2kCVAUf0OGA2i5E5egQhhHQrH_-LLRf7ITQ=w245)
 ![](https://lh3.googleusercontent.com/OSFi3p17bYXODb8RC85Fo8Hbm8vsM4IMjOJ0dFXe2Ow=w245)
 
-
 * mangusti (nousee istuma-asennosta istumaan pystyasentoon)
 
 ![](https://lh3.googleusercontent.com/8OjwWKDL2fhVFu8ssZ-hxJIHul93Tyv39qhBrgW_-1g=w245)
@@ -203,12 +209,5 @@ image:
 ![](https://lh3.googleusercontent.com/UKqYWPTSRH61-vK444yP2reyiHafdhvuN6GiaM2yf1k=w245)
 ![](https://lh3.googleusercontent.com/Y4iRaZ3gKptdx634n6GO2VtnrEwVnLGDdnlipHb1Vmw=w245)
 
-* ohi (tällä hetkellä ohittaa maassa olevat ruuat tai esineet > aiotaan myöhemmin yleistää myös muiden koirien ohitukseen)
-* sivulle (tulee oikealle sivulle)
-* seis (pysähtyy)
-
-![](https://lh3.googleusercontent.com/kwM7qRJ6RPFfBiJhzLzmYaV9Orqu2LdFTfmU9RRal7s=w245)
-
-* oikee reuna (siirtyy tien oikeaan reunaan)
 * kasi (pujottelee kasia jalkojen välissä)
 * vapaa
