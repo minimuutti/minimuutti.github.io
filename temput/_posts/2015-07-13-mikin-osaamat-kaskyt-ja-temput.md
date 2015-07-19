@@ -210,4 +210,7 @@ image:
 ![](https://lh3.googleusercontent.com/Y4iRaZ3gKptdx634n6GO2VtnrEwVnLGDdnlipHb1Vmw=w245)
 
 * kasi (pujottelee kasia jalkojen välissä)
+
+* nenää (vaihtaa nenää eli koskee nenään omalla kuonollaan, joko pyytäjän nenään tai nimetyn henkilön X nenään)
+
 * vapaa

@@ -15,7 +15,6 @@ image:
 ![](https://lh3.googleusercontent.com/0a1jAwlz-ooFbESzwrQ4FEd1QOlRkkFhQ2EjJ_MHOBw=w245)
 ![](https://lh3.googleusercontent.com/Nz9JDJjaY7qCLuVzKrhMj28rR5YcgNXE9EFZ8pgldN4=w245)
 
-* vaihdetaan nenää (tätä sheipataan, eli tarkoitus olisi että Miki koskee kirsulla pyytäjän nenään)
 * seiso (odotellaan siepattavia hetkiä)
 
 ![](https://lh3.googleusercontent.com/83GXrS90Xpz1VkNpW5X0XaxpiK4KKSsN6SpT5uZj5AA=w245)
