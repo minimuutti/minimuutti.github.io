@@ -9,12 +9,6 @@ image:
 
 ### Tässä on muutamia käskyjä ja temppuja mitä tällä hetkellä opetellaan
 
-* kosketa tassulla pyydettyä esinettä (koskettaa jo, mutta tähän ei ole lisätty käskyä, eikä esineiden nimiä ole vielä opetettu)
-
-![](https://lh3.googleusercontent.com/84eAphZaz6OzxiP9D29uk-q657WIeWQRDSX5-jitvyw=w245)
-![](https://lh3.googleusercontent.com/0a1jAwlz-ooFbESzwrQ4FEd1QOlRkkFhQ2EjJ_MHOBw=w245)
-![](https://lh3.googleusercontent.com/Nz9JDJjaY7qCLuVzKrhMj28rR5YcgNXE9EFZ8pgldN4=w245)
-
 * seiso (odotellaan siepattavia hetkiä)
 
 ![](https://lh3.googleusercontent.com/83GXrS90Xpz1VkNpW5X0XaxpiK4KKSsN6SpT5uZj5AA=w245)
@@ -30,7 +24,7 @@ image:
 ![](https://lh3.googleusercontent.com/LD0JKrXYSPCQ5DlbrUBeKRPqjkstFIbi_jJ5L3ZWWpg=w245)
 
 * dough! (laittaa tassun silmien eteen. Tassu menee jo silmille, muttei pysy siellä)
-* sheikkaa (ravista turkkia, odotellaan siepattavia hetkiä)
+* sheikkaa (ravista turkkia, odotellaan siepattavia hetkiä (pitäiskö tönästä kaveri järveen :D vitsi vitsi.. emmä oikeesti))
 
 ![](https://lh3.googleusercontent.com/0rYhiplcnHz_8Kyn9ixUlibz3TVvKr6wFn6UTOCeZAs=w245)
 ![](https://lh3.googleusercontent.com/5MH7mRDFbu9Pibh8d6PDYXFvtMDgYtXmvbGTKA-jI8o=w245)
@@ -43,7 +37,7 @@ image:
 
 ![](https://lh3.googleusercontent.com/80Dpnsu4A45acUuIOXFgCRUZuKt2CSBiR6CJ6RZAXp8=w245)
 
-* hyppää hulavanteen läpi (hyppää jo riman yli, mutta vannetta vasta harjoitellaan)
+* luuppi (hyppää renkaan tai hulavanteen läpi)
 * vilkuta (Mikin olisi tarkoitus vilkuttaa vasemmalla tassulla, mutta tässä ollaan vasta alkutekijöissä)
 * suoraan (eli ei käänny risteyksestä oikealle eikä vasemmalle)
 * pidä (pitää esinettä suussaan kunnes saa luvan irrottaa, nyt ottaa esineen suuhun muttei pidä sitä vielä, vaan esine putoaa heti)
