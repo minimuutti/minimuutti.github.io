@@ -151,6 +151,11 @@ image:
 ![](https://lh3.googleusercontent.com/pjlFzKhdMQTEfBPSE28AM6ABgHJoQ9qnRxdcgkQhbZU=w245)
 
 * alla (tulee minun alle jalkojen väliin ja kävelee siinä eteen tai taaksepäin kanssani)
+
+![](https://lh3.googleusercontent.com/PMs0Mu-pdLvcw9r84QiPMvuoUpecq8WdfZ9Yyedc8fw=w245-h171-no)
+![](https://lh3.googleusercontent.com/oy65J7blGGutNfFKeWP9CmWfjTHt3asTOpyuTSRh2Ek=w245-h171-no)
+![](https://lh3.googleusercontent.com/Jte9QzXnG9y3spsXP-v9ghYXQ34d9OdNxMOkzxkh5mU=w245-h171-no)
+
 * missä Janne (etsii Jannen ja menee luokse)
 * missä Susu (etsii Susun ja menee luokse)
 * puske (puskee pyytäjää päällään tai puske henkilöä X niin menee puskemaan tätä nimettyä henkilöä)
