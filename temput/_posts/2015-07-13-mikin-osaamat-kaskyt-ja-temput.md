@@ -211,5 +211,14 @@ image:
 
 * kasi (pujottelee kasia jalkojen välissä)
 * nenää (eskimopusu eli koskee nenään omalla kuonollaan, joko pyytäjän nenään tai nimetyn henkilön X nenään)
+
+![](https://lh3.googleusercontent.com/i9dgsuMl79uJqlbgROj39N-szApa8wIpjfFYcjQBoHQ=w245)
+
 * näytä (koskettaa tassulla pyydettyä esinettä)
+
+![](https://lh3.googleusercontent.com/prPpAD7p60pZTPZ0dGpwhdLTvFHWIx4-QQIIypdFWtc=w245)
+![](https://lh3.googleusercontent.com/M2GlcWPFGU9ga045OMmy8tZAIcq-J91Ju3ny9GKMpeo=w245)
+
 * vapaa
+
+![](https://lh3.googleusercontent.com/CDtDpWN9MrvaYDyZYBXbv-1WZahCQywUwp1yBYu0AgI=w245)
