@@ -27,4 +27,4 @@ Näitäkin tehtäviä voi vaikeuttaa ripustamalla namipaketin roikkumaan kaitees
 
 ![](https://lh3.googleusercontent.com/mTwsd3rhTmbEo0L4up4VRfbWKUmAfUeKnCN-xdGQ9ck=w800)
 
-![](https://lh3.googleusercontent.com/Wz0QCZIiaj1xlereqi_Mr86nlSNOVqEGBFGrLE55m7g=w800)
+![](https://lh3.googleusercontent.com/XizFBG4OmAxQIacl7EyMuJPumIU80hN47PGh23haEqg=w800)
