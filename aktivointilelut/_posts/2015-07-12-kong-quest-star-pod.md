@@ -15,6 +15,6 @@ Tämä lelu on tyhjä yleensä noin 2–3 minuutissa tai kanafileiden kanssa men
 
 ---
 
-![](https://lh3.googleusercontent.com/IFWTwLqG36JhuK_xBcQJRu8NYmSICHnGu4w4SCJrsNY=w800)
+[![](https://lh3.googleusercontent.com/IFWTwLqG36JhuK_xBcQJRu8NYmSICHnGu4w4SCJrsNY=w800)](https://lh3.googleusercontent.com/IFWTwLqG36JhuK_xBcQJRu8NYmSICHnGu4w4SCJrsNY=s0)
 
-![](https://lh3.googleusercontent.com/N1U72dZkkBl3hF01ay2GJ2dBs_5F1uJzbNchjvZMujY=w800)
+[![](https://lh3.googleusercontent.com/N1U72dZkkBl3hF01ay2GJ2dBs_5F1uJzbNchjvZMujY=w800)](https://lh3.googleusercontent.com/N1U72dZkkBl3hF01ay2GJ2dBs_5F1uJzbNchjvZMujY=s0)

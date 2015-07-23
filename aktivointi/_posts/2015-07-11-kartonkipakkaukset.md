@@ -19,12 +19,12 @@ Näitäkin tehtäviä voi vaikeuttaa ripustamalla namipaketin roikkumaan kaitees
 
 ---
 
-![](https://lh3.googleusercontent.com/U-ZijnUPEYXn1RWAJ5pYCjWMHFTntAx31S27X_PZe4o=w800)
+[![](https://lh3.googleusercontent.com/U-ZijnUPEYXn1RWAJ5pYCjWMHFTntAx31S27X_PZe4o=w800)](https://lh3.googleusercontent.com/U-ZijnUPEYXn1RWAJ5pYCjWMHFTntAx31S27X_PZe4o=s0)
 
-![](https://lh3.googleusercontent.com/1DKg9sQq2y6JU4QeQr0N6MZ_GSYIcYzhwEJSrz0KpLw=w800)
+[![](https://lh3.googleusercontent.com/1DKg9sQq2y6JU4QeQr0N6MZ_GSYIcYzhwEJSrz0KpLw=w800)](https://lh3.googleusercontent.com/1DKg9sQq2y6JU4QeQr0N6MZ_GSYIcYzhwEJSrz0KpLw=s0)
 
-![](https://lh3.googleusercontent.com/EarnIhphFDX0u3QrojcknkMGBHOMs3RUQNT8KLfySZ8=w800)
+[![](https://lh3.googleusercontent.com/EarnIhphFDX0u3QrojcknkMGBHOMs3RUQNT8KLfySZ8=w800)](https://lh3.googleusercontent.com/EarnIhphFDX0u3QrojcknkMGBHOMs3RUQNT8KLfySZ8=s0)
 
-![](https://lh3.googleusercontent.com/mTwsd3rhTmbEo0L4up4VRfbWKUmAfUeKnCN-xdGQ9ck=w800)
+[![](https://lh3.googleusercontent.com/mTwsd3rhTmbEo0L4up4VRfbWKUmAfUeKnCN-xdGQ9ck=w800)](https://lh3.googleusercontent.com/mTwsd3rhTmbEo0L4up4VRfbWKUmAfUeKnCN-xdGQ9ck=s0)
 
-![](https://lh3.googleusercontent.com/XizFBG4OmAxQIacl7EyMuJPumIU80hN47PGh23haEqg=w800)
+[![](https://lh3.googleusercontent.com/XizFBG4OmAxQIacl7EyMuJPumIU80hN47PGh23haEqg=w800)](https://lh3.googleusercontent.com/XizFBG4OmAxQIacl7EyMuJPumIU80hN47PGh23haEqg=s0)

@@ -13,10 +13,10 @@ Alkuun tämän lelun tyhjentämiseen saattoi mennä jopa 15 minuuttia. Nykyään
 
 ---
 
-![](https://lh3.googleusercontent.com/uDqNwRJW0f6IUmXF3eBLQb9nMk4dkc2YryQfj1LGuOQ=w800)
+[![](https://lh3.googleusercontent.com/uDqNwRJW0f6IUmXF3eBLQb9nMk4dkc2YryQfj1LGuOQ=w800)](https://lh3.googleusercontent.com/uDqNwRJW0f6IUmXF3eBLQb9nMk4dkc2YryQfj1LGuOQ=s0)
 
-![](https://lh3.googleusercontent.com/keCqSTec0irgjUA0oKJq5IBmDRpz4cwGysp2gU6k42s=w800)
+[![](https://lh3.googleusercontent.com/keCqSTec0irgjUA0oKJq5IBmDRpz4cwGysp2gU6k42s=w800)](https://lh3.googleusercontent.com/keCqSTec0irgjUA0oKJq5IBmDRpz4cwGysp2gU6k42s=s0)
 
-![](https://lh3.googleusercontent.com/xeCRmJ8JZEUgsf2MhREpq9S9AhyYu9XfFfqtS7Lg3Xw=w800)
+[![](https://lh3.googleusercontent.com/xeCRmJ8JZEUgsf2MhREpq9S9AhyYu9XfFfqtS7Lg3Xw=w800)](https://lh3.googleusercontent.com/xeCRmJ8JZEUgsf2MhREpq9S9AhyYu9XfFfqtS7Lg3Xw=s0)
 
-![](https://lh3.googleusercontent.com/TBEZaTJJapTS7z4rCwIBblRp0QEPDXZLdajeyjrwPxg=w800)
+[![](https://lh3.googleusercontent.com/TBEZaTJJapTS7z4rCwIBblRp0QEPDXZLdajeyjrwPxg=w800)](https://lh3.googleusercontent.com/TBEZaTJJapTS7z4rCwIBblRp0QEPDXZLdajeyjrwPxg=s0)

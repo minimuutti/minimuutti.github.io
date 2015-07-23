@@ -15,6 +15,6 @@ Wobblerin sisään voisi kokeilla laittaa myös esim. tennispallon tai useamman 
 
 ---
 
-![](https://lh3.googleusercontent.com/xDyU1bdgi9uohEdw0ilZRfAC287y6ROZcoF6RIDpqF0=w800)
+[![](https://lh3.googleusercontent.com/xDyU1bdgi9uohEdw0ilZRfAC287y6ROZcoF6RIDpqF0=w800)](https://lh3.googleusercontent.com/xDyU1bdgi9uohEdw0ilZRfAC287y6ROZcoF6RIDpqF0=s0)
 
-![](https://lh3.googleusercontent.com/N6nv6Ydzw_dMGZbyKHqiccn-4PE0P-FV-iUmhAboT08=w800)
+[![](https://lh3.googleusercontent.com/N6nv6Ydzw_dMGZbyKHqiccn-4PE0P-FV-iUmhAboT08=w800)](https://lh3.googleusercontent.com/N6nv6Ydzw_dMGZbyKHqiccn-4PE0P-FV-iUmhAboT08=s0)

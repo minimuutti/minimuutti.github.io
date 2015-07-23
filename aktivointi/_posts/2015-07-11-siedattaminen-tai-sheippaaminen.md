@@ -17,6 +17,6 @@ En pidä koirien inhimillistämisestä, enkä suosittele koiralle puettavaksi mi
 
 ---
 
-![](https://lh3.googleusercontent.com/g2CQ_X8KeeHhr3W5n8O5tbOk5SSRdo_zCyOTxPZDqQI=w800)
+[![](https://lh3.googleusercontent.com/g2CQ_X8KeeHhr3W5n8O5tbOk5SSRdo_zCyOTxPZDqQI=w800)](https://lh3.googleusercontent.com/g2CQ_X8KeeHhr3W5n8O5tbOk5SSRdo_zCyOTxPZDqQI=s0)
 
-![](https://lh3.googleusercontent.com/EDVNzD7Dq2gSLDUXuk9RNWCcE0suW4qu0uxGgf48eN4=w800)
+[![](https://lh3.googleusercontent.com/EDVNzD7Dq2gSLDUXuk9RNWCcE0suW4qu0uxGgf48eN4=w800)](https://lh3.googleusercontent.com/EDVNzD7Dq2gSLDUXuk9RNWCcE0suW4qu0uxGgf48eN4=s0)

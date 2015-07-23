@@ -15,6 +15,6 @@ Myöhemmin on tarkoitus saada Miki odottamaan lupaa ottaa sen nenän päälle as
 
 ---
 
-![](https://lh3.googleusercontent.com/1QCvHQdyMKBks0uROzBJbnKo5iY5kTAIS_FXmeevTYo=w800)
+[![](https://lh3.googleusercontent.com/1QCvHQdyMKBks0uROzBJbnKo5iY5kTAIS_FXmeevTYo=w800)](https://lh3.googleusercontent.com/1QCvHQdyMKBks0uROzBJbnKo5iY5kTAIS_FXmeevTYo=s0)
 
-![](https://lh3.googleusercontent.com/krzkcFlQsrfH7N-o80COcERrbhVCt4jO82gCbT24jf4=w800)
+[![](https://lh3.googleusercontent.com/krzkcFlQsrfH7N-o80COcERrbhVCt4jO82gCbT24jf4=w800)](https://lh3.googleusercontent.com/krzkcFlQsrfH7N-o80COcERrbhVCt4jO82gCbT24jf4=s0)

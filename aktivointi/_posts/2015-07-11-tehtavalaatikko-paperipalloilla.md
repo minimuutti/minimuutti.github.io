@@ -16,14 +16,14 @@ Ensimmäisellä kerralla kannattaa aloittaa paksulla paperilla (esim. aikakausle
 
 ---
 
-![](https://lh3.googleusercontent.com/hTm-z04GI6pMcdabLEeZooYh3t2VwYfK51cATp5EmW0=w800)
+[![](https://lh3.googleusercontent.com/hTm-z04GI6pMcdabLEeZooYh3t2VwYfK51cATp5EmW0=w800)](https://lh3.googleusercontent.com/hTm-z04GI6pMcdabLEeZooYh3t2VwYfK51cATp5EmW0=s0)
 
-![](https://lh3.googleusercontent.com/hPJ6slE21VwC1vQtfLsrzCfPAPQgihDpycZ2Bnrt_Ks=w800)
+[![](https://lh3.googleusercontent.com/hPJ6slE21VwC1vQtfLsrzCfPAPQgihDpycZ2Bnrt_Ks=w800)](https://lh3.googleusercontent.com/hPJ6slE21VwC1vQtfLsrzCfPAPQgihDpycZ2Bnrt_Ks=s0)
 
-![](https://lh3.googleusercontent.com/jn5SpKcgafvKW2o8X8kpBFkWSG8c9zGTFhcBcJJd5Ic=w800)
+[![](https://lh3.googleusercontent.com/jn5SpKcgafvKW2o8X8kpBFkWSG8c9zGTFhcBcJJd5Ic=w800)](https://lh3.googleusercontent.com/jn5SpKcgafvKW2o8X8kpBFkWSG8c9zGTFhcBcJJd5Ic=s0)
 
-![](https://lh3.googleusercontent.com/MQTG-AsD8qNRpk53FVuwZggXUevK4c7jGt4KLSCp9HU=w800)
+[![](https://lh3.googleusercontent.com/MQTG-AsD8qNRpk53FVuwZggXUevK4c7jGt4KLSCp9HU=w800)](https://lh3.googleusercontent.com/MQTG-AsD8qNRpk53FVuwZggXUevK4c7jGt4KLSCp9HU=s0)
 
-![](https://lh3.googleusercontent.com/lfmvt21TSY7rtu3OPB3MYTL7_vJbKjXKTn7uapLOZrM=w800)
+[![](https://lh3.googleusercontent.com/lfmvt21TSY7rtu3OPB3MYTL7_vJbKjXKTn7uapLOZrM=w800)](https://lh3.googleusercontent.com/lfmvt21TSY7rtu3OPB3MYTL7_vJbKjXKTn7uapLOZrM=s0)
 
-![](https://lh3.googleusercontent.com/OVc9lRA4p_MKnIJyqORpnQkUxPjbU7lqNcHOKcPMRHY=w800)
+[![](https://lh3.googleusercontent.com/OVc9lRA4p_MKnIJyqORpnQkUxPjbU7lqNcHOKcPMRHY=w800)](https://lh3.googleusercontent.com/OVc9lRA4p_MKnIJyqORpnQkUxPjbU7lqNcHOKcPMRHY=s0)

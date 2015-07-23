@@ -17,4 +17,4 @@ Oliskohan tähän farkun tuhoamiseen kulunut Mikiltä noin 5 minuuttia.
 
 ---
 
-![](https://lh3.googleusercontent.com/yV6J3lK5mA_aTSiwER_BLF_CrsbM3niXe71s97kHww4=w800)
+[![](https://lh3.googleusercontent.com/yV6J3lK5mA_aTSiwER_BLF_CrsbM3niXe71s97kHww4=w800)](https://lh3.googleusercontent.com/yV6J3lK5mA_aTSiwER_BLF_CrsbM3niXe71s97kHww4=s0)

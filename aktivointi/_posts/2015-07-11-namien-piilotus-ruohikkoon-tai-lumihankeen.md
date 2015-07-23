@@ -17,8 +17,8 @@ Ulkona käytän aina parempia nameja kuin sisällä, jotta Mikin motivaatio etsi
 
 ---
 
-![](https://lh3.googleusercontent.com/KNMOWAwRF4NV1dPEtHi3bfl7qJwYKGLnynW94fvU4Zk=w800)
+[![](https://lh3.googleusercontent.com/KNMOWAwRF4NV1dPEtHi3bfl7qJwYKGLnynW94fvU4Zk=w800)](https://lh3.googleusercontent.com/KNMOWAwRF4NV1dPEtHi3bfl7qJwYKGLnynW94fvU4Zk=s0)
 
-![](https://lh3.googleusercontent.com/-q0Yktk_agZt_avoAsgIabya1b3dTa1MerSPpDM_oX0=w800)
+[![](https://lh3.googleusercontent.com/-q0Yktk_agZt_avoAsgIabya1b3dTa1MerSPpDM_oX0=w800)](https://lh3.googleusercontent.com/-q0Yktk_agZt_avoAsgIabya1b3dTa1MerSPpDM_oX0=s0)
 
-![](https://lh3.googleusercontent.com/XWmS04aaoSx8OFRP2yUz7MN4_wB80-7zoqk4Vfgocw=w800)
+[![](https://lh3.googleusercontent.com/XWmS04aaoSx8OFRP2yUz7MN4_wB80-7zoqk4Vfgocw=w800)](https://lh3.googleusercontent.com/XWmS04aaoSx8OFRP2yUz7MN4_wB80-7zoqk4Vfgocw=s0)

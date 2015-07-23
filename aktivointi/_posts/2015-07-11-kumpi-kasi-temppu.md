@@ -13,7 +13,7 @@ Sinällään tämä ei ole mikään vaativa temppu, mutta jos 50–100 nappulaak
 
 ---
 
-![](https://lh3.googleusercontent.com/qIartYR8_n5Oam6oASJMGgTspMb512pSNE9CPmS-rFg=w800)
+[![](https://lh3.googleusercontent.com/qIartYR8_n5Oam6oASJMGgTspMb512pSNE9CPmS-rFg=w800)](https://lh3.googleusercontent.com/qIartYR8_n5Oam6oASJMGgTspMb512pSNE9CPmS-rFg=s0)
 
-![](https://lh3.googleusercontent.com/XhNLMCSmamL1-TCLRLbh1L1R6nTEGBvIKrFaPEWMr9U=w800)
+[![](https://lh3.googleusercontent.com/XhNLMCSmamL1-TCLRLbh1L1R6nTEGBvIKrFaPEWMr9U=w800)](https://lh3.googleusercontent.com/XhNLMCSmamL1-TCLRLbh1L1R6nTEGBvIKrFaPEWMr9U=s0)
 

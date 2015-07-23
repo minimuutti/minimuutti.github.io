@@ -15,10 +15,10 @@ Ensimmäisellä kerralla oli vain kaksi purkkia ilman teippiä ja silloin Mikilt
 
 ---
 
-![](https://lh3.googleusercontent.com/p19iLoKC4eG9Xh0j9cFJiF4dLEbYShreMIdfSCEQc0E=w800)
+[![](https://lh3.googleusercontent.com/p19iLoKC4eG9Xh0j9cFJiF4dLEbYShreMIdfSCEQc0E=w800)](https://lh3.googleusercontent.com/p19iLoKC4eG9Xh0j9cFJiF4dLEbYShreMIdfSCEQc0E=s0)
 
-![](https://lh3.googleusercontent.com/m_BmDOuA-VX51C3lQ2hHfSP4Btu1QZ8i048GzehU5Xc=w800)
+[![](https://lh3.googleusercontent.com/m_BmDOuA-VX51C3lQ2hHfSP4Btu1QZ8i048GzehU5Xc=w800)](https://lh3.googleusercontent.com/m_BmDOuA-VX51C3lQ2hHfSP4Btu1QZ8i048GzehU5Xc=s0)
 
-![](https://lh3.googleusercontent.com/lIkiViKsYUqNQ8LTFtxOomsiMSw8OsALNafHddE6EN4=w800)
+[![](https://lh3.googleusercontent.com/lIkiViKsYUqNQ8LTFtxOomsiMSw8OsALNafHddE6EN4=w800)](https://lh3.googleusercontent.com/lIkiViKsYUqNQ8LTFtxOomsiMSw8OsALNafHddE6EN4=s0)
 
-![](https://lh3.googleusercontent.com/mWkiW-liO1Sus3X8OpRRYcBQYc6WuKJBkEySUeYSaaI=w800)
+[![](https://lh3.googleusercontent.com/mWkiW-liO1Sus3X8OpRRYcBQYc6WuKJBkEySUeYSaaI=w800)](https://lh3.googleusercontent.com/mWkiW-liO1Sus3X8OpRRYcBQYc6WuKJBkEySUeYSaaI=s0)

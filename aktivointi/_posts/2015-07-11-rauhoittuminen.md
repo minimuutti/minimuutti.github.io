@@ -15,8 +15,8 @@ Tätä harjoittelemme Mikin kanssa sitten myöhemmin, kun on sen aika. Nyt ensin
 
 ---
 
-![](https://lh3.googleusercontent.com/oDv51m89h5lYRBR0bUqmpxSzoEVVwBM8GUsBbjMAPnc=w800)
+[![](https://lh3.googleusercontent.com/oDv51m89h5lYRBR0bUqmpxSzoEVVwBM8GUsBbjMAPnc=w800)](https://lh3.googleusercontent.com/oDv51m89h5lYRBR0bUqmpxSzoEVVwBM8GUsBbjMAPnc=s0)
 
-![](https://lh3.googleusercontent.com/L01K-f7_lvLBMh8qKPBcpoZ_DMqwc54JZDEe9AY3MqM=w800)
+[![](https://lh3.googleusercontent.com/L01K-f7_lvLBMh8qKPBcpoZ_DMqwc54JZDEe9AY3MqM=w800)](https://lh3.googleusercontent.com/L01K-f7_lvLBMh8qKPBcpoZ_DMqwc54JZDEe9AY3MqM=s0)
 
-![](https://lh3.googleusercontent.com/TXSflQVWlu6rYuxLjUcdmsD8N6cElgNwLK9XHB3Rg4U=w800)
+[![](https://lh3.googleusercontent.com/TXSflQVWlu6rYuxLjUcdmsD8N6cElgNwLK9XHB3Rg4U=w800)](https://lh3.googleusercontent.com/TXSflQVWlu6rYuxLjUcdmsD8N6cElgNwLK9XHB3Rg4U=s0)

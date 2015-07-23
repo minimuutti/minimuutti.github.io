@@ -17,10 +17,10 @@ Talvella kun illalla on pilkkopimeää (tai huoneessa minkä saa täysin pimeäk
 
 ---
 
-![](https://lh3.googleusercontent.com/6pdSJZA21RVCoC76XtYAFK-AjP4wiPCuy9rffbYzVRc=w800)
+[![](https://lh3.googleusercontent.com/6pdSJZA21RVCoC76XtYAFK-AjP4wiPCuy9rffbYzVRc=w800)](https://lh3.googleusercontent.com/6pdSJZA21RVCoC76XtYAFK-AjP4wiPCuy9rffbYzVRc=s0)
 
-![](https://lh3.googleusercontent.com/qbuGCM9DF1w8UfqphLg4TewD5_Sy1YNnGEEEx4IZzXc=w800)
+[![](https://lh3.googleusercontent.com/qbuGCM9DF1w8UfqphLg4TewD5_Sy1YNnGEEEx4IZzXc=w800)](https://lh3.googleusercontent.com/qbuGCM9DF1w8UfqphLg4TewD5_Sy1YNnGEEEx4IZzXc=s0)
 
-![](https://lh3.googleusercontent.com/Y8W4sTRWbFaDiH4MMhVuP8mHhuZ_SKDqxoNMjv8vvYM=w800)
+[![](https://lh3.googleusercontent.com/Y8W4sTRWbFaDiH4MMhVuP8mHhuZ_SKDqxoNMjv8vvYM=w800)](https://lh3.googleusercontent.com/Y8W4sTRWbFaDiH4MMhVuP8mHhuZ_SKDqxoNMjv8vvYM=s0)
 
-![](https://lh3.googleusercontent.com/w4peSg4N18c_uNAo1U08kiiheErrOjYtfRDB3p19oio=w800)
+[![](https://lh3.googleusercontent.com/w4peSg4N18c_uNAo1U08kiiheErrOjYtfRDB3p19oio=w800)](https://lh3.googleusercontent.com/w4peSg4N18c_uNAo1U08kiiheErrOjYtfRDB3p19oio=s0)

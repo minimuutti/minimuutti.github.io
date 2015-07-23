@@ -15,16 +15,16 @@ Kannattaa kuitenkin aloittaa helpoimmista. Ja aina kannattaa varmistaa ensin, et
 
 ---
 
-![](https://lh3.googleusercontent.com/JWc2OryEYaIpA6Z11Qp4CWgXIQ8725T6ZMayOsjw4D4=w800)
+[![](https://lh3.googleusercontent.com/JWc2OryEYaIpA6Z11Qp4CWgXIQ8725T6ZMayOsjw4D4=w800)](https://lh3.googleusercontent.com/JWc2OryEYaIpA6Z11Qp4CWgXIQ8725T6ZMayOsjw4D4=s0)
 
-![](https://lh3.googleusercontent.com/HYsHImNancgMEwdMBClEGmxiEAE6SE-BPKmhR9MjNkk=w800)
+[![](https://lh3.googleusercontent.com/HYsHImNancgMEwdMBClEGmxiEAE6SE-BPKmhR9MjNkk=w800)](https://lh3.googleusercontent.com/HYsHImNancgMEwdMBClEGmxiEAE6SE-BPKmhR9MjNkk=s0)
 
-![](https://lh3.googleusercontent.com/RFA7b304T1131j_VmTc3u92Osk8WBoFMg9KmgFTA7EI=w800)
+[![](https://lh3.googleusercontent.com/RFA7b304T1131j_VmTc3u92Osk8WBoFMg9KmgFTA7EI=w800)](https://lh3.googleusercontent.com/RFA7b304T1131j_VmTc3u92Osk8WBoFMg9KmgFTA7EI=s0)
 
-![](https://lh3.googleusercontent.com/QurtI7EcQdqAf3Qene95pfPjYRkhGdZTSiMZoRVRZXI=w800)
+[![](https://lh3.googleusercontent.com/QurtI7EcQdqAf3Qene95pfPjYRkhGdZTSiMZoRVRZXI=w800)](https://lh3.googleusercontent.com/QurtI7EcQdqAf3Qene95pfPjYRkhGdZTSiMZoRVRZXI=s0)
 
-![](https://lh3.googleusercontent.com/3Hfeq8QZhxqF4jSEYBsAxutzMPfxKX9LSPXpXOoXLGQ=w800)
+[![](https://lh3.googleusercontent.com/3Hfeq8QZhxqF4jSEYBsAxutzMPfxKX9LSPXpXOoXLGQ=w800)](https://lh3.googleusercontent.com/3Hfeq8QZhxqF4jSEYBsAxutzMPfxKX9LSPXpXOoXLGQ=s0)
 
-![](https://lh3.googleusercontent.com/TIb2ANG8of9tMAmXYc7hb0z-DeR5_EJiErl0t3bKDLs=w800)
+[![](https://lh3.googleusercontent.com/TIb2ANG8of9tMAmXYc7hb0z-DeR5_EJiErl0t3bKDLs=w800)](https://lh3.googleusercontent.com/TIb2ANG8of9tMAmXYc7hb0z-DeR5_EJiErl0t3bKDLs=s0)
 
-![](https://lh3.googleusercontent.com/k3YMLzEuum1LEXfRmjIMi1uDHj3ebumQsSkBdMbl-xA=w800)
+[![](https://lh3.googleusercontent.com/k3YMLzEuum1LEXfRmjIMi1uDHj3ebumQsSkBdMbl-xA=w800)](https://lh3.googleusercontent.com/k3YMLzEuum1LEXfRmjIMi1uDHj3ebumQsSkBdMbl-xA=s0)

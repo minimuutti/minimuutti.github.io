@@ -13,4 +13,4 @@ Ensimmäisellä kerralla laitoin tähän leluun keitetyn kivipiiran paloja, kun 
 
 ---
 
-![](https://lh3.googleusercontent.com/NxrV3EnDb4ZaODiH0FIe4lDJF4Gcm_Cjp6ukOhDzMNg=w800)
+[![](https://lh3.googleusercontent.com/NxrV3EnDb4ZaODiH0FIe4lDJF4Gcm_Cjp6ukOhDzMNg=w800)](https://lh3.googleusercontent.com/NxrV3EnDb4ZaODiH0FIe4lDJF4Gcm_Cjp6ukOhDzMNg=s0)

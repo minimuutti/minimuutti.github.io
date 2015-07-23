@@ -15,8 +15,8 @@ Ensimmäisellä kerralla Miki jaksoi käännellä noita lehtiä ja aikaa kului n
 
 ---
 
-![](https://lh3.googleusercontent.com/auVahgM8HcL0mA3uRoBQKlPbDURg-cjAJpzMZSfKmh8=w800)
+[![](https://lh3.googleusercontent.com/auVahgM8HcL0mA3uRoBQKlPbDURg-cjAJpzMZSfKmh8=w800)](https://lh3.googleusercontent.com/auVahgM8HcL0mA3uRoBQKlPbDURg-cjAJpzMZSfKmh8=s0)
 
-![](https://lh3.googleusercontent.com/tpe96-6Turu_I2W-80BjHPUmdIVYirnQocqeJGFeskQ=w800)
+[![](https://lh3.googleusercontent.com/tpe96-6Turu_I2W-80BjHPUmdIVYirnQocqeJGFeskQ=w800)](https://lh3.googleusercontent.com/tpe96-6Turu_I2W-80BjHPUmdIVYirnQocqeJGFeskQ=s0)
 
-![](https://lh3.googleusercontent.com/9vSY_h5uqfSscNaF_Brs4l4Rr9moGPjNEiOapGa8_ZU=w800)
+[![](https://lh3.googleusercontent.com/9vSY_h5uqfSscNaF_Brs4l4Rr9moGPjNEiOapGa8_ZU=w800)](https://lh3.googleusercontent.com/9vSY_h5uqfSscNaF_Brs4l4Rr9moGPjNEiOapGa8_ZU=s0)

@@ -15,6 +15,6 @@ Ajattelin vielä yrittää vaikeuttaa tätä tehtävää laittamalla isomman laa
 
 ---
 
-![](https://lh3.googleusercontent.com/iwLvZH3ZwNqRChgwKbBKG7qoYLj9hSCxcALjUma0Jlo=w800)
+[![](https://lh3.googleusercontent.com/iwLvZH3ZwNqRChgwKbBKG7qoYLj9hSCxcALjUma0Jlo=w800)](https://lh3.googleusercontent.com/iwLvZH3ZwNqRChgwKbBKG7qoYLj9hSCxcALjUma0Jlo=s0)
 
-![](https://lh3.googleusercontent.com/j9ZgV5DmNXBmsfAk-tGgaOUThBOSuMbEpZJgb8uCE7Y=w800)
+[![](https://lh3.googleusercontent.com/j9ZgV5DmNXBmsfAk-tGgaOUThBOSuMbEpZJgb8uCE7Y=w800)](https://lh3.googleusercontent.com/j9ZgV5DmNXBmsfAk-tGgaOUThBOSuMbEpZJgb8uCE7Y=s0)

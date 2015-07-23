@@ -15,10 +15,10 @@ Eli meillä on sen kokoinen pahvilaatikko, joka täyttyy noin puoliväliin kun k
 
 ---
 
-![](https://lh3.googleusercontent.com/yCArB6roQ68dNPvo19fCThgEnb5nLwwmzblY1K6jmfw=w800)
+[![](https://lh3.googleusercontent.com/yCArB6roQ68dNPvo19fCThgEnb5nLwwmzblY1K6jmfw=w800)](https://lh3.googleusercontent.com/yCArB6roQ68dNPvo19fCThgEnb5nLwwmzblY1K6jmfw=s0)
 
-![](https://lh3.googleusercontent.com/GsFjWLV5p4Iu2UYFK7FFPaCGgxugMA6jSoS_3o4S3bw=w800)
+[![](https://lh3.googleusercontent.com/GsFjWLV5p4Iu2UYFK7FFPaCGgxugMA6jSoS_3o4S3bw=w800)](https://lh3.googleusercontent.com/GsFjWLV5p4Iu2UYFK7FFPaCGgxugMA6jSoS_3o4S3bw=s0)
 
-![](https://lh3.googleusercontent.com/9iREG1lw6tUAWvtZMfNPEGMu94it41t68BSyohPJBxM=w800)
+[![](https://lh3.googleusercontent.com/9iREG1lw6tUAWvtZMfNPEGMu94it41t68BSyohPJBxM=w800)](https://lh3.googleusercontent.com/9iREG1lw6tUAWvtZMfNPEGMu94it41t68BSyohPJBxM=s0)
 
-![](https://lh3.googleusercontent.com/YswVQDHTxbO6j50fhvStUI0Fb13ICsGV8ug4XbfBZg=w800)
+[![](https://lh3.googleusercontent.com/YswVQDHTxbO6j50fhvStUI0Fb13ICsGV8ug4XbfBZg=w800)](https://lh3.googleusercontent.com/YswVQDHTxbO6j50fhvStUI0Fb13ICsGV8ug4XbfBZg=s0)

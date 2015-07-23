@@ -15,14 +15,14 @@ Nappuloiden tyhjentäminen tästä Kongista kestää Mikiltä noin 1-2 minuuttia
 
 ---
 
-![](https://lh3.googleusercontent.com/DGSgHXcysGRVkzoV8mhMIIbV96QHcrw2TB1vk66RBVo=w800)
+[![](https://lh3.googleusercontent.com/DGSgHXcysGRVkzoV8mhMIIbV96QHcrw2TB1vk66RBVo=w800)](https://lh3.googleusercontent.com/DGSgHXcysGRVkzoV8mhMIIbV96QHcrw2TB1vk66RBVo=s0)
 
-![](https://lh3.googleusercontent.com/PrkrUntADSe-tKMCQSBcpvekE7ihjuzmiX0OaNbDWBc=w800)
+[![](https://lh3.googleusercontent.com/PrkrUntADSe-tKMCQSBcpvekE7ihjuzmiX0OaNbDWBc=w800)](https://lh3.googleusercontent.com/PrkrUntADSe-tKMCQSBcpvekE7ihjuzmiX0OaNbDWBc=s0)
 
-![](https://lh3.googleusercontent.com/z_LbhXD9ma-l-i9ZQ0juQlrFsKsNaIGw6-2ee8bQO3E=w800)
+[![](https://lh3.googleusercontent.com/z_LbhXD9ma-l-i9ZQ0juQlrFsKsNaIGw6-2ee8bQO3E=w800)](https://lh3.googleusercontent.com/z_LbhXD9ma-l-i9ZQ0juQlrFsKsNaIGw6-2ee8bQO3E=s0)
 
-![](https://lh3.googleusercontent.com/WTyMFjDGpgq-XjtSgWyZUT74yB9Hmo3EeOXuht-p994=w800)
+[![](https://lh3.googleusercontent.com/WTyMFjDGpgq-XjtSgWyZUT74yB9Hmo3EeOXuht-p994=w800)](https://lh3.googleusercontent.com/WTyMFjDGpgq-XjtSgWyZUT74yB9Hmo3EeOXuht-p994=s0)
 
-![](https://lh3.googleusercontent.com/wccYYyDWMvJQP2_Q1RjmlmuzwUJfUecTbwkXR0DMvXM=w800)
+[![](https://lh3.googleusercontent.com/wccYYyDWMvJQP2_Q1RjmlmuzwUJfUecTbwkXR0DMvXM=w800)](https://lh3.googleusercontent.com/wccYYyDWMvJQP2_Q1RjmlmuzwUJfUecTbwkXR0DMvXM=s0)
 
-![](https://lh3.googleusercontent.com/3t9Pdljq-ZPaQtWFsM6-NGDjZCFAvoX6YPJm3CdQG4A=w800)
+[![](https://lh3.googleusercontent.com/3t9Pdljq-ZPaQtWFsM6-NGDjZCFAvoX6YPJm3CdQG4A=w800)](https://lh3.googleusercontent.com/3t9Pdljq-ZPaQtWFsM6-NGDjZCFAvoX6YPJm3CdQG4A=s0)

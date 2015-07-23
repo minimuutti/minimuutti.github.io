@@ -15,4 +15,4 @@ Northmaten kuppi on sinällään ihan hyvä ja jos siitä antaa täyden annoksen
 
 ---
 
-![](https://lh3.googleusercontent.com/S-Gqb3q4tuQTlByRkKYfpwBBzaDwC3D5DVM257IFSVE=w800)
+[![](https://lh3.googleusercontent.com/S-Gqb3q4tuQTlByRkKYfpwBBzaDwC3D5DVM257IFSVE=w800)](https://lh3.googleusercontent.com/S-Gqb3q4tuQTlByRkKYfpwBBzaDwC3D5DVM257IFSVE=s0)

@@ -15,6 +15,6 @@ Jos koirasi ei pidä vedestä tai aristelee laittaa kuonoaan veden alle, niin ka
 
 ---
 
-![](https://lh3.googleusercontent.com/QKip0qSSaKbph7gkNUh8mWvovqX6-D9P8aRWAd6z3-Y=w800)
+[![](https://lh3.googleusercontent.com/QKip0qSSaKbph7gkNUh8mWvovqX6-D9P8aRWAd6z3-Y=w800)](https://lh3.googleusercontent.com/QKip0qSSaKbph7gkNUh8mWvovqX6-D9P8aRWAd6z3-Y=s0)
 
-![](https://lh3.googleusercontent.com/DJGwG4onTXIghaz1Y1qfGrHf6L5bMAm92AA0dbEgkk0=w800)
+[![](https://lh3.googleusercontent.com/DJGwG4onTXIghaz1Y1qfGrHf6L5bMAm92AA0dbEgkk0=w800)](https://lh3.googleusercontent.com/DJGwG4onTXIghaz1Y1qfGrHf6L5bMAm92AA0dbEgkk0=s0)

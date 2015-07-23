@@ -15,8 +15,8 @@ Tehtävää voi vaikeuttaa laittamalla aina vaan enemmän erilaisia kippoja ja v
 
 ---
 
-![](https://lh3.googleusercontent.com/ke-f2cvLPNfsHJOfUP1z32LCWFibyB2uuZWEdsIvX9s=w800)
+[![](https://lh3.googleusercontent.com/ke-f2cvLPNfsHJOfUP1z32LCWFibyB2uuZWEdsIvX9s=w800)](https://lh3.googleusercontent.com/ke-f2cvLPNfsHJOfUP1z32LCWFibyB2uuZWEdsIvX9s=s0)
 
-![](https://lh3.googleusercontent.com/FY4qHYCusHlhsZNEISNwhPTV9nhtsEdPTtS4on2WAT4=w800)
+[![](https://lh3.googleusercontent.com/FY4qHYCusHlhsZNEISNwhPTV9nhtsEdPTtS4on2WAT4=w800)](https://lh3.googleusercontent.com/FY4qHYCusHlhsZNEISNwhPTV9nhtsEdPTtS4on2WAT4=s0)
 
-![](https://lh3.googleusercontent.com/4IPG3Y0AHVGAKxbYUItYdv1FgVn4QmFmheOErm8oCf4=w800)
+[![](https://lh3.googleusercontent.com/4IPG3Y0AHVGAKxbYUItYdv1FgVn4QmFmheOErm8oCf4=w800)](https://lh3.googleusercontent.com/4IPG3Y0AHVGAKxbYUItYdv1FgVn4QmFmheOErm8oCf4=s0)

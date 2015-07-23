@@ -15,8 +15,8 @@ Lelun tyhjentäminen kestää noin 3-4 minuuttia.
 
 ---
 
-![](https://lh3.googleusercontent.com/7ckZtkx5k4Ly6scCitGimCIk6tyB1PolGg74j1GJOjA=w800)
+[![](https://lh3.googleusercontent.com/7ckZtkx5k4Ly6scCitGimCIk6tyB1PolGg74j1GJOjA=w800)](https://lh3.googleusercontent.com/7ckZtkx5k4Ly6scCitGimCIk6tyB1PolGg74j1GJOjA=s0)
 
-![](https://lh3.googleusercontent.com/DmZEzbcVOFkiBAhnhS55FjXvaF3f9OIIxXaBCLXLEzI=w800)
+[![](https://lh3.googleusercontent.com/DmZEzbcVOFkiBAhnhS55FjXvaF3f9OIIxXaBCLXLEzI=w800)](https://lh3.googleusercontent.com/DmZEzbcVOFkiBAhnhS55FjXvaF3f9OIIxXaBCLXLEzI=s0)
 
-![](https://lh3.googleusercontent.com/ZnHormQtnNzFZBZfTj6mJCV6liVK3jfKmEvVMU-Ns30=w800)
+[![](https://lh3.googleusercontent.com/ZnHormQtnNzFZBZfTj6mJCV6liVK3jfKmEvVMU-Ns30=w800)](https://lh3.googleusercontent.com/ZnHormQtnNzFZBZfTj6mJCV6liVK3jfKmEvVMU-Ns30=s0)

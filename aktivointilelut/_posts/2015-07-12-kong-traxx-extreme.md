@@ -15,12 +15,12 @@ Tätä rengasta voi helposti vaikeuttaa, mikäli omistat myös klassisen lumiukk
 
 ---
 
-![](https://lh3.googleusercontent.com/lh395boYVo5NBLLLeHs_dC6k96aNPU02D8I3zRF3CO4=w800)
+[![](https://lh3.googleusercontent.com/lh395boYVo5NBLLLeHs_dC6k96aNPU02D8I3zRF3CO4=w800)](https://lh3.googleusercontent.com/lh395boYVo5NBLLLeHs_dC6k96aNPU02D8I3zRF3CO4=s0)
 
-![](https://lh3.googleusercontent.com/lkpUhNcZ50Gvnsvwv9-R4Fj8gc6toD5L_kmJO7x9-Xk=w800)
+[![](https://lh3.googleusercontent.com/lkpUhNcZ50Gvnsvwv9-R4Fj8gc6toD5L_kmJO7x9-Xk=w800)](https://lh3.googleusercontent.com/lkpUhNcZ50Gvnsvwv9-R4Fj8gc6toD5L_kmJO7x9-Xk=s0)
 
-![](https://lh3.googleusercontent.com/6LGnIFcmdzzcB6pEOO3w29oBJoNCNEUUJSVV29ultT0=w800)
+[![](https://lh3.googleusercontent.com/6LGnIFcmdzzcB6pEOO3w29oBJoNCNEUUJSVV29ultT0=w800)](https://lh3.googleusercontent.com/6LGnIFcmdzzcB6pEOO3w29oBJoNCNEUUJSVV29ultT0=s0)
 
-![](https://lh3.googleusercontent.com/4PoB_Q-I7yOj6U4LFXaFw1ndpAi7EUIY8AL8p1wXwN0=w800)
+[![](https://lh3.googleusercontent.com/4PoB_Q-I7yOj6U4LFXaFw1ndpAi7EUIY8AL8p1wXwN0=w800)](https://lh3.googleusercontent.com/4PoB_Q-I7yOj6U4LFXaFw1ndpAi7EUIY8AL8p1wXwN0=s0)
 
-![](https://lh3.googleusercontent.com/bQl_GyxIRrTxrELNNNkjubF8d22P07TXs_W7_AwVHAg=w800)
+[![](https://lh3.googleusercontent.com/bQl_GyxIRrTxrELNNNkjubF8d22P07TXs_W7_AwVHAg=w800)](https://lh3.googleusercontent.com/bQl_GyxIRrTxrELNNNkjubF8d22P07TXs_W7_AwVHAg=s0)

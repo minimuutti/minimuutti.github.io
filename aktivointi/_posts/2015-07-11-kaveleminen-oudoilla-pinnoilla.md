@@ -15,12 +15,12 @@ Tätä samaa pahvilaatikkoa käytettiin myös tunnelina.
 
 ---
 
-![](https://lh3.googleusercontent.com/DueoSBiRiYBZf4xdr-9DsoFgADDRoX94crD3HMUkvN4=w800)
+[![](https://lh3.googleusercontent.com/DueoSBiRiYBZf4xdr-9DsoFgADDRoX94crD3HMUkvN4=w800)](https://lh3.googleusercontent.com/DueoSBiRiYBZf4xdr-9DsoFgADDRoX94crD3HMUkvN4=s0)
 
-![](https://lh3.googleusercontent.com/lcAJtvf5sZYtGS334JYy847L6GAIlHiUcjGlAAvwWV0=w800)
+[![](https://lh3.googleusercontent.com/lcAJtvf5sZYtGS334JYy847L6GAIlHiUcjGlAAvwWV0=w800)](https://lh3.googleusercontent.com/lcAJtvf5sZYtGS334JYy847L6GAIlHiUcjGlAAvwWV0=s0)
 
-![](https://lh3.googleusercontent.com/iExK21utT1CbsKD72UCR0dHtHRdTV4BgdvOSNirKy5Y=w800)
+[![](https://lh3.googleusercontent.com/iExK21utT1CbsKD72UCR0dHtHRdTV4BgdvOSNirKy5Y=w800)](https://lh3.googleusercontent.com/iExK21utT1CbsKD72UCR0dHtHRdTV4BgdvOSNirKy5Y=s0)
 
-![](https://lh3.googleusercontent.com/91xcIdhdRgsAGlxitocmDf_AVfE0Q20xkNdSIlGGG6M=w800)
+[![](https://lh3.googleusercontent.com/91xcIdhdRgsAGlxitocmDf_AVfE0Q20xkNdSIlGGG6M=w800)](https://lh3.googleusercontent.com/91xcIdhdRgsAGlxitocmDf_AVfE0Q20xkNdSIlGGG6M=s0)
 
-![](https://lh3.googleusercontent.com/B_8bMXU9O6VHqkyZKiF1_2yit4Cgd5ECTJlwL9b2kW8=w800)
+[![](https://lh3.googleusercontent.com/B_8bMXU9O6VHqkyZKiF1_2yit4Cgd5ECTJlwL9b2kW8=w800)](https://lh3.googleusercontent.com/B_8bMXU9O6VHqkyZKiF1_2yit4Cgd5ECTJlwL9b2kW8=s0)

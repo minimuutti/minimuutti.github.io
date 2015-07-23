@@ -15,10 +15,10 @@ Tässäkin kannattaa aloittaa ensin yhdellä kierroksella ja se kannattaa aloitt
 
 ---
 
-![](https://lh3.googleusercontent.com/SKpxRvpZePPScS-zxUKLznGo70S5LHprt4IEMSqRv8A=w800)
+[![](https://lh3.googleusercontent.com/SKpxRvpZePPScS-zxUKLznGo70S5LHprt4IEMSqRv8A=w800)](https://lh3.googleusercontent.com/SKpxRvpZePPScS-zxUKLznGo70S5LHprt4IEMSqRv8A=s0)
 
-![](https://lh3.googleusercontent.com/FtKHcJgaPBtres639PizNA9hREyQCy55WwfXH8GDMCc=w800)
+[![](https://lh3.googleusercontent.com/FtKHcJgaPBtres639PizNA9hREyQCy55WwfXH8GDMCc=w800)](https://lh3.googleusercontent.com/FtKHcJgaPBtres639PizNA9hREyQCy55WwfXH8GDMCc=s0)
 
-![](https://lh3.googleusercontent.com/MGByvt7t530J426ISlzy8Egf4mk5DOe8VGB6On2HKkw=w800)
+[![](https://lh3.googleusercontent.com/MGByvt7t530J426ISlzy8Egf4mk5DOe8VGB6On2HKkw=w800)](https://lh3.googleusercontent.com/MGByvt7t530J426ISlzy8Egf4mk5DOe8VGB6On2HKkw=s0)
 
-![](https://lh3.googleusercontent.com/4UqSFEaqPVOCWLooz4f8kfSAIIMfZizL2ZmQ_jYOUI8=w800)
+[![](https://lh3.googleusercontent.com/4UqSFEaqPVOCWLooz4f8kfSAIIMfZizL2ZmQ_jYOUI8=w800)](https://lh3.googleusercontent.com/4UqSFEaqPVOCWLooz4f8kfSAIIMfZizL2ZmQ_jYOUI8=s0)

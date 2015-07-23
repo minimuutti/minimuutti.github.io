@@ -13,10 +13,10 @@ Tätä lelua voin silti lämpimästi suositella. Lelu ei maksa paljoa ja se on e
 
 ---
 
-![](https://lh3.googleusercontent.com/TFrnTAG1C13DJuvX-nt0LHF6x7IC_pMc4kukjdRHzDY=w800)
+[![](https://lh3.googleusercontent.com/TFrnTAG1C13DJuvX-nt0LHF6x7IC_pMc4kukjdRHzDY=w800)](https://lh3.googleusercontent.com/TFrnTAG1C13DJuvX-nt0LHF6x7IC_pMc4kukjdRHzDY=s0)
 
-![](https://lh3.googleusercontent.com/z69hPz8zHZfFJRqDHp2m8CJH00iJYebdkpwMpazQwN0=w800)
+[![](https://lh3.googleusercontent.com/z69hPz8zHZfFJRqDHp2m8CJH00iJYebdkpwMpazQwN0=w800)](https://lh3.googleusercontent.com/z69hPz8zHZfFJRqDHp2m8CJH00iJYebdkpwMpazQwN0=s0)
 
-![](https://lh3.googleusercontent.com/Uv6S12OAFvTY3CKMhCwZUvYlA0L7dOc7itleNxgOaWU=w800)
+[![](https://lh3.googleusercontent.com/Uv6S12OAFvTY3CKMhCwZUvYlA0L7dOc7itleNxgOaWU=w800)](https://lh3.googleusercontent.com/Uv6S12OAFvTY3CKMhCwZUvYlA0L7dOc7itleNxgOaWU=s0)
 
-![](https://lh3.googleusercontent.com/sntAQum-7KYri2pXl01VKnThwGsqC80MFT_nKF4_Rpg=w800)
+[![](https://lh3.googleusercontent.com/sntAQum-7KYri2pXl01VKnThwGsqC80MFT_nKF4_Rpg=w800)](https://lh3.googleusercontent.com/sntAQum-7KYri2pXl01VKnThwGsqC80MFT_nKF4_Rpg=s0)

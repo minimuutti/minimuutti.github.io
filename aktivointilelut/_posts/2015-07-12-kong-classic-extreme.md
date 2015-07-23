@@ -18,12 +18,12 @@ Lisäksi kesäisin olen tehnyt Mikille omia koiranjäätelöitä. Laitan joko la
 
 ---
 
-![](https://lh3.googleusercontent.com/WAdUFGwOhM0n0hwdJjgv3WIcSNQSktjxL1QLBAxkyAk=w800)
+[![](https://lh3.googleusercontent.com/WAdUFGwOhM0n0hwdJjgv3WIcSNQSktjxL1QLBAxkyAk=w800)](https://lh3.googleusercontent.com/WAdUFGwOhM0n0hwdJjgv3WIcSNQSktjxL1QLBAxkyAk=s0)
 
-![](https://lh3.googleusercontent.com/FENStIVxez2NGPwup1iEHTN-cSlZNrB4ZcQzjicaAZc=w800)
+[![](https://lh3.googleusercontent.com/FENStIVxez2NGPwup1iEHTN-cSlZNrB4ZcQzjicaAZc=w800)](https://lh3.googleusercontent.com/FENStIVxez2NGPwup1iEHTN-cSlZNrB4ZcQzjicaAZc=s0)
 
-![](https://lh3.googleusercontent.com/dxx29RtpzYIbTuyM2l6nBsfZKXRwr06lmdI8HVZnNh4=w800)
+[![](https://lh3.googleusercontent.com/dxx29RtpzYIbTuyM2l6nBsfZKXRwr06lmdI8HVZnNh4=w800)](https://lh3.googleusercontent.com/dxx29RtpzYIbTuyM2l6nBsfZKXRwr06lmdI8HVZnNh4=s0)
 
-![](https://lh3.googleusercontent.com/WkluwSZ8mj0tIbXvkw8NLGNFUFqT4aSH2U5j5LT9x7M=w800)
+[![](https://lh3.googleusercontent.com/WkluwSZ8mj0tIbXvkw8NLGNFUFqT4aSH2U5j5LT9x7M=w800)](https://lh3.googleusercontent.com/WkluwSZ8mj0tIbXvkw8NLGNFUFqT4aSH2U5j5LT9x7M=s0)
 
-![](https://lh3.googleusercontent.com/aXGNS1es1WmHKzr_RTwW6NZma5tPH-2f5Oak4ai8a4Q=w800)
+[![](https://lh3.googleusercontent.com/aXGNS1es1WmHKzr_RTwW6NZma5tPH-2f5Oak4ai8a4Q=w800)](https://lh3.googleusercontent.com/aXGNS1es1WmHKzr_RTwW6NZma5tPH-2f5Oak4ai8a4Q=s0)

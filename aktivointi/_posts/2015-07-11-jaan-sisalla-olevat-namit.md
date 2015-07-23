@@ -13,4 +13,4 @@ Tätä voisi koittaa esimerkiksi niin, että pakastaisi ensin vaikka pari sentti
 
 ---
 
-![](https://lh3.googleusercontent.com/IoOT-Y4wCbnJ_K7S-BREC8TZjJ781z73FYxTqh-dVxE=w800)
+[![](https://lh3.googleusercontent.com/IoOT-Y4wCbnJ_K7S-BREC8TZjJ781z73FYxTqh-dVxE=w800)](https://lh3.googleusercontent.com/IoOT-Y4wCbnJ_K7S-BREC8TZjJ781z73FYxTqh-dVxE=s0)

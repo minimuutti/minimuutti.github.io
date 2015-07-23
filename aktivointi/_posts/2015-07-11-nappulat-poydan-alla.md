@@ -17,6 +17,6 @@ Nappuloiden etsiminen pöydän alta kestää noin 2-3 minuuttia. Ja wulffin aamu
 
 ---
 
-![](https://lh3.googleusercontent.com/dW7M-fc-zDGSimA2Y8Kfi-UD7hSppMaEQdGJvaG_Cr0=w800)
+[![](https://lh3.googleusercontent.com/dW7M-fc-zDGSimA2Y8Kfi-UD7hSppMaEQdGJvaG_Cr0=w800)](https://lh3.googleusercontent.com/dW7M-fc-zDGSimA2Y8Kfi-UD7hSppMaEQdGJvaG_Cr0=s0)
 
-![](https://lh3.googleusercontent.com/_YWHXalEPGTc-HaUibv5iDgS-WB0aywUrvDFsqe9ZW8=w800)
+[![](https://lh3.googleusercontent.com/_YWHXalEPGTc-HaUibv5iDgS-WB0aywUrvDFsqe9ZW8=w800)](https://lh3.googleusercontent.com/_YWHXalEPGTc-HaUibv5iDgS-WB0aywUrvDFsqe9ZW8=s0)

@@ -15,10 +15,10 @@ Mikäli etsiminen on koirallesi vielä suhteellisen uusi asia, niin kannattaa al
 
 ---
 
-![](https://lh3.googleusercontent.com/XKqzBQ7t_IxijuWEb-_YEa6EzaQvqZqZ7qdbqiFzPhI=w800)
+[![](https://lh3.googleusercontent.com/XKqzBQ7t_IxijuWEb-_YEa6EzaQvqZqZ7qdbqiFzPhI=w800)](https://lh3.googleusercontent.com/XKqzBQ7t_IxijuWEb-_YEa6EzaQvqZqZ7qdbqiFzPhI=s0)
 
-![](https://lh3.googleusercontent.com/dl1KRngn8bLTEPQRDdINUVYyo9QQgIs45KPGMQUolYk=w800)
+[![](https://lh3.googleusercontent.com/dl1KRngn8bLTEPQRDdINUVYyo9QQgIs45KPGMQUolYk=w800)](https://lh3.googleusercontent.com/dl1KRngn8bLTEPQRDdINUVYyo9QQgIs45KPGMQUolYk=s0)
 
-![](https://lh3.googleusercontent.com/MZQ0-Lx2aH8pXMBVfVdus1x9c3dBLcuB3S4q1I0CUvA=w800)
+[![](https://lh3.googleusercontent.com/MZQ0-Lx2aH8pXMBVfVdus1x9c3dBLcuB3S4q1I0CUvA=w800)](https://lh3.googleusercontent.com/MZQ0-Lx2aH8pXMBVfVdus1x9c3dBLcuB3S4q1I0CUvA=s0)
 
-![](https://lh3.googleusercontent.com/cMjqP25TULeSi5d9wcmOM8WQEex2KIa8R-EF_iYIy-o=w800)
+[![](https://lh3.googleusercontent.com/cMjqP25TULeSi5d9wcmOM8WQEex2KIa8R-EF_iYIy-o=w800)](https://lh3.googleusercontent.com/cMjqP25TULeSi5d9wcmOM8WQEex2KIa8R-EF_iYIy-o=s0)

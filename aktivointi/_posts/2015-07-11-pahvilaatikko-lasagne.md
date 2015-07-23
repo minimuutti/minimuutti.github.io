@@ -13,4 +13,4 @@ Pahvilaatikkoon laitetaan kerroksittain aikakauslehden sivuja ja nappuloita sinn
 
 ---
 
-![](https://lh3.googleusercontent.com/YVxQ9l_7_xSNSD1DlioNcgFFFoVJNCYV99YyFhp4dGM=w800)
+[![](https://lh3.googleusercontent.com/YVxQ9l_7_xSNSD1DlioNcgFFFoVJNCYV99YyFhp4dGM=w800)](https://lh3.googleusercontent.com/YVxQ9l_7_xSNSD1DlioNcgFFFoVJNCYV99YyFhp4dGM=s0)

@@ -15,8 +15,8 @@ Kong Companyn mukaan Myös Kong Genius lelut pystyy yhdistämään toisiinsa. Ko
 
 ---
 
-![](https://lh3.googleusercontent.com/AIindugwO-k_oro2QZGgHwLG3KTPO9m8GE8vngpItQs=w800)
+[![](https://lh3.googleusercontent.com/AIindugwO-k_oro2QZGgHwLG3KTPO9m8GE8vngpItQs=w800)](https://lh3.googleusercontent.com/AIindugwO-k_oro2QZGgHwLG3KTPO9m8GE8vngpItQs=s0)
 
-![](https://lh3.googleusercontent.com/lkpUhNcZ50Gvnsvwv9-R4Fj8gc6toD5L_kmJO7x9-Xk=w800)
+[![](https://lh3.googleusercontent.com/lkpUhNcZ50Gvnsvwv9-R4Fj8gc6toD5L_kmJO7x9-Xk=w800)](https://lh3.googleusercontent.com/lkpUhNcZ50Gvnsvwv9-R4Fj8gc6toD5L_kmJO7x9-Xk=s0)
 
-![](https://lh3.googleusercontent.com/bQl_GyxIRrTxrELNNNkjubF8d22P07TXs_W7_AwVHAg=w800)
+[![](https://lh3.googleusercontent.com/bQl_GyxIRrTxrELNNNkjubF8d22P07TXs_W7_AwVHAg=w800)](https://lh3.googleusercontent.com/bQl_GyxIRrTxrELNNNkjubF8d22P07TXs_W7_AwVHAg=s0)

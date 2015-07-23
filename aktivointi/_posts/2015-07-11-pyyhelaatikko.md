@@ -13,6 +13,6 @@ Laitoin pahvilaatikkoon neljä pientä pyyhettä ja yhden ison pyyhkeen, jotta l
 
 Piilotin laatikkoon noin 10 isohkoa kuivaa namia pyyhkeiden sisään ja ruttasin tai taittelin pyyhkeet. Mikiltä kesti kaikkien namien löytäminen noin 2 minuuttia.
 
-![](https://lh3.googleusercontent.com/h5ef5-wRRo7lSzqB1pWXBogXeq_7nVcMkY__CyrWCrI=w800)
+[![](https://lh3.googleusercontent.com/h5ef5-wRRo7lSzqB1pWXBogXeq_7nVcMkY__CyrWCrI=w800)](https://lh3.googleusercontent.com/h5ef5-wRRo7lSzqB1pWXBogXeq_7nVcMkY__CyrWCrI=s0)
 
-![](https://lh3.googleusercontent.com/osU95ndZ_HbS9-XGA8sprrJeyS6s2NLR15I3SZPgcck=w800)
+[![](https://lh3.googleusercontent.com/osU95ndZ_HbS9-XGA8sprrJeyS6s2NLR15I3SZPgcck=w800)](https://lh3.googleusercontent.com/osU95ndZ_HbS9-XGA8sprrJeyS6s2NLR15I3SZPgcck=s0)
