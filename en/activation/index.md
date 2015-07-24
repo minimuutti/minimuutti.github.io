@@ -1,9 +1,9 @@
 ---
-title: "Aktivation"
+title: "Activation"
 layout: category
 ---
 
-Twenty minutes of activating for a dog is about equivalent to two hours of walking. That should be enough to drain the energy for most of the dogs. We walk with Miki about three hours in every working day and three to four hours in the weekend days. Adding to this, we activate Miki between one to one and a half hours every day.  In the autumn, winter and spring we also go running with him a couple times of week. And with running I really mean running, where Miki can pull on the pullharnesses, not jogging. 
+Twenty minutes of activating for a dog is about equivalent to two hours of walking. That should be enough to drain the energy for most of the dogs. We walk with Miki about three hours in every working day and three to four hours in the weekend days. Adding to this, we activate Miki between one to one and a half hours every day.  In the autumn, winter and spring we also go running with him a couple times of week. And with running I really mean running, where Miki can pull on the pullharnesses, not jogging.
 
 ### Nose work
 Any type on nosework games and finding games are good ways to activate your dog.

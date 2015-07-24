@@ -1,7 +1,6 @@
 ---
-layout: default
-permalink: /
 title: "Etusivu"
+layout: default
 ---
 
 # Tervetuloa Minimuutin matkaan!

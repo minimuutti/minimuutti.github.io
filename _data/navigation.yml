@@ -1,31 +1,57 @@
 # Site navigation links
 
-- title: Etusivu
-  url: /
-  excerpt:
-  image:
+- default:
+    title: Etusivu
+    url: /
+    excerpt:
+    image:
+  en:
+    title: Home
+    url: /en/
+    excerpt:
+    image:
 
-- title: Aktivointi
-  url: /aktivointi/
-  excerpt:
-  image:
+- default:
+    title: Aktivointi
+    url: /aktivointi/
+    excerpt:
+    image:
+  en:
+    title: Activation
+    url: /en/activation/
+    excerpt:
+    image:
 
-- title: Aktivointilelut
-  url: /aktivointilelut/
-  excerpt:
-  image:
+- default:
+    title: Aktivointilelut
+    url: /aktivointilelut/
+    excerpt:
+    image:
+  en:
+    title: Activation Toys
+    url: /en/activation-toys/
+    excerpt:
+    image:
 
-- title: Temput
-  url: /temput/
-  excerpt:
-  image:
+- default:
+    title: Temput
+    url: /temput/
+    excerpt:
+    image:
+  en:
+    title: Tricks
+    url: /en/tricks/
+    excerpt:
+    image:
 
-- title: Kuvia Mikistä
-  url: /kuvia-mikista/
-  excerpt:
-  image:
+- default:
+    title: Kuvia Mikistä
+    url: /kuvia-mikista/
+    excerpt:
+    image:
 
-- title: Luontokuvat
-  url: /luontokuvat/
-  excerpt:
-  image:
+- default:
+    title: Luontokuvat
+    url: /luontokuvat/
+    excerpt:
+    image:
