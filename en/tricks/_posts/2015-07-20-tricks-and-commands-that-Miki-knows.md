@@ -151,6 +151,11 @@ image:
 ![](https://lh3.googleusercontent.com/pjlFzKhdMQTEfBPSE28AM6ABgHJoQ9qnRxdcgkQhbZU=w245)
 
 * alla /get under (goes between my feet and walks under me forward and backward)
+
+![](https://lh3.googleusercontent.com/Jte9QzXnG9y3spsXP-v9ghYXQ34d9OdNxMOkzxkh5mU=w245)
+![](https://lh3.googleusercontent.com/oy65J7blGGutNfFKeWP9CmWfjTHt3asTOpyuTSRh2Ek=w245)
+![](https://lh3.googleusercontent.com/D5MSvDBq4fKaduw66UJZjVyETVv1ALEX_ILlmKSId1U=w245)
+
 * missä Janne / where’s Janne (finds Janne and goes to him)
 * missä Susu / where’s Susu (finds Susu and goes to her)
 * puske / push with the head
@@ -211,5 +216,12 @@ image:
 
 * kasi / weave (slaloms forward between my legs)
 * nenää / touch nose (touches a persons nose with his nose)
+
+![](https://lh3.googleusercontent.com/i9dgsuMl79uJqlbgROj39N-szApa8wIpjfFYcjQBoHQ=w245)
+
 * näytä / paw on target
+
+![](https://lh3.googleusercontent.com/prPpAD7p60pZTPZ0dGpwhdLTvFHWIx4-QQIIypdFWtc=w245)
+![](https://lh3.googleusercontent.com/M2GlcWPFGU9ga045OMmy8tZAIcq-J91Ju3ny9GKMpeo=w245)
+
 * vapaa / free
