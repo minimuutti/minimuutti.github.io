@@ -13,6 +13,8 @@ Käänsin puhelinluettelon sivuja ja tungin niitä sinne keskelle kiinni. Tuosta
 
 Ensimmäisellä kerralla Miki jaksoi käännellä noita lehtiä ja aikaa kului namien etsimiseen noin 10 minuuttia. Toisella kerralla puhelinluettelo muuttui silpuksi noin 2 minuutissa :D
 
+Tämä on siitä kätevä, että voit tehdä viuhkan valmiiksi viikonloppuna. Sitten jonain kiireisenä arkipäivänä otat vaan valmiin viuhkan kaapista ja lisäät vaan nappulat :)
+
 ---
 
 [![](https://lh3.googleusercontent.com/auVahgM8HcL0mA3uRoBQKlPbDURg-cjAJpzMZSfKmh8=w800)](https://lh3.googleusercontent.com/auVahgM8HcL0mA3uRoBQKlPbDURg-cjAJpzMZSfKmh8=s0)
