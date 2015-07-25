@@ -19,4 +19,4 @@ You can arrange various of problem solving tasks for your dog, and these are goo
 
 You should never help your dog with the tasks you’ve given to him, because when the dog figures something out by his self, it drains the energy.
 
-By clicking the small icons you’ll get to see the full posts with more images.
+You’ll get to see the full posts with more images by clicking the small icons.
