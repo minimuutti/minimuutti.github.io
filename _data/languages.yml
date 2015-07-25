@@ -1,0 +1,9 @@
+# Site languages
+
+- url: /
+  image: /images/fi.png
+  locale: fin
+
+- url: /en/
+  image: /images/us.png
+  locale: en

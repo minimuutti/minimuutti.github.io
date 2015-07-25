@@ -23,8 +23,8 @@ layout: default
 				<div class="tiles">
 					{% assign category = page.dir | split: "/" | last %}
 					{% for post in site.categories[category] %}
-						{% assign length = post.categories | size %}
-						{% if length == 1 %}
+						{% assign last = post.categories | last %}
+						{% if last == category %}
 							{% include post-grid.html %}
 						{% endif %}
 					{% endfor %}

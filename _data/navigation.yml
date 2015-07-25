@@ -1,6 +1,6 @@
 # Site navigation links
 
-- default:
+- fin:
     title: Etusivu
     url: /
     excerpt:
@@ -11,7 +11,7 @@
     excerpt:
     image:
 
-- default:
+- fin:
     title: Aktivointi
     url: /aktivointi/
     excerpt:
@@ -22,7 +22,7 @@
     excerpt:
     image:
 
-- default:
+- fin:
     title: Aktivointilelut
     url: /aktivointilelut/
     excerpt:
@@ -33,7 +33,7 @@
     excerpt:
     image:
 
-- default:
+- fin:
     title: Temput
     url: /temput/
     excerpt:
@@ -44,14 +44,24 @@
     excerpt:
     image:
 
-- default:
+- fin:
     title: Kuvia Mikistä
     url: /kuvia-mikista/
     excerpt:
     image:
+  en:
+    title: Pictures of Miki
+    url: /en/pictures-of-miki/
+    excerpt:
+    image:
 
-- default:
+- fin:
     title: Luontokuvat
     url: /luontokuvat/
+    excerpt:
+    image:
+  en:
+    title: Pictures of Finnish Nature
+    url: /en/pictures-of-finnish-nature/
     excerpt:
     image:

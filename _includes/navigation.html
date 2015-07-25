@@ -1,6 +1,6 @@
 <ul class="menu-item">
 	{% for item in site.data.navigation %}
-	{% assign link = item.[code] %}
+	{% assign link = item.[locale] %}
     {% if link.url contains 'http' %}
         {% assign domain = '' %}
         {% else %}
