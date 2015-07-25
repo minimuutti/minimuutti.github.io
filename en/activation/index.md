@@ -13,7 +13,7 @@ Only after this you can make the searching games harder. You can throw the treat
 
 Here you can find various nosework and finding game ideas for your dog.,
 
-### Problemsolving
+### Problem solving
 
 You can arrange various of problemsolving tasks for your dog, and these are good ways to drain your dogs energy. When the dog really needs to work something out in order to get his food, he will get tired. Here you can find multiple problemsolving tasks as well.
 
