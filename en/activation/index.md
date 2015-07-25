@@ -9,7 +9,7 @@ Twenty minutes of activation for a dog is about equivalent to two hours of walki
 Any type on nosework games and finding games are good ways to activate your dog.
 
 If your dog hasn’t searched for anything before, you should start by throwing a couple of treats to the floor in front of your dog so that he can see them and give a command: search (when he goes and eat the treats).
-Only after this you can make the searching games harder. You can throw the treats in the sidewalk, or in the short grass. Later on you can throw the treats in the long grass on even in the snowdrift. On the outside you should always be very careful, because you can’t always be sure if there isn’t any broken glass or other dangerous things in the thick, long grass. Or there could be something hidden, that you may not like your dog to eat, like used papertissues or chewing gums.
+Only after this you can make the searching games harder. You can throw the treats in the sidewalk, or in the short grass. Later on you can throw the treats in the long grass on even in the snowdrift. On the outside you should always be very careful, because you can’t always be sure if there isn’t any broken glass or other dangerous things in the thick, long grass. Or there could be something hidden, that you may not like your dog to eat, like used paper tissues or chewing gums.
 
 Here you can find various nosework and finding game ideas for your dog.,
 
