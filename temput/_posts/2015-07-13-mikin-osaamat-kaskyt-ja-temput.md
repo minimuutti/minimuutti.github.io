@@ -152,9 +152,9 @@ image:
 
 * alla (tulee minun alle jalkojen väliin ja kävelee siinä eteen tai taaksepäin kanssani)
 
-![](https://lh3.googleusercontent.com/PMs0Mu-pdLvcw9r84QiPMvuoUpecq8WdfZ9Yyedc8fw=w245-h171-no)
-![](https://lh3.googleusercontent.com/oy65J7blGGutNfFKeWP9CmWfjTHt3asTOpyuTSRh2Ek=w245-h171-no)
-![](https://lh3.googleusercontent.com/Jte9QzXnG9y3spsXP-v9ghYXQ34d9OdNxMOkzxkh5mU=w245-h171-no)
+![](https://lh3.googleusercontent.com/Jte9QzXnG9y3spsXP-v9ghYXQ34d9OdNxMOkzxkh5mU=w245)
+![](https://lh3.googleusercontent.com/oy65J7blGGutNfFKeWP9CmWfjTHt3asTOpyuTSRh2Ek=w245)
+![](https://lh3.googleusercontent.com/D5MSvDBq4fKaduw66UJZjVyETVv1ALEX_ILlmKSId1U=w245)
 
 * missä Janne (etsii Jannen ja menee luokse)
 * missä Susu (etsii Susun ja menee luokse)
