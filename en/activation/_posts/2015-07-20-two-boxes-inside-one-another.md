@@ -9,7 +9,7 @@ image:
 
 First you need two packages, which the other one needs to fit inside the other. Then you need to attach a lever to the inner box with tape or glue (I used tape), from which the dog can pull the box out. Then put the treats in the inner box and let your dog figure out how to get the treats.
 
-Miki usually tosses all boxes around, so I needed to hold still the outer box in the floor.
+Miki usually tosses all boxes around, so I needed to hold still the outer box on the floor.
 
 Miki got this one super quickly, so then I made the lever only about one centimeter wide (less than half of an inch). The treats still vanished in seconds.
 
