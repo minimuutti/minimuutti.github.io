@@ -5,7 +5,7 @@ layout: category
 
 ### Learning new tricks
 
-Learning new tricks gets the dog thinking and that is one of the best ways to activate your dog. I train by shaping whenever I can, because then Miki really needs to think what is it that i’m after this time.
+Learning new tricks gets the dog thinking and that is one of the best ways to activate your dog. I train by shaping whenever I can, because then Miki really needs to think what is it that I’m after this time.
 
 Here are two links, from where you can learn how to teach various tricks to your dog.
 
