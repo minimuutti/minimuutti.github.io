@@ -1,0 +1,7 @@
+<div style="float: right;margin-top: 17px;margin-right: -34px;">
+  {% for item in site.data.languages %}
+    {% if item.locale != locale %}
+  		<a href="{{ item.url }}"><img src="{{ item.image }}" style="width: 16px;"></a>
+  	{% endif %}
+  {% endfor %}
+</div>

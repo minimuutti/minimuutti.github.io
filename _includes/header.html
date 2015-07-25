@@ -1,7 +1,13 @@
 <header id="masthead">
   <div class="inner-wrap">
-    <a href="{{ site.url }}/" class="site-title">{{ site.title }}</a>
+    {% assign language = page.path | split: "/" | first %}
+    {% assign locale = site.locale %}
+    {% if language.size == 2 %}
+      {% assign locale = language %}
+    {% endif %}
+    <a href="/{% if locale.size == 2 %}{{ locale }}/{% endif %}" class="site-title">{{ site.title }}</a>
     <nav role="navigation" class="menu top-menu">
+        {% include languages.html %}
         {% include navigation.html %}
     </nav>
   </div><!-- /.inner-wrap -->
