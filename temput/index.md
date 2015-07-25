@@ -20,3 +20,9 @@ Olen myös laittanut tänne niitä käskyjä ja temppuja, joiden opettamista Mik
 
 Mikäli kaipaat vielä enemmän haasteita temppujen opettamiseen, niin kannattaa vilkaista [tästä viestiketjusta](http://www.petsie.fi/forums/1371-temppuja-koirille/page/8)
 Röllin osaamat yli 200 temppua. Näistä varmasti löytynee jotain, mitä koirallesi ei vielä ole opetettu.
+
+Mikäli koulutat koiraasi ruokapalkalla, niin saatat olla huolissasi koirasi painosta. Miki ainakin tulee syöneeksi hurjan määrän herkkuja koulutussessioiden aikana.
+
+Eläinkaupoista kannattaa katsoa myös kissoille tarkoitettujen herkkujen valikoima. Kissojen valikoimasta löytyy myös samoja herkkuja, kuin koirienkin valikoimasta, esimerkiksi kuivattuja kanafileen paloja, kylmäkuivattua kanaa, kylmäkuivattua nautaa, kylmäkuivattua tonnikalaa sekä tonnikalapaloja. Näiden ainoa ero noihin koirien herkkuihin on se, että ne on valmiiksi leikattu pienemmiksi paloiksi. Itse yleensä leikkaan kaikki Mikin herkkupalat useammaksi palaseksi, mutta ajan ja vaivan säästämiseksi ostan nykyään herkkuja myös kissojen valikoimasta.
+
+Kaikki kissoille tarkoitetut herkut eivät välttämättä sovi koirille. Eläinkaupasta kannattaa kysyä neuvoa, mikäli olet epävarma jonkin kissanherkun sopivuudesta koiralle.
