@@ -21,8 +21,8 @@ image:
 ![](https://lh3.googleusercontent.com/Si8eYmER7LukuQMbzqzaxoZnLGy408aG03PBwvwtsGg=w245)
 
 * nouse / get up (gets up to his feet)
-* no
-* off
+* ei / no
+* irti / off
 * Miki / comes when called (Although Miki thinks that he has a number of first names, such as. hungry, food or eat :D )
 
 ![](https://lh3.googleusercontent.com/T46elXbFVrbxPl2Js7auyv2kZSJvAmdMLGmPS590cr4=w245)
