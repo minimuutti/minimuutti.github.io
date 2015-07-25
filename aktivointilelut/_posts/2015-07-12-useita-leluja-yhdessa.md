@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Aktivointileluista yleensä ne viimeiset nappulat on vaikeimmat saada ulos. Siksipä vaikeutan näitä nykyään niin, etten laitakaan koko satsia nappuloita yhteen leluun, vaan jaan nappulat esim. kahteen tai jopa viiteen leluun ja annan ne vuorotellen. Näin sama määrä nappuloita on vaikeampi saada kun jokaisessa lelussa on niitä ”viimeisiä”, vaikemmin saatavia nappuloita.
+Aktivointileluista yleensä ne viimeiset nappulat on vaikeimmat saada ulos. Siksipä vaikeutan näitä nykyään niin, etten laitakaan koko satsia nappuloita yhteen leluun, vaan jaan nappulat esim. kahteen tai jopa viiteen leluun ja annan ne vuorotellen. Näin sama määrä nappuloita on vaikeampi saada kun jokaisessa lelussa on niitä "viimeisiä", vaikemmin saatavia nappuloita.
 
 Joitain aktivointileluja pystyy myös yhdistelemään vaikeammaksi paketiksi. Esimerkiksi klassisen Kongin ja Kong Traxxin saa yhdistettyä toisiinsa.
 

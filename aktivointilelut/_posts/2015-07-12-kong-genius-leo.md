@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Pinkkiin Kong Genius Leoon (L kokoinen) olen yleensä laittanut nappuloita. Kerran laitoin tähän kuivatun kanafileen, jolloin Miki käytti ”oikotietä” ja söi lelun rikki. Eikun vaan kaupasta uusi tilalle :D
+Pinkkiin Kong Genius Leoon (L kokoinen) olen yleensä laittanut nappuloita. Kerran laitoin tähän kuivatun kanafileen, jolloin Miki käytti "oikotietä" ja söi lelun rikki. Eikun vaan kaupasta uusi tilalle :D
 
 Laitoin myös Kong Companylle kehitysehdotuksen, että näitä Genius leluja voisi valmistaa myös mustasta Extreme -materiaalista, jotta lelu kestäisi kovempaakin käsittelyä.
 

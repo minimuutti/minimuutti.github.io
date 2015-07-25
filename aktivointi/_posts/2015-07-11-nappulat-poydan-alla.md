@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Heitä nappulat keittiön pöydän ja tuolien alle. Kuulostaa ”liian helpolta”, mutta kun tuolit on laitettu siististi vierekkäin ja työnnetty niin pitkälle kun ne saa työnnettyä, niin tuolien ja pöydänjalkojen väliin ei enää jääkään paljoa tilaa isohkolle koiralle.
+Heitä nappulat keittiön pöydän ja tuolien alle. Kuulostaa "liian helpolta", mutta kun tuolit on laitettu siististi vierekkäin ja työnnetty niin pitkälle kun ne saa työnnettyä, niin tuolien ja pöydänjalkojen väliin ei enää jääkään paljoa tilaa isohkolle koiralle.
 
 Käytännössä Miki joutuu kiertelemään pöytää monesti ympäri ja yrittämään eri kulmista saada metsästettyä nappulansa. Lisäksi Miki joutuu ryömimään tuolien ali.
 

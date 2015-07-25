@@ -11,7 +11,7 @@ Lelulaatikot on meillä päivittäin käytössä. Ajattelin ensin ostaa pahvilaa
 
 Meillä on iso pahvilaatikko täytetty kaikenlaisilla pehmeillä ja pyöreillä esineillä, josta Miki sitten etsii nameja. Tässä olen käyttänyt pieniä nakin palasia.
 
-Laatikossa on yleensä Mikin köysileluja, Kong leluja, palloja, tyhjiä limupulloja tai tyhjiä koirannamituubeja, pieni pyyhe, joku pehmolelu ja muita leluja. Kuitenkin sellaisia esineitä ettei Miki satuta itseään kun etsiessään ”auraa” kuonollaan noita esineitä tuolla laatikossa.
+Laatikossa on yleensä Mikin köysileluja, Kong leluja, palloja, tyhjiä limupulloja tai tyhjiä koirannamituubeja, pieni pyyhe, joku pehmolelu ja muita leluja. Kuitenkin sellaisia esineitä ettei Miki satuta itseään kun etsiessään "auraa" kuonollaan noita esineitä tuolla laatikossa.
 
 Yleensä meillä on 10–15 nakin palasta ja laatikkoon menee aina yksi nami kerrallaan. Miki saa istua vieressä ja katsoa kun laitan namin laatikkoon, mutta liikutan käsiäni ympäri laatikkoa jotta Miki ei suoraan näe mihin kohtaan nami laitetaan. Lisäksi teen laatikon pohjaan hämyksi hajujälkiä tuolla nakilla ennen kuin pudotan sen laatikkoon.
 
