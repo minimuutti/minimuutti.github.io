@@ -1,5 +1,5 @@
 ---
-title: "Pictures of Finnish nature"
+title: "Pictures of Finnish Nature"
 layout: category
 ---
 
