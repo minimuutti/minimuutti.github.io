@@ -11,7 +11,7 @@ Miki (means small in inuite language) was born on August 2012. He is a mixed-bre
 
 Alaskan Malamutes have been bred to pull heavy sledges in harsh conditions without getting tired. Malamutes are one of the smartest dog breeds and they are very clever as well.
 
-Miki’s nickname is "wolf". Miki is not a wolf-dog hybrid, mut he is primal and certainly looks like a small wolf, so we call him wolf. Both kids and adults spot Miki amongst other dogs because of his looks. At least once in a week we hear someone call him wolf. You can look pictures of Miki in (HERE - LINKKI).
+Miki’s nickname is "wolf". Miki is not a wolf-dog hybrid, but he is primal and certainly looks like a small wolf, so we call him wolf. Both kids and adults spot Miki amongst other dogs because of his looks. At least once in a week we hear someone call him wolf. You can look pictures of Miki in [here](/en/pictures-of-miki/).
 
 I usually describe Miki as energetic, lives his life to the fullest, he really loves humans (friends or complete strangers) and he is always eager to do almost anything and he likes to try new things head on. But, there’s a backside of all this.. he never drains out of energy. He just keeps going and going and going. I believe, that most of the dogs who are labeled as "problem dogs", has the greatest motivation to work for humans. You only need to see that eagerness through the problems. I love Miki because he never refuses to do anything when there’s a food reward available. Fortunately Miki has bottomless stomach and endless appetite :D
 
@@ -26,5 +26,6 @@ I have loved all kinds of animals my whole life. I spend almost all my "off work
 
 I hope you enjoy the journey with Minimute and I hope that these pages can help your daily life with your own energetic dog.
 
-If you like to watch pictures of Finnish nature, check out the Pictures of Finnish Nature (LINKKI)
+If you like to watch pictures of Finnish nature, check out the [Pictures of Finnish Nature](/en/pictures-of-finnish-nature/).
+
 The journey with Minimute has just begun!
