@@ -11,7 +11,7 @@ You need a phonebook or a mail order catalog and some kibbles for this one. Make
 
 I stucked down part of the pages in the phonebook (the picture will tell more) and put the kibbles in between them.
 
-In the first time it took Miki about ten minutes to ”read” the book and to find all the kibbles. In the second time Miki shredded the phonebook in two minutes :D
+In the first time it took Miki about ten minutes to "read" the book and to find all the kibbles. In the second time Miki shredded the phonebook in two minutes :D
 
 ---
 

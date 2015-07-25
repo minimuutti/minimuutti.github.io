@@ -36,8 +36,8 @@ image:
 * walking stairs backwards
 * walks sideways to right
 * walks sideways to left
-* nods his head like “yes”
-* shakes his head like ”no”
+* nods his head like "yes"
+* shakes his head like "no"
 * dive into snow or water
 
 ![](https://lh3.googleusercontent.com/jq57m6qJQgh7BaT9kQPL8r5jRvm_926kREZZ_JWQT5c=w245)

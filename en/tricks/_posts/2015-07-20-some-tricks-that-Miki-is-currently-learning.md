@@ -13,7 +13,7 @@ image:
 
 ![](https://lh3.googleusercontent.com/83GXrS90Xpz1VkNpW5X0XaxpiK4KKSsN6SpT5uZj5AA=w245)
 
-* rengas puhkee / lays down with his belly up (like in ”flat tire in alaska” –meme)
+* rengas puhkee / lays down with his belly up (like in "flat tire in alaska" –meme)
 
 ![](https://lh3.googleusercontent.com/3o272aBNRpW-kZsIKtrosnme7B2ByV8WxYSWn8vv--w=w245)
 ![](https://lh3.googleusercontent.com/oq1tKwhGcch9q2Fhc-vjVukxgVhYnX-v3f-dEEpc5wA=w245)
