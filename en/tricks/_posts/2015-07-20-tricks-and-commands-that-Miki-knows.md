@@ -22,7 +22,7 @@ image:
 
 * nouse / get up (gets up to his feet)
 * ei / no
-* irti / off
+* irti / let go
 * Miki / comes when called (Although Miki thinks that he has a number of first names, such as. hungry, food or eat :D )
 
 ![](https://lh3.googleusercontent.com/T46elXbFVrbxPl2Js7auyv2kZSJvAmdMLGmPS590cr4=w245)
@@ -105,7 +105,7 @@ image:
 
 ![](https://lh3.googleusercontent.com/FXrh1EHMjvEorrVpo4GdfezAkPrepeUC8OxZwZd35mY=w245)
 
-* väistä / step aside
+* väistä / give way
 * ohi / leave it
 * sivulle / come to the right side
 * seis / stop
@@ -150,7 +150,7 @@ image:
 
 ![](https://lh3.googleusercontent.com/pjlFzKhdMQTEfBPSE28AM6ABgHJoQ9qnRxdcgkQhbZU=w245)
 
-* alla /get under (goes between my feet and walks under me forward and backward)
+* alla / get under (goes between my legs and walks under me forward and backward)
 
 ![](https://lh3.googleusercontent.com/Jte9QzXnG9y3spsXP-v9ghYXQ34d9OdNxMOkzxkh5mU=w245)
 ![](https://lh3.googleusercontent.com/oy65J7blGGutNfFKeWP9CmWfjTHt3asTOpyuTSRh2Ek=w245)
@@ -225,3 +225,5 @@ image:
 ![](https://lh3.googleusercontent.com/M2GlcWPFGU9ga045OMmy8tZAIcq-J91Ju3ny9GKMpeo=w245)
 
 * vapaa / free
+
+![](https://lh3.googleusercontent.com/CDtDpWN9MrvaYDyZYBXbv-1WZahCQywUwp1yBYu0AgI=w245)
