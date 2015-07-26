@@ -11,6 +11,8 @@ Metsässä on moninkertainen määrä erilaisia hajuja ja ääniä normaaliin ka
 
 Miki tosin ei väsy metsälenkistä oikeastaan yhtään sen enempää kuin tavallisestakaan lenkistä, mutta virikkeellistämismielessä teemme näitä silloin tällöin. Ja onhan se itsellekin mukavaa vaihtelua.
 
+Metsässä on usein paljon hyttysiä ja mietin miten voisin helpottaa Mikin olemista siellä, kun Mikin turkkiin ei voi suihkauttaa Offia. Leikkasin pyyhkeestä noin 4 x 40 cm suikaleen, johon suihkautin Offia ja solmin tuon suikaleen Mikin valjaisiin.
+
 ---
 
 [![](https://lh3.googleusercontent.com/OTfv-FcDek8rVaJG9SigWqyWUZtcDkMg3S4zqPDWjBk=w800)](https://lh3.googleusercontent.com/OTfv-FcDek8rVaJG9SigWqyWUZtcDkMg3S4zqPDWjBk=s0)
