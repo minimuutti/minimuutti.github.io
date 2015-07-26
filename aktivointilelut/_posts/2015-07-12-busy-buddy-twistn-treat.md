@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Violettiin Busy Buddy Twist'n Treat (M kokoinen) leluun laitan nappuloita. Vaikeimmalle säädettynäkin lelun tyhjentäminen kestää Mikiltä noin 1-2 minuuttia.
+Violettiin Busy Buddy Twist'n Treat (L kokoinen) leluun laitan nappuloita. Vaikeimmalle säädettynäkin lelun tyhjentäminen kestää Mikiltä noin 1-2 minuuttia.
 
 Tätä lelua voin silti lämpimästi suositella. Lelu ei maksa paljoa ja se on erittäin kestävä.
 

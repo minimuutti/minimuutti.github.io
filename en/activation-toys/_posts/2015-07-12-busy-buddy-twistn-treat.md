@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-In Busy Buddy Twist'n Treat (size M) I put kibbles.
+In Busy Buddy Twist'n Treat (size L) I put kibbles.
 
 You can adjust the difficulty of this toy. When this toy is adjusted to its hardest, Miki still gets the kibbles out in less than two minutes.
 
