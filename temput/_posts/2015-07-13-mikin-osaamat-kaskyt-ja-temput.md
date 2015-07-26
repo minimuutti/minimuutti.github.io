@@ -22,6 +22,9 @@ image:
 ![](https://lh3.googleusercontent.com/NRIRHEFQbBDoI-Cu1u7qUnflZH6yt7m7-U_v0abxP6I=w245)
 
 * nouse (nousee seisomaan neljälle tassulle esim. istumasta)
+
+![](https://lh3.googleusercontent.com/ok1_UIEjkNrkqgNkAudtMXT61jqsaTZ6f2E0y0sbluU=w245)
+
 * ei
 * irti
 * tyhjä (lopettaa jonkin lelun tai esineen tuhoamisen, jonka sisältä ruoka on loppunut)

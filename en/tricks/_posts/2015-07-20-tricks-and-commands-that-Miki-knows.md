@@ -22,6 +22,9 @@ image:
 ![](https://lh3.googleusercontent.com/NRIRHEFQbBDoI-Cu1u7qUnflZH6yt7m7-U_v0abxP6I=w245)
 
 * nouse / get up (gets up to his feet)
+
+![](https://lh3.googleusercontent.com/ok1_UIEjkNrkqgNkAudtMXT61jqsaTZ6f2E0y0sbluU=w245)
+
 * ei / no
 * irti / let go
 * tyhjä / empty (stops destroying an activation toy or some other object that has no longer food in it)
