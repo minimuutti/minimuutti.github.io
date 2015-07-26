@@ -22,7 +22,7 @@ We live in an apartment with Miki, so many people thinks that we are out of our 
 
 ### Then something about me
 
-I have loved all kinds of animals my whole life. I spend almost all my "off work" time with Miki at the moment. I also like photographing very much and I tend to have my camera with me all the time. I got the idea for this site, because I couldn’t find enough activating tips for dogs from the Internet. Most of the pages I found, listed only a few tips, but I didn’t find any pages that would’ve had multiple tips in the same place.
+I have loved all kinds of animals my whole life. I spend almost all my "off work" time with Miki at the moment. I also like photographing very much and I tend to have my camera with me all the time. I got the idea for this site, because I couldn’t find enough activation tips for dogs from the Internet. Most of the pages I found, listed only a few tips, but I didn’t find any pages that would’ve had multiple tips in the same place.
 
 I hope you enjoy the journey with Minimute and I hope that these pages can help your daily life with your own energetic dog.
 
