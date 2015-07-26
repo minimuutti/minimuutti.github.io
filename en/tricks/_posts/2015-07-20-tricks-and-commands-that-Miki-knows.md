@@ -24,6 +24,7 @@ image:
 * nouse / get up (gets up to his feet)
 * ei / no
 * irti / let go
+* tyhjä / empty (stops destroying an activation toy or some other object that has no longer food in it)
 * Miki / comes when called (Although Miki thinks that he has a number of first names, such as. hungry, food or eat :D )
 
 ![](https://lh3.googleusercontent.com/T46elXbFVrbxPl2Js7auyv2kZSJvAmdMLGmPS590cr4=w245)
@@ -164,9 +165,9 @@ image:
 
 ![](https://lh3.googleusercontent.com/V3sLahwgGFwuTlVWyKE5RZnz3RYpIvhPXqhJ6LQ2i5A=w245)
 ![](https://lh3.googleusercontent.com/xzXw0xjcKKgprlIcIeYF_Pzozcp4Kah7sEaIaj2xuV4=w245)
+![](https://lh3.googleusercontent.com/N3HSgV2ZzFTSg_YcCDPqHz1wenBlXW5s-d-2BaKjxag=w245)
 ![](https://lh3.googleusercontent.com/Q5qWO24ZZUetMbRlSF2S955ftsqPNb9XBBPX81blQX8=w245)
 ![](https://lh3.googleusercontent.com/q5OgzY-3-i-D7COoPtJb5-7abot6oAQChjUbeIB346o=w245)
-![](https://lh3.googleusercontent.com/N3HSgV2ZzFTSg_YcCDPqHz1wenBlXW5s-d-2BaKjxag=w245)
 
 * ei sinne / don’t go there
 * pyöri / spin (spins clockwise)

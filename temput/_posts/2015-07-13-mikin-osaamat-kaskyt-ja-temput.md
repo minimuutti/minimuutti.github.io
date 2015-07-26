@@ -24,6 +24,7 @@ image:
 * nouse (nousee seisomaan neljälle tassulle esim. istumasta)
 * ei
 * irti
+* tyhjä (lopettaa jonkin lelun tai esineen tuhoamisen, jonka sisältä ruoka on loppunut)
 * Miki tai Miki täällä (tulee kutsuttaessa) (Miki tosin luulee, että sillä on useampiakin etunimiä, kuten nälkä, ruokaa tai syömään :D )
 
 ![](https://lh3.googleusercontent.com/T46elXbFVrbxPl2Js7auyv2kZSJvAmdMLGmPS590cr4=w245)
@@ -164,9 +165,9 @@ image:
 
 ![](https://lh3.googleusercontent.com/V3sLahwgGFwuTlVWyKE5RZnz3RYpIvhPXqhJ6LQ2i5A=w245)
 ![](https://lh3.googleusercontent.com/xzXw0xjcKKgprlIcIeYF_Pzozcp4Kah7sEaIaj2xuV4=w245)
+![](https://lh3.googleusercontent.com/N3HSgV2ZzFTSg_YcCDPqHz1wenBlXW5s-d-2BaKjxag=w245)
 ![](https://lh3.googleusercontent.com/Q5qWO24ZZUetMbRlSF2S955ftsqPNb9XBBPX81blQX8=w245)
 ![](https://lh3.googleusercontent.com/q5OgzY-3-i-D7COoPtJb5-7abot6oAQChjUbeIB346o=w245)
-![](https://lh3.googleusercontent.com/N3HSgV2ZzFTSg_YcCDPqHz1wenBlXW5s-d-2BaKjxag=w245)
 
 * ei sinne (jos menossa esim. kivetyksen yli autotielle > kääntyy takaisin)
 * pyöri (pyörii ympyrää myötäpäivään)
