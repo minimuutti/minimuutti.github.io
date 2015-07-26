@@ -3,7 +3,7 @@ title: "Kong Traxx Extreme"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/eCc5PCKNcKV_VSxB01xddyagsn5nu0Ui1TFUTSsUT6Y=w245
+  teaser: https://lh3.googleusercontent.com/nG4rFt1yt2a8gWm_Ksu7Utp8tHt6aEDX9cV6sSoFhfI=w245
   thumb:
 ---
 
@@ -15,7 +15,9 @@ If you also have the Classic Kong, you can make this Traxx toy harder. Just put 
 
 ---
 
-[![](https://lh3.googleusercontent.com/lh395boYVo5NBLLLeHs_dC6k96aNPU02D8I3zRF3CO4=w800)](https://lh3.googleusercontent.com/lh395boYVo5NBLLLeHs_dC6k96aNPU02D8I3zRF3CO4=s0)
+[![](https://lh3.googleusercontent.com/h_I8lUpNFkzDzBWdTBxXXZhuOKNseHPhq5Xs-5OosNA=w800)](https://lh3.googleusercontent.com/h_I8lUpNFkzDzBWdTBxXXZhuOKNseHPhq5Xs-5OosNA=s0)
+
+[![](https://lh3.googleusercontent.com/RRq7x1RTWHr0oo4EDEf3Z_8jEN_mIRQo_3Jp9r-jt_0=w800)](/https://lh3.googleusercontent.com/RRq7x1RTWHr0oo4EDEf3Z_8jEN_mIRQo_3Jp9r-jt_0=s0)
 
 [![](https://lh3.googleusercontent.com/lkpUhNcZ50Gvnsvwv9-R4Fj8gc6toD5L_kmJO7x9-Xk=w800)](https://lh3.googleusercontent.com/lkpUhNcZ50Gvnsvwv9-R4Fj8gc6toD5L_kmJO7x9-Xk=s0)
 

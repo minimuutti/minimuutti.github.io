@@ -19,6 +19,7 @@ image:
 
 ![](https://lh3.googleusercontent.com/RdgfYjp0HzsSBcZR4BMOF3vtIUBvgqesm4a5G1q_z0s=w245)
 ![](https://lh3.googleusercontent.com/Si8eYmER7LukuQMbzqzaxoZnLGy408aG03PBwvwtsGg=w245)
+![](https://lh3.googleusercontent.com/NRIRHEFQbBDoI-Cu1u7qUnflZH6yt7m7-U_v0abxP6I=w245)
 
 * nouse (nousee seisomaan neljälle tassulle esim. istumasta)
 * ei
