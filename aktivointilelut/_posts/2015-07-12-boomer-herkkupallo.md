@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Keltaiseen Boomer herkkupalloon (koko 10,5 cm) laitan vain nappuloita, koska lelua ei ole mahdollista avata puhdistettavaksi.
+Keltaiseen [Boomer herkkupalloon](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/lelut/aktivointilelut/aktivointi/141727)) (koko 10,5 cm) laitan vain nappuloita, koska lelua ei ole mahdollista avata puhdistettavaksi.
 
 Pallon tyhjentäminen kestää Mikiltä noin minuutin tai kaksi, vaikka pallon sisällä on nameja annosteleva labyrintti.
 

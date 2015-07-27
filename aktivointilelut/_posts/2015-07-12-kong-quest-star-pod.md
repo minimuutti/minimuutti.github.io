@@ -7,9 +7,9 @@ image:
   thumb:
 ---
 
-Oranssiin Kong Quest Star Podiin (L kokoinen) laitan yleensä [Nutrivet Instinct Dog Treat](http://www.zooplus.fi/esearch.htm#q=dog%20treat) nameja. Nämä namit ovat juuri sopivan kokoisia noihin pyöreisiin aukkoihin, kun ne kääntää poikittain sinne aukon sisään.
+Oranssiin Kong Quest Star Podiin (L kokoinen) laitan yleensä [Nutrivet Instinct Dog Treat](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/nutrivet)) nameja. Nämä namit ovat juuri sopivan kokoisia noihin pyöreisiin aukkoihin, kun ne kääntää poikittain sinne aukon sisään.
 
-Myös kuivatusta kanafileestä leikkaan sopivan kokoisia paloja ja tungen niitä noihin koloihin. Alla olevissa kuvissa lelussa on täytteenä kuivattuja peuranlihan paloja.
+Myös [kuivatusta kanafileestä](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/puruliuskat/rocco/171756)) leikkaan sopivan kokoisia paloja ja tungen niitä noihin koloihin. Alla olevissa kuvissa lelussa on täytteenä [kuivattuja peuranlihan paloja](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/riistaherkut/peuranliha/141194)), jotka ovat myös sopivan kokoisia noihin koloihin.
 
 Tämä lelu on tyhjä yleensä noin 2–3 minuutissa tai kanafileiden kanssa menee joskus muutama minuutti kauemmin.
 

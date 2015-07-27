@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Tavallisen ruokakupin lisäksi meillä on Northmaten hotkimista estävä, nurmikkoa jäljittelevä ruokakuppi, josta koira saa "metsästää" eli nuolla ruokansa. Tämä on se isomman kokoinen malli.
+Tavallisen ruokakupin lisäksi meillä on [Northmaten](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/lelut/aktivointilelut/alypelit/408791)) hotkimista estävä, nurmikkoa jäljittelevä ruokakuppi, josta koira saa "metsästää" eli nuolla ruokansa. Tämä on se isomman kokoinen malli.
 
 Ihan ruokakupista ruokaa annetaan nykyisin vain harvoin, pääasiassa Miki saa ruoka-annoksensa jostain muusta aktivoinnista.
 

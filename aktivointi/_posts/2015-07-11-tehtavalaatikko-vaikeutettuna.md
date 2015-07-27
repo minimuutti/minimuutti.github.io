@@ -29,6 +29,8 @@ Mikillä kestää tällaisen vaikeutetun tehtävälaatikon tyhjäksi syömiseen 
 
 [![](https://lh3.googleusercontent.com/TTkfXEiH-ynK_VK6J6k5Hvfpc0fLx2uUhUPMTr7Ui7M=w800)](https://lh3.googleusercontent.com/TTkfXEiH-ynK_VK6J6k5Hvfpc0fLx2uUhUPMTr7Ui7M=s0)
 
+Ilmakuivatut [Thrive ProReward](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/pikkuherkut/puruherkut/277201)) -maksapalat sekä [Nutrivet Instinct Dog Treat](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/nutrivet)) -herkut löydät [Zooplussasta](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)).
+
 [![](https://lh3.googleusercontent.com/nGBoUwMgROi42G_g27oBOz717yZHPeGVn0ey-a7uA7A=w800)](https://lh3.googleusercontent.com/nGBoUwMgROi42G_g27oBOz717yZHPeGVn0ey-a7uA7A=s0)
 
 [![](https://lh3.googleusercontent.com/Kgi_C0lbQxC5BSBmAYuW0cCbOS8RdtsoIddahN1LBLs=w800)](https://lh3.googleusercontent.com/Kgi_C0lbQxC5BSBmAYuW0cCbOS8RdtsoIddahN1LBLs=s0)

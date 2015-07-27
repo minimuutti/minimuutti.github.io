@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Kong Traxx (koko M/L) -renkaaseen sopii kaikista parhaiten muotonsa puolesta nämä [Trixie Premio Sushi Rolls Light](http://www.zooplus.fi/shop/koirat/luut/kala_puruherkut/202203) -namit. Ne ovat juuri sopivan mallisia ja kokoisia tähän renkaaseen. Olen laittanut renkaaseen noin 4-5 tällaista namia ja renkaan tyhjentäminen kestää Mikiltä noin 2 minuuttia.
+[Kong Traxx](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/lelut/aktivointilelut/aktivointi/326683)) (koko M/L) -renkaaseen sopii kaikista parhaiten muotonsa puolesta nämä [Trixie Premio Sushi Rolls Light](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/kala_puruherkut/202203)) -namit. Ne ovat juuri sopivan mallisia ja kokoisia tähän renkaaseen. Olen laittanut renkaaseen noin 4-5 tällaista namia ja renkaan tyhjentäminen kestää Mikiltä noin 2 minuuttia.
 
 Renkaaseen olen joskus laittanut myös jotain tahnamaista ja pakastanut. Jäisen renkaan nuoleminen puhtaaksi kestää noin 5-10 minuuttia.
 
