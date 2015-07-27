@@ -82,7 +82,7 @@ image:
 
 * saa ottaa / you can take it
 * saa syödä / you can eat it
-* ota vettä (menee juomaan)
+* ota vettä / drink
 
 ![](https://lh3.googleusercontent.com/ajRm1BWEJrDdvQnGOQ6SoNQgRZLQkLywyw_WIejwiBA=w245)
 
