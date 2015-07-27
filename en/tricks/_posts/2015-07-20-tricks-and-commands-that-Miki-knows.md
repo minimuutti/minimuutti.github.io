@@ -134,6 +134,9 @@ image:
 ![](https://lh3.googleusercontent.com/JnjcM-DuW7bea3dqLxvpjtGRoa6Jvh-yibWJ_nBELCE=w245)
 
 * hae Kongi / bring the Kong
+
+![](https://lh3.googleusercontent.com/fiQPWPo0ZDdAWwFiTzpe1HKSSdz-T18qyjISnN_Pt3U=w245)
+
 * ota Kongi / take the Kong
 * matto / rug (rolls a rug open)
 
