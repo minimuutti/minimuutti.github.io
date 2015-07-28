@@ -9,7 +9,7 @@ image:
 
 For this one you only need two to three pages from the magazine (staples taken out), maskingtape and some dry treats.
 
-I put the pages side by side and taped them together in both sides. Then I put the treats on top of it and rolled it into a tube. I folded the tube and put some maskingtape on it to make it harder.
+I put the pages side by side and taped them together on both sides. Then I put the treats on top of it and rolled it into a tube. I folded the tube and put some maskingtape on it to make it harder.
 
 The tube was shredded about in one minute.
 

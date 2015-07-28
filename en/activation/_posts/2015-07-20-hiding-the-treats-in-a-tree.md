@@ -1,5 +1,5 @@
 ---
-title: Hiding the treats in a tree"
+title: "Hiding the treats in a tree"
 layout: article
 image:
   feature:

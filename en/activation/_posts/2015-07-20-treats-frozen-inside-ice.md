@@ -7,9 +7,9 @@ image:
   thumb:
 ---
 
-I put a small amount of water in the yogurtcup and then put pieces of wiener there and then I put it in the freezer for two hours.
+I put a small amount of water in the yoghurt cup and then put pieces of wiener there and then I put it in the freezer for two hours.
 
-Miki got the treats out about in minute, so next time I will take larger cup and put more water in it.
+Miki got the treats out about in a minute, so next time I will take larger cup and put more water in it.
 
 ---
 

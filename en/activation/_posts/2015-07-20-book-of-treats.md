@@ -19,7 +19,7 @@ I knew that I needed to find some thin treats for this that needed to be sticky 
 
 So I took two of these duck filets and cut them in half, so that I got four pieces. I put two pieces in the middle gap and one piece in each gap on the sides. Then I put the other zip tie in the other holes that I made earlier and pulled it tight. Then I trimmed the zip tie's tail off.
 
-I took Miki under five minutes to get the treats out.
+It took Miki under five minutes to get the treats out.
 
 This game is really convenient, because you can make it semifinished in the weekend. Then at some busy weekday just put the treats in and close it and give it to your dog :)
 
