@@ -13,7 +13,7 @@ Piirsin tämän laatikon pohjaan 5 ympyrää käyttäen apuna tyhjää namiämp�
 
 Laatikon tyhjentäminen kesti Mikiltä noin neljä minuuttia.
 
-Tätä samaa laatikkoa voisi kokeilla vaikeuttaa laittamalla sinne esim. tennispalloja esteeksi.
+Tätä voisi kokeilla vaikeuttaa laittamalla laatikkoon esim. tennispalloja esteeksi.
 
 ---
 
