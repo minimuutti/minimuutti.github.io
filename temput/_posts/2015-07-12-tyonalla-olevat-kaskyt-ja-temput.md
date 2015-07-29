@@ -23,7 +23,6 @@ image:
 ![](https://lh3.googleusercontent.com/1ag025tJip4yM6pieZJ5Lltmemz3-jd3SJlvUy6ccWc=w245)
 ![](https://lh3.googleusercontent.com/LD0JKrXYSPCQ5DlbrUBeKRPqjkstFIbi_jJ5L3ZWWpg=w245)
 
-* dough! (laittaa tassun silmien eteen. Tassu menee jo silmille, muttei pysy siellä)
 * sheikkaa (ravista turkkia, odotellaan siepattavia hetkiä (pitäiskö tönästä kaveri järveen :D vitsi vitsi.. emmä oikeesti))
 
 ![](https://lh3.googleusercontent.com/0rYhiplcnHz_8Kyn9ixUlibz3TVvKr6wFn6UTOCeZAs=w245)
@@ -41,9 +40,3 @@ image:
 * vilkuta (Mikin olisi tarkoitus vilkuttaa vasemmalla tassulla, mutta tässä ollaan vasta alkutekijöissä)
 * suoraan (eli ei käänny risteyksestä oikealle eikä vasemmalle)
 * pidä (pitää esinettä suussaan kunnes saa luvan irrottaa, nyt ottaa esineen suuhun muttei pidä sitä vielä, vaan esine putoaa heti)
-* kosketuskepin pään koskettaminen kuonolla (koskee tai syö keppiä, muttei vielä tajua koskettaa vain sitä palloa siellä päässä kuin vahingossa, keppi tosin saapui meille vasta eilen.)
-
-![](https://lh3.googleusercontent.com/59cn-oHeIbbbplPTRECAoTCEGeaAHDnsZAxvD53lO2I=w245)
-![](https://lh3.googleusercontent.com/XhF-nIlmJYCpXMhZwoukoIup-bP1R2mY8D_SL9v92B0=w245)
-![](https://lh3.googleusercontent.com/MZiQjQODe8QSKyA0QofojD8EA2Ygy07MczVEKvJzpgw=w245)
-![](https://lh3.googleusercontent.com/mKdR6-U0Ob5ocDNMG6cFi4bRocYUQ41a3jjkxVlfgFo=w245)

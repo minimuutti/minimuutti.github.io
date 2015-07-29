@@ -188,6 +188,10 @@ image:
 ![](https://lh3.googleusercontent.com/EdyHVb13IbFbhrT83BFQen42fSr1SJ2U6eCkHB5eVmY=w245)
 ![](https://lh3.googleusercontent.com/hNxPRi1FtnVwElU9GORx2jm4Wx0r7LZ3wepsC-l3CR8=w245)
 
+* kosketuskepin pään koskettaminen kuonolla
+
+![](https://lh3.googleusercontent.com/mKdR6-U0Ob5ocDNMG6cFi4bRocYUQ41a3jjkxVlfgFo=w245)
+
 * post-it lapun koskeminen (koskee lappua kuonolla, tähän ei ole mitään käskyä mutta tällä on opetettu muita temppuja)
 
 ![](https://lh3.googleusercontent.com/N0ZL5ovJA-93qPjmc7Ekztazeu976x2QeT8zDkxXwH8=w245)
@@ -232,6 +236,7 @@ image:
 ![](https://lh3.googleusercontent.com/prPpAD7p60pZTPZ0dGpwhdLTvFHWIx4-QQIIypdFWtc=w245)
 ![](https://lh3.googleusercontent.com/M2GlcWPFGU9ga045OMmy8tZAIcq-J91Ju3ny9GKMpeo=w245)
 
+* dough! (laittaa tassun silmille)
 * vapaa
 
 ![](https://lh3.googleusercontent.com/CDtDpWN9MrvaYDyZYBXbv-1WZahCQywUwp1yBYu0AgI=w245)
