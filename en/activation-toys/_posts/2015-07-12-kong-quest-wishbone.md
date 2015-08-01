@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Kong Quest Wishbone (size L) suits primarily for freezing. It takes Miki about 3 to 5 minutes to lick the frozen toy clean.
+Kong Quest Wishbone (size L) suits primarily for freezing. It takes Miki about 10 to 15 minutes to lick the frozen toy clean.
 
 The first time I gave this toy to Miki I put some leftover pieces of meat from the fridge in it, and the pieces were inhaled in about 10 seconds… :D
 

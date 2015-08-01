@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Sininen Kong Quest Wishbone (L koko) sopii lähinnä pakastettavaksi. Pakastetun lelun nuoleminen puhtaaksi kestää Mikillä noin 3-5 minuuttia.
+Sininen Kong Quest Wishbone (L koko) sopii lähinnä pakastettavaksi. Pakastetun lelun nuoleminen puhtaaksi kestää Mikillä noin 10-15 minuuttia.
 
 Ensimmäisellä kerralla laitoin tähän leluun keitetyn kivipiiran paloja, kun niitä oli jäänyt yli edellispäivän harjoituksista. Nämä oli syöty sekunneissa :D
 
