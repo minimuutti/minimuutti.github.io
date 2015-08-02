@@ -13,8 +13,8 @@ Leikkasin saksilla irti tuosta DVD-kotelosta sen muovin, joka pitää kansilehde
 
 Tätäkin voisi koittaa vaikeuttaa teippaamalla kotelon kiinni. Teippaamattoman kotelon avaaminen kesti Mikiltä reilun minuutin.
 
-![](https://lh3.googleusercontent.com/2mXU9pxVQMTA7tI1pP3-5FXW2UlStUicIPivZ78loQw=w1489-h989-no)
+[![](https://lh3.googleusercontent.com/2mXU9pxVQMTA7tI1pP3-5FXW2UlStUicIPivZ78loQw=w800)](https://lh3.googleusercontent.com/2mXU9pxVQMTA7tI1pP3-5FXW2UlStUicIPivZ78loQw=s0)
 
-![](https://lh3.googleusercontent.com/jUf_8RjsgeyfyoBiS054hGbuxgaY22-tWMoIgEtIjtM=w1489-h990-no)
+[![](https://lh3.googleusercontent.com/jUf_8RjsgeyfyoBiS054hGbuxgaY22-tWMoIgEtIjtM=w800)](https://lh3.googleusercontent.com/jUf_8RjsgeyfyoBiS054hGbuxgaY22-tWMoIgEtIjtM=s0)
 
-![](https://lh3.googleusercontent.com/7aBAweTHm4bBq0BqAkyRVh7YLUmgSs-DAvrwDrctGA4=w1490-h990-no)
+[![](https://lh3.googleusercontent.com/7aBAweTHm4bBq0BqAkyRVh7YLUmgSs-DAvrwDrctGA4=w800)](https://lh3.googleusercontent.com/7aBAweTHm4bBq0BqAkyRVh7YLUmgSs-DAvrwDrctGA4=s0)

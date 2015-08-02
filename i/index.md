@@ -11,6 +11,7 @@ Mikäli sinulla on hyviä aktivointivinkkejä tai kommentteja, tai olet kiinnost
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 2.8.2015 Lisätty uusi aktivointivinkki; Lehtirulla
 * 1.8.2015 Lisätty uusia valokuvia
 * 30.7.2015 Päivitetty Työnalla olevat käskyt ja temput
 * 28.7.2015 Lisätty uusi aktivointivinkki; Kurkkaa koloon
