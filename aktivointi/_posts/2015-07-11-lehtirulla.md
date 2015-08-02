@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Tähän lehtirullaan tarvitset vain aikakaus- tai mainoslehden, maalarin teippiä sekä jotain ohuita ja tahmeita nameja, jotta ne eivät putoile ulos. Puolikosteat kanafileen tai ankkafileen siivut ovat tähän erinomainen valinta. Juuston tai kinkkuleikkeleen siivut olisivat varmasti sopineet yhtä hyvin. Ja kannattaa valita sellainen lehti, jossa ei ole niittejä vaan sivut on liimattu.
+Tähän lehtirullaan tarvitset vain aikakaus- tai mainoslehden, maalarinteippiä sekä jotain ohuita ja tahmeita nameja, jotta ne eivät putoile ulos. Puolikosteat kanafileen tai ankkafileen siivut ovat tähän erinomainen valinta. Juuston tai kinkkuleikkeleen siivut olisivat varmasti sopineet yhtä hyvin. Ja kannattaa valita sellainen lehti, jossa ei ole niittejä vaan sivut on liimattu.
 
 Leikkasin muutaman fileen pieniksi suikaleiksi ja asettelin ne sivujen väleihin suht lähelle lehden keskiosaa. Sitten vaan rullasin lehden ja kiinnitin sen molemmista päistä maalarinteipillä.
 
