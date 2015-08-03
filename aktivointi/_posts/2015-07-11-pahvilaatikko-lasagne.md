@@ -11,7 +11,7 @@ Tarvitset isohkon pahvilaatikon, aikakauslehden (josta niitit on poistettu) sek�
 
 Mikiltä menee noin 10-15 minuuttia kaikkien namien löytämiseen.
 
-Viimeisessä kuvassa näkyy kun Miki kerran vähän oikaisi; eli Miki kippasi laatikon nurin ja poimi nappulat lattialta hetkessä.
+Viimeisessä kuvassa näkyy kun Miki kerran vähän oikaisi, eli Miki kippasi laatikon nurin ja poimi nappulat lattialta hetkessä.
 
 ---
 
