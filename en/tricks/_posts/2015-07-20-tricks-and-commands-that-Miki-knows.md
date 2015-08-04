@@ -42,7 +42,7 @@ image:
 
 ![](https://lh3.googleusercontent.com/5FwhXNnO4G3GjnP5NBSyfjskFQvGNdIuOFwclCTJ7s8=w245)
 
-* päivää / shake hands (shake right paw with right hand and looks the person in the eyes)
+* päivää / shake hands (shakes right paw with right hand and looks the person in the eyes)
 
 ![](https://lh3.googleusercontent.com/u93ei2EfanOTigKHzoNz8dWafYL7YYx1IyYnaNuAfk4=w245)
 
