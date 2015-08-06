@@ -21,7 +21,7 @@ image:
 ![](https://lh3.googleusercontent.com/Si8eYmER7LukuQMbzqzaxoZnLGy408aG03PBwvwtsGg=w245)
 ![](https://lh3.googleusercontent.com/NRIRHEFQbBDoI-Cu1u7qUnflZH6yt7m7-U_v0abxP6I=w245)
 
-* relaa (makaa kyljellään, odotellaan siepattavia hetkiä)
+* relaa (makaa kyljellään)
 
 ![](https://lh3.googleusercontent.com/80Dpnsu4A45acUuIOXFgCRUZuKt2CSBiR6CJ6RZAXp8=w245)
 
