@@ -15,6 +15,8 @@ I like the Classic Kong toy very much, because it can also be frozen. I usually 
 You can buy these pâtés in tubes. There are variations available like liver, salmon and chicken pâté. I mix unsweetened natural yoghurt with these pâtés or tuna flakes and then put the mix in the Kong. In addition, you can use unsweetened quark, cottage cheese, eggs, minced meat, chicken, peanut butter or smashed vegetables like carrot, sweet potato, lettuce, cucumber, zucchini, squash, broccoli, celery and banana. Do NOT use avocados, grapes, raisins, onions, chocolate or macadamian nuts because these contain substances that are toxic to dogs.
 You can use unsweetened and smashed blueberries too, if your dog can lick the Kong outside in the yard. I don’t give blueberries in the house because our rugs would probably be ruined after that.
 
+This classic toy is one of my favourite toys and it certainly is a versatile boredom buster.
+
 ---
 
 [![](https://lh3.googleusercontent.com/WAdUFGwOhM0n0hwdJjgv3WIcSNQSktjxL1QLBAxkyAk=w800)](https://lh3.googleusercontent.com/WAdUFGwOhM0n0hwdJjgv3WIcSNQSktjxL1QLBAxkyAk=s0)

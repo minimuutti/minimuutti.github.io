@@ -32,10 +32,6 @@ image:
 ![](https://lh3.googleusercontent.com/Ut4J4Iu6zb4hTKOkB8bC77slQfONhviEwEFP6QORAxE=w245)
 ![](https://lh3.googleusercontent.com/pCHmPk47hBz_tatTG6v26BJKWccnUqBhUuTQl5rsJLw=w245)
 
-* relaa /relax (lays on his side)
-
-![](https://lh3.googleusercontent.com/80Dpnsu4A45acUuIOXFgCRUZuKt2CSBiR6CJ6RZAXp8=w245)
-
 * luuppi / jump through a hulahoop
 * vilkuta / wave with left paw
 * suoraan / go straight (don't turn)

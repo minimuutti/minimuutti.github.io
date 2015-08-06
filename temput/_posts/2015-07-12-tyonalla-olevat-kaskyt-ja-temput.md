@@ -32,10 +32,6 @@ image:
 ![](https://lh3.googleusercontent.com/Ut4J4Iu6zb4hTKOkB8bC77slQfONhviEwEFP6QORAxE=w245)
 ![](https://lh3.googleusercontent.com/pCHmPk47hBz_tatTG6v26BJKWccnUqBhUuTQl5rsJLw=w245)
 
-* relaa (makaa kyljellään, odotellaan siepattavia hetkiä)
-
-![](https://lh3.googleusercontent.com/80Dpnsu4A45acUuIOXFgCRUZuKt2CSBiR6CJ6RZAXp8=w245)
-
 * luuppi (hyppää renkaan tai hulavanteen läpi)
 * vilkuta (Mikin olisi tarkoitus vilkuttaa vasemmalla tassulla, mutta tässä ollaan vasta alkutekijöissä)
 * suoraan (eli ei käänny risteyksestä oikealle eikä vasemmalle)

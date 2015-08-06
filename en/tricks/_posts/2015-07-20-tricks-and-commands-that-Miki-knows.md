@@ -21,6 +21,10 @@ image:
 ![](https://lh3.googleusercontent.com/Si8eYmER7LukuQMbzqzaxoZnLGy408aG03PBwvwtsGg=w245)
 ![](https://lh3.googleusercontent.com/NRIRHEFQbBDoI-Cu1u7qUnflZH6yt7m7-U_v0abxP6I=w245)
 
+* relaa / relax (lays on his side)
+
+![](https://lh3.googleusercontent.com/80Dpnsu4A45acUuIOXFgCRUZuKt2CSBiR6CJ6RZAXp8=w245)
+
 * nouse / get up (gets up to his feet)
 
 ![](https://lh3.googleusercontent.com/ok1_UIEjkNrkqgNkAudtMXT61jqsaTZ6f2E0y0sbluU=w245)
