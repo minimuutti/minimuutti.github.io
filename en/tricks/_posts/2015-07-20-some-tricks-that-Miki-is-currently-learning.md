@@ -36,7 +36,7 @@ image:
 * vilkuta / wave with left paw
 * suoraan / go straight (don't turn)
 * pidä / hold it
-* kärppä / weasel (lick his lips)
+* kärppä / weasel (licks his lips)
 
 ![](https://lh3.googleusercontent.com/QRB_ahmg6cvtiIJHyuU3wEJfM0aDHIy4Xl6RidYoi94=w245)
 ![](https://lh3.googleusercontent.com/Vfi-fczhsv2WwImBNzidi_iGTzoqjTNOybl3gM7PYd0=w222)
