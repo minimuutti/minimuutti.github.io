@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-You need one big cardboard box with a lid, three or four small cardboard boxes (like cereal box or something smaller, magazine (staples taken out), some maskingtape, kibbles and a few treats.
+You need one big cardboard box with a lid, three or four small carton packages, like a cereal box, a porridge package and a cardboard egg carton, magazine (staples taken out), some maskingtape, kibbles and a few treats.
 
 I start by making 40 to 50 paperballs, one or two kibbles or a treat in each. Then I put some of these paperballs inside the smaller boxes and tape them around. Then I put these small boxes in the big box. If there’s any paperballs left, I put them in the big box as well. If I have any kibbles or treats left, I sprinkle them in the big box as well.
 

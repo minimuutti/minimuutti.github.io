@@ -1,5 +1,5 @@
 ---
-title: "Cardboard packages"
+title: "Carton packages"
 layout: article
 image:
   feature:
@@ -7,9 +7,9 @@ image:
   thumb:
 ---
 
-All small grocery packages that are made out of cardboard are good to be given to the dog to shred. I usually put some kibbles inside these.
+All small grocery packages that are made out of carton or cardboard are good to be given to the dog to shred. I usually put some kibbles inside these.
 
-These packages are so easy for Miki, that I always tape them around before giving them to Miki. Miki shreds a taped package in about two minutes.
+These packages are so easy for Miki, that I always tape them around before giving them to Miki. Miki shreds a taped package about in two minutes.
 
 The biking helmet’s box was surprisingly hard for Miki, because there was this floor in the middle where the treats got stuck.
 
