@@ -11,6 +11,7 @@ Mikäli sinulla on hyviä aktivointivinkkejä tai kommentteja, tai olet kiinnost
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 7.8.2015 Lisätty uusi aktivointivinkki; Sanomalehtisipuli
 * 7.8.2015 Lisätty uusi aktivointivinkki; Putkipiilo
 * 6.8.2015 Lisätty uusi aktivointivinkki; Herkkukuutio
 * 6.8.2015 Päivitetty Mikin osaamat käskyt ja temput
