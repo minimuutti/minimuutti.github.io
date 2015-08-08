@@ -20,3 +20,7 @@ In the first time it took Miki about ten minutes to "read" the book and to find 
 [![](https://lh3.googleusercontent.com/tpe96-6Turu_I2W-80BjHPUmdIVYirnQocqeJGFeskQ=w800)](https://lh3.googleusercontent.com/tpe96-6Turu_I2W-80BjHPUmdIVYirnQocqeJGFeskQ=s0)
 
 [![](https://lh3.googleusercontent.com/9vSY_h5uqfSscNaF_Brs4l4Rr9moGPjNEiOapGa8_ZU=w800)](https://lh3.googleusercontent.com/9vSY_h5uqfSscNaF_Brs4l4Rr9moGPjNEiOapGa8_ZU=s0)
+
+[![](https://lh3.googleusercontent.com/jalyj-XNVL_xtmFaHtzs6NliwL6h55v8J-lCYUQpC4o=w800)](https://lh3.googleusercontent.com/jalyj-XNVL_xtmFaHtzs6NliwL6h55v8J-lCYUQpC4o=s0)
+
+[![](https://lh3.googleusercontent.com/YvZMTUcK2RgaZKA4LhHM_QD_Fx3GCwodyigR9ccmVfg=w800)](https://lh3.googleusercontent.com/YvZMTUcK2RgaZKA4LhHM_QD_Fx3GCwodyigR9ccmVfg=s0)

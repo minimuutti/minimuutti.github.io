@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Tarvitset puhelinluettelon tai muun vastaavan, miksei ehkä myös joku postimyyntikatalogi sopisi tähän. Kannattaa valita sellainen, missä ei ole niittejä vaan sivut on liimattu. Lisäksi tarvitset pieniä kuivia nameja, itse olen laitanut ihan vaan nappuloita.
+Tarvitset puhelinluettelon tai muun vastaavan, esim. postimyyntikatalogin. Kannattaa valita sellainen, missä ei ole niittejä vaan sivut on liimattu. Lisäksi tarvitset pieniä kuivia nameja, itse olen laitanut ihan vaan nappuloita.
 
 Käänsin puhelinluettelon sivuja ja tungin niitä sinne keskelle kiinni. Tuosta alla olevasta kuvasta saa varmaan paremmin käsityksen. Sivujen väliin sitten ripottelin nappuloita.
 
@@ -22,3 +22,7 @@ Tämä on siitä kätevä, että voit tehdä viuhkan valmiiksi viikonloppuna. Si
 [![](https://lh3.googleusercontent.com/tpe96-6Turu_I2W-80BjHPUmdIVYirnQocqeJGFeskQ=w800)](https://lh3.googleusercontent.com/tpe96-6Turu_I2W-80BjHPUmdIVYirnQocqeJGFeskQ=s0)
 
 [![](https://lh3.googleusercontent.com/9vSY_h5uqfSscNaF_Brs4l4Rr9moGPjNEiOapGa8_ZU=w800)](https://lh3.googleusercontent.com/9vSY_h5uqfSscNaF_Brs4l4Rr9moGPjNEiOapGa8_ZU=s0)
+
+[![](https://lh3.googleusercontent.com/jalyj-XNVL_xtmFaHtzs6NliwL6h55v8J-lCYUQpC4o=w800)](https://lh3.googleusercontent.com/jalyj-XNVL_xtmFaHtzs6NliwL6h55v8J-lCYUQpC4o=s0)
+
+[![](https://lh3.googleusercontent.com/YvZMTUcK2RgaZKA4LhHM_QD_Fx3GCwodyigR9ccmVfg=w800)](https://lh3.googleusercontent.com/YvZMTUcK2RgaZKA4LhHM_QD_Fx3GCwodyigR9ccmVfg=s0)
