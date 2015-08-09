@@ -11,7 +11,7 @@ In Kong Quest Star Pod (size L) I usually put these [Nutrivet Instinct Dog Treat
 
 Sometimes I put pieces of dried chicken filet instead in those holes. The filets are convenient because you can cut them to any shape and size.
 
-It takes Miki about 2 to 3 minutes to get all the treats out, but with chicken filets it may take a couple of minutes longer.
+It takes Miki about 2 to 5 minutes to get all the treats out, but with chicken filets it may take a couple of minutes longer.
 
 ---
 
