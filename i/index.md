@@ -11,13 +11,13 @@ Mikäli sinulla on hyviä aktivointivinkkejä tai kommentteja, tai olet kiinnost
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 10.8.2015 Lisätty uusi aktivointivinkki; Kangaspallo
+* 10.8.2015 Lisätty uusi aktivointivinkki; Narulaatikko
+* 10.8.2015 Lisätty uusi aktivointivinkki; Sateenvarjo
 * 7.8.2015 Lisätty uusi aktivointivinkki; Sanomalehtisipuli
 * 7.8.2015 Lisätty uusi aktivointivinkki; Putkipiilo
 * 6.8.2015 Lisätty uusi aktivointivinkki; Herkkukuutio
 * 6.8.2015 Päivitetty Mikin osaamat käskyt ja temput
-* 2.8.2015 Lisätty uusi aktivointivinkki; Lehtirulla
-* 1.8.2015 Lisätty uusia valokuvia
-* 28.7.2015 Lisätty uusi aktivointivinkki; Kurkkaa koloon
 
 ![](https://lh3.googleusercontent.com/T2AKpsd5XDhDlOFkaBTinOCVl7cRpR2_ld_sXtL7TuA=w447)
 
