@@ -29,4 +29,6 @@ Koiralle järjestettyjen pulmien ja ongelmien ratkominen kuluttaa energiaa. Alta
 
 Koiraa ei pidä auttaa tehtävissä, koska koiran energia kuluu juuri siinä aivotyöskentelyssä. Itse kyllä kehun Mikiä, kun se pääsee uudessa tehtävässä oikeille jäljille, mutta muutoin Miki saa pähkäillä itse.
 
+Koiraa kannattaa aina valvoa sen suorittaessa sille annettuja tehtäviä, jotta koira ei tulisi syöneeksi mitään syötäväksi kelpaamatonta tai loukkaisi itseään muuten. Ja tehtävissä kannattaa käyttää sellaisia materiaaleja joissa ei ole myrkyllisiä kemikaaleja tai pieniä irtoilevia osasia.
+
 Klikkaamalla kuvia saat auki tarkemmat tiedot ja kuvat kyseisestä tehtävästä.

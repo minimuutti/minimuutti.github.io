@@ -20,4 +20,6 @@ You can arrange various of problem solving tasks and brain games for your dog, a
 
 You should never help your dog with the tasks you’ve given to him, because when the dog figures something out by his self, it drains the energy.
 
+You should always watch your dog when you give him these assignments to prevent any injuries. And you shouldn’t give him any toxic materials or anything with small loose parts that he could swallow by accident.
+
 You’ll get to see the full posts with more images by clicking the small icons.
