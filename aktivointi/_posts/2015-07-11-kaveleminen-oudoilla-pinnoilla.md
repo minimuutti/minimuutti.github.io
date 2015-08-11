@@ -24,3 +24,5 @@ Tätä samaa pahvilaatikkoa käytettiin myös tunnelina.
 [![](https://lh3.googleusercontent.com/91xcIdhdRgsAGlxitocmDf_AVfE0Q20xkNdSIlGGG6M=w800)](https://lh3.googleusercontent.com/91xcIdhdRgsAGlxitocmDf_AVfE0Q20xkNdSIlGGG6M=s0)
 
 [![](https://lh3.googleusercontent.com/B_8bMXU9O6VHqkyZKiF1_2yit4Cgd5ECTJlwL9b2kW8=w800)](https://lh3.googleusercontent.com/B_8bMXU9O6VHqkyZKiF1_2yit4Cgd5ECTJlwL9b2kW8=s0)
+
+[![](https://lh3.googleusercontent.com/EM6_uXPdi0fHfF2qSRZTnVjq72HG8lIeLmT1FiuWpt4=w800)](https://lh3.googleusercontent.com/EM6_uXPdi0fHfF2qSRZTnVjq72HG8lIeLmT1FiuWpt4=s0)
