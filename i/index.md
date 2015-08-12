@@ -11,8 +11,8 @@ Mikäli sinulla on hyviä aktivointivinkkejä tai kommentteja, tai olet kiinnost
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 13.8.2015 Lisätty uusi aktivointivinkki; Pallomeri
-* 13.8.2015 Lisätty uusi aktivointivinkki; Kelluvat kupit
+* 12.8.2015 Lisätty uusi aktivointivinkki; Pallomeri
+* 12.8.2015 Lisätty uusi aktivointivinkki; Kelluvat kupit
 * 11.8.2015 Lisätty uusi aktivointivinkki; Pyyhelasagne
 * 11.8.2015 Lisätty uusi aktivointivinkki; Mukidonitsi
 * 10.8.2015 Lisätty uusi aktivointivinkki; Kangaspallo
