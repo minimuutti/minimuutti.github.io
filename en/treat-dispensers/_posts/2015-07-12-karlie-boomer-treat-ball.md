@@ -1,5 +1,5 @@
 ---
-title: "Boomer herkkupallo"
+title: "Karlie Boomer treat ball"
 layout: article
 image:
   feature:
@@ -7,9 +7,9 @@ image:
   thumb:
 ---
 
-Keltaiseen [Boomer herkkupalloon](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/lelut/aktivointilelut/aktivointi/141727)) (koko 10,5 cm) laitan vain nappuloita, koska lelua ei ole mahdollista avata puhdistettavaksi.
+With Karlie Boomer treat ball (size 10,5 cm) I only use kibbles because it’s not possible to open the toy for cleaning.
 
-Pallon tyhjentäminen kestää Mikiltä noin minuutin tai kaksi, vaikka pallon sisällä on nameja annosteleva labyrintti.
+Although there is a labyrinth inside the ball, it takes Miki for only a minute or two to get all the kibbles out.
 
 ---
 

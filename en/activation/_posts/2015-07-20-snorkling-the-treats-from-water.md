@@ -14,7 +14,7 @@ I put like 10 centimeters (three to four inches) of water in the basin and then 
 If your dog doesn’t like water or he is scared to put his nose under the water you need to start easy. In the first time you can put only 2 to 3 centimeters (about an inch) of water in the basin with the treats.
 If you like to make this game harder, you can put multiple tennisballs or some other obstacles in the basin with the water and the treats.
 
-And I’m sure you wanna play this game in the bathroom floor or maybe in the garden if you have that option. Not on the livingroom floor…
+And I’m sure you wanna play this game on the bathroom floor or maybe in the garden if you have that option. Not on the livingroom floor…
 
 ---
 

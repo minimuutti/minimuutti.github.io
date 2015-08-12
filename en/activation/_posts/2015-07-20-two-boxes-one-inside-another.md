@@ -1,5 +1,5 @@
 ---
-title: "Two boxes inside one another"
+title: "Two boxes, one inside another"
 layout: article
 image:
   feature:

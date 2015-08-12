@@ -13,7 +13,7 @@ I drew five circles in the bottom of the box and cut them open with a modelling 
 
 It took Miki about four minutes to eat all the kibbles.
 
-You can make this game harder by placing a few tennis balls or other small balls in the box with the treats. We haven't try this yet, because we don't have enough suitable balls at the moment.
+You can make this game harder by placing a few tennis balls or other small balls as obstacles in the box with the treats. We haven't try this yet, because we don't have enough suitable balls at the moment.
 
 ---
 

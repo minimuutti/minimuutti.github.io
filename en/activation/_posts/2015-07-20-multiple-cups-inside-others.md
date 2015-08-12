@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Plastic cups can be placed inside one another. You can put the treats in every cup or you can put the treat only in the last cup. You can also tape these cups together with maskingtape.
+Plastic cups can be placed inside one another. You can put the treats in every cup or you can put the treat only in the last cup. You can also tape these cups together with masking tape.
 
 For example I used the small dog treat buckets, as you can see in the pictures. I taped five of these buckets together and I only put the treats in one of the buckets. Miki got the treats out about in two minutes.
 

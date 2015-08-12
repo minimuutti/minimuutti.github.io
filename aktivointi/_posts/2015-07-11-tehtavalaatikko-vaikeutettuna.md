@@ -15,7 +15,7 @@ Pienemmät kartonkilaatikot voi myös täyttää näillä paperipalloilla ja tei
 
 Jos paperipalloja on vielä jäljellä, laitan ne irrallaan sinne isoon pahvilaatikkoon ja loput nappulat voi ripotella sinne väleihin.
 
-Mikillä kestää tällaisen vaikeutetun tehtävälaatikon tyhjäksi syömiseen noin 10 minuuttia. Ja tehtävää vaikeuttaa tuon ison pahvilaatikon kansi, kun Mikin on ensin aina avattava tuo kansi saadakseen sieltä sisältä uuden tehtävän. Kannen saa auki vain nostamalla sitä vasemmasta reunasta (muilta reunoilta reunalipare on irrotettu).  Jos kansi joskus jää auki, niin laitan sen kiinni jotta Mikillä olisi enemmän työtä.
+Mikillä kestää tällaisen vaikeutetun tehtävälaatikon tyhjäksi syöminen noin 10 minuuttia. Ja tehtävää vaikeuttaa tuon ison pahvilaatikon kansi, kun Mikin on ensin aina avattava tuo kansi saadakseen sieltä sisältä uuden tehtävän. Kannen saa auki vain nostamalla sitä vasemmasta reunasta (muilta reunoilta reunalipare on irrotettu).  Jos kansi joskus jää auki, niin laitan sen kiinni jotta Mikillä olisi enemmän työtä.
 
 ---
 

@@ -1,5 +1,5 @@
 ---
-title: "Cardboard lasagna"
+title: "Cardboard box lasagna"
 layout: article
 image:
   feature:

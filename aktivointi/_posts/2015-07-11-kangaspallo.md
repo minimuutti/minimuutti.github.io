@@ -9,7 +9,7 @@ image:
 
 Tähän kelpaavat kaikki roskiin menevät vaatteet, pyyhkeet tai lakanat. Leikkaa kankaasta noin 5 senttiä leveitä suikaleita ja solmi suikaleet toisiinsa. Mikäli käytät tähän vanhan t-paidan tai housunlahkeen, niin se kannattaa suoraltaan leikata pitkäksi pötköksi. Kangaspötköä kannattaa olla vähintään 10 metriä, 12 metriä pitkästä suikaleesta tuli halkaisijaltaan noin 10 cm kokoinen pallo.
 
-Sitten vaan käärii tämän ”narun” palloksi laittaen väliin mitä tahansa kuivia nameja, itse käytin nappuloita sekä muutaman herkkutikun. Loppupään voi halutessaan pujotella vanhojen kierrosten alle.
+Sitten vaan käärii tämän ”narun” palloksi laittaen väliin mitä tahansa kuivia nameja, itse käytin nappuloita sekä muutaman herkkutikun. Loppupään voi halutessaan pujotella alempien kierrosten alle.
 
 Mikiltä kesti noin 12 minuuttia saada kaikki namit ulos tuolta.
 

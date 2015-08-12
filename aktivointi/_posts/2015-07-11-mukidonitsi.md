@@ -11,7 +11,7 @@ Tähän tarvitset kertakäyttöisiä pahvi- tai muovimukeja (miksei myös jogurt
 
 Pujotin 75 senttisen langanpätkän neulalla mukien pohjista läpi. Tämän jälkeen solmin narun alku- ja loppupään yhteen ja laitoin 1 tai 2 nappulaa jokaiseen kuppiin. 
 
-Mikiltä kesti noin 15 minuuttia saada kaikki namit ulos tuolta.
+Mikiltä kesti noin 15 minuuttia saada kaikki namit ulos tuolta. 
 
 ---
 

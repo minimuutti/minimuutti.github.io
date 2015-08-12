@@ -11,7 +11,7 @@ For this one you need a newspaper (staples taken out), some masking tape and any
 
 First I took one page from the newspaper and put some treats on top of it. Then I scrunched it and folded it and put more treats in between the layers. When I was done with previous page, I took another page and folded it on top of the previous and put the treats in between every layer. I started with the treats, so that the treats were hidden on the inside layers of the onion and I put the kibbles in the outer layers of the onion.
 
-When I had folded the whole newspaper I secured it with several rounds of maskingtape before I gave it to Miki.
+When I had folded the whole newspaper I secured it with several rounds of masking tape before I gave it to Miki.
 
 It took Miki about 10 to 15 minutes to get all the treats out of this onion.
 
