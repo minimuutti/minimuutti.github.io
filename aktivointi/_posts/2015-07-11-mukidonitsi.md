@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Tähän tarvitset kertakäyttöisiä pahvi- tai muovimukeja, narua tai lankaa ja mitä tahansa nameja. Mukeja kannattaa olla vähintään 10 kpl, itse laitoin 15 kpl pahvisia kahvimukeja.
+Tähän tarvitset kertakäyttöisiä pahvi- tai muovimukeja (miksei myös jogurttipurkkeja voisi kokeilla), narua tai lankaa ja mitä tahansa nameja. Mukeja kannattaa olla vähintään 10 kpl, itse laitoin 15 kpl pahvisia kahvimukeja.
 
 Pujotin 75 senttisen langanpätkän neulalla mukien pohjista läpi. Tämän jälkeen solmin narun alku- ja loppupään yhteen ja laitoin 1 tai 2 nappulaa jokaiseen kuppiin. 
 
