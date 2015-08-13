@@ -31,7 +31,7 @@ image:
 
 * ei / no
 * irti / let go
-* tyhjä / empty (stops destroying an activation toy or some other object that has no longer food in it)
+* tyhjä / empty (stops destroying a treat dispencer toy or some other object that has no longer food in it)
 * Miki / comes when called (Although Miki thinks that he has a number of first names, such as. hungry, food or eat :D )
 
 ![](https://lh3.googleusercontent.com/T46elXbFVrbxPl2Js7auyv2kZSJvAmdMLGmPS590cr4=w245)

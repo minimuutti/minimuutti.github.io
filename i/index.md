@@ -18,8 +18,6 @@ Uudet ja viimeksi päivitetyt osiot:
 * 10.8.2015 Lisätty uusi aktivointivinkki; Kangaspallo
 * 10.8.2015 Lisätty uusi aktivointivinkki; Narulaatikko
 * 10.8.2015 Lisätty uusi aktivointivinkki; Sateenvarjo
-* 7.8.2015 Lisätty uusi aktivointivinkki; Sanomalehtisipuli
-* 7.8.2015 Lisätty uusi aktivointivinkki; Putkipiilo
 
 ![](https://lh3.googleusercontent.com/T2AKpsd5XDhDlOFkaBTinOCVl7cRpR2_ld_sXtL7TuA=w447)
 

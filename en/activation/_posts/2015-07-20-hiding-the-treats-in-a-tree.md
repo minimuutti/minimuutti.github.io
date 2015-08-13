@@ -8,7 +8,7 @@ image:
 ---
 You can hide the treats under the trees bark or in the holes of the bark.
 
-Climbing in the tree is also a good challenge for your dog, if there are some suitable trees in your neighbourhood. In these cases I also hide the treats on the holes of the bark, but first the dog needs to climb in the tree to start the search.
+Climbing in the tree is also a good challenge for your dog, if there are some suitable trees in your neighbourhood. In these cases I also hide the treats in the holes of the bark, but first the dog needs to climb in the tree to start the search.
 
 And try to make sure that your dog doesn’t fall off the tree while he is climbing to avoid any injuries.
 
