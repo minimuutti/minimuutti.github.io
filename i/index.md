@@ -27,3 +27,5 @@ Uudet ja viimeksi päivitetyt osiot:
 * 11.8.2015 Lisätty uusi aktivointivinkki; Mukidonitsi
 * 10.8.2015 Lisätty uusi aktivointivinkki; Kangaspallo
 * 10.8.2015 Lisätty uusi aktivointivinkki; Narulaatikko
+* 10.8.2015 Lisätty uusi aktivointivinkki; Sateenvarjo
+* 
