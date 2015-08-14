@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Punaiseen Kong Wobbleriin (L koko) laitan nappuloita. Miki keksi tämän lelun tekniikan tosi nopeasti ja lelu tyhjenee yleensä noin minuutissa tai parissa.
+Punaiseen [Kong Wobbleriin](http://clk.tradedoubler.com/click?p(240480)a(2526211)g(21401374)url(https://www.mustijamirri.fi/kong-wobbler-026806-1)) (L koko) laitan nappuloita. Miki keksi tämän lelun tekniikan tosi nopeasti ja lelu tyhjenee yleensä noin minuutissa tai parissa.
 
 Mietin, että miten tätä muuten hyvää lelua voisi vaikeuttaa. Keksin leikata vanhasta pyyhkeestä noin 20 x 20 cm kokoisen palan ja laitoin sen lelun sisälle nappuloiden lisäksi. Pyyhe hidasti Mikin touhuilua noin minuutilla, eli lelun tyhjentämiseen kului pyyhkeen kanssa noin 2-3 minuuttia.
 

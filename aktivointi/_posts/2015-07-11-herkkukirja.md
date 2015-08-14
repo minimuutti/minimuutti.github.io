@@ -15,7 +15,7 @@ Tein saksenkärjellä kaksi reikää ensimmäisen pahvin reunoihin. Tätä käyt
 
 Tämän jälkeen yhdistin pahvin palaset toisesta reunasta nippusiteellä kiinni ja kiristin vielä tuon nippusiteen pihdeillä. Sitten leikkasin nippusiteestä sen hännän pois.
 
-Mietin, että tähän tarvitsen jotain ohuita herkkuja, jotka mahtuvat tuonne kirjan väleihin. Lisäksi ajattelin, että herkut saisivat olla sellaisia tahmeita, etteivät ne heti luisuisi ulos tuolta väleistä. Puolikosteat ankkafileet olivat täydellinen valinta tähän; ne ovat ohuita ja sopivan tahmeita, eivätkä putoa ulos.
+Mietin, että tähän tarvitsen jotain ohuita herkkuja, jotka mahtuvat tuonne kirjan väleihin. Lisäksi ajattelin, että herkut saisivat olla sellaisia tahmeita, etteivät ne heti luisuisi ulos tuolta väleistä. [Puolikosteat ankkafileet](http://clk.tradedoubler.com/click?p(240480)a(2526211)g(21401374)url(https://www.mustijamirri.fi/brit-care-let-s-bite-ankanrinta-80-g-018621-1)) olivat täydellinen valinta tähän; ne ovat ohuita ja sopivan tahmeita, eivätkä putoa ulos.
 
 Otin kaksi ankkafilettä ja leikkasin ne puoliksi, eli niistä tuli neljä palaa. Laitoin keskimmäiseen väliin kaksi palasta ja kumpaankin reunimmaiseen väliin yhden palan ankkaa. Sitten otin toisen nippusiteen ja pujotin sen noista toisista rei'istä ja kiristin sen pihdeillä.
 
