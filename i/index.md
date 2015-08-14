@@ -9,18 +9,21 @@ Yhteys: minimuutti.com(at)gmail.com
 
 Mikäli sinulla on hyviä aktivointivinkkejä tai kommentteja, tai olet kiinnostunut ostamaan jonkun valokuvistani, niin älä epäröi ottaa yhteyttä.
 
+![](https://lh3.googleusercontent.com/T2AKpsd5XDhDlOFkaBTinOCVl7cRpR2_ld_sXtL7TuA=w447)
+
+---
+
+[![](https://lh3.googleusercontent.com/MKwfsbFq7uu2wQQcpBMKzbeTWG_X6GHIw91FFzQ2LGw=w447)](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/))
+
+[![](https://lh3.googleusercontent.com/UZD-YzdoKAGryUkQuoqAk57k_KeHYAZov20i14umJcM=w447)](http://clk.tradedoubler.com/click?p(240480)a(2526211)g(21401374)url(https://www.mustijamirri.fi/))
+
 Uudet ja viimeksi päivitetyt osiot:
 
+* 14.8.2015 Lisätty uusi aktivointivinkki; Tötteröt
+* 14.8.2015 Lisätty uusi aktivointivinkki; Kupit vadissa
 * 12.8.2015 Lisätty uusi aktivointivinkki; Pallomeri
 * 12.8.2015 Lisätty uusi aktivointivinkki; Kelluvat kupit
 * 11.8.2015 Lisätty uusi aktivointivinkki; Pyyhelasagne
 * 11.8.2015 Lisätty uusi aktivointivinkki; Mukidonitsi
 * 10.8.2015 Lisätty uusi aktivointivinkki; Kangaspallo
 * 10.8.2015 Lisätty uusi aktivointivinkki; Narulaatikko
-* 10.8.2015 Lisätty uusi aktivointivinkki; Sateenvarjo
-
-![](https://lh3.googleusercontent.com/T2AKpsd5XDhDlOFkaBTinOCVl7cRpR2_ld_sXtL7TuA=w447)
-
----
-
-[![](https://lh3.googleusercontent.com/MKwfsbFq7uu2wQQcpBMKzbeTWG_X6GHIw91FFzQ2LGw=w447)](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/))
