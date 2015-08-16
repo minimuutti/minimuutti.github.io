@@ -15,6 +15,8 @@ Laatikon tyhjentäminen kesti Mikiltä noin neljä minuuttia.
 
 Tätä voisi kokeilla vaikeuttaa laittamalla laatikkoon esim. tennispalloja esteeksi.
 
+Saman kaltaisen tehtävän voit myös tehdä helpommalla tavalla. Kannellisesta pahvilaatikosta voi leikata kansiläpät lyhyemmiksi ja teipata ne reunoilta kiinni. Katso kaksi viimeisintä kuvaa.
+
 ---
 
 [![](https://lh3.googleusercontent.com/6Ec8bvVEihrP5GAtWrL4dr5yvB78OlwJTPcd90QqeFg=w800)](https://lh3.googleusercontent.com/6Ec8bvVEihrP5GAtWrL4dr5yvB78OlwJTPcd90QqeFg=s0)
@@ -24,3 +26,7 @@ Tätä voisi kokeilla vaikeuttaa laittamalla laatikkoon esim. tennispalloja este
 [![](https://lh3.googleusercontent.com/puWBPYVRoOcJU_XtLO5qrTra-sXo8FYKITT7BZWcow8=w800)](https://lh3.googleusercontent.com/puWBPYVRoOcJU_XtLO5qrTra-sXo8FYKITT7BZWcow8=s0)
 
 [![](https://lh3.googleusercontent.com/xe6f2CtKp5T3RqqfZIFwUkse-rcqW2ckLQTsj9p66aY=w800)](https://lh3.googleusercontent.com/xe6f2CtKp5T3RqqfZIFwUkse-rcqW2ckLQTsj9p66aY=s0)
+
+[![](https://lh3.googleusercontent.com/YAUqDAX7BYUSsOm6Foww2oHq7GpJXJIpLt1l8d7BzQ0=w800)](https://lh3.googleusercontent.com/YAUqDAX7BYUSsOm6Foww2oHq7GpJXJIpLt1l8d7BzQ0=s0)
+
+[![](https://lh3.googleusercontent.com/Hah9gGXlzZoN8VqsDC1oipOf0pwmC5ZMnDUYmVVpgJM=w800)](https://lh3.googleusercontent.com/Hah9gGXlzZoN8VqsDC1oipOf0pwmC5ZMnDUYmVVpgJM=s0)

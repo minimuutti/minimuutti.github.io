@@ -15,6 +15,8 @@ It took Miki about four minutes to eat all the kibbles.
 
 You can make this game harder by placing a few tennis balls or other small balls as obstacles in the box with the treats. We haven't try this yet, because we don't have enough suitable balls at the moment.
 
+You can also make a similar game with less effort. I just cut the lid flaps of the box shorter and then secured them with masking tape. Look at the last two pictures. 
+
 ---
 
 [![](https://lh3.googleusercontent.com/6Ec8bvVEihrP5GAtWrL4dr5yvB78OlwJTPcd90QqeFg=w800)](https://lh3.googleusercontent.com/6Ec8bvVEihrP5GAtWrL4dr5yvB78OlwJTPcd90QqeFg=s0)
@@ -24,3 +26,7 @@ You can make this game harder by placing a few tennis balls or other small balls
 [![](https://lh3.googleusercontent.com/puWBPYVRoOcJU_XtLO5qrTra-sXo8FYKITT7BZWcow8=w800)](https://lh3.googleusercontent.com/puWBPYVRoOcJU_XtLO5qrTra-sXo8FYKITT7BZWcow8=s0)
 
 [![](https://lh3.googleusercontent.com/xe6f2CtKp5T3RqqfZIFwUkse-rcqW2ckLQTsj9p66aY=w800)](https://lh3.googleusercontent.com/xe6f2CtKp5T3RqqfZIFwUkse-rcqW2ckLQTsj9p66aY=s0)
+
+[![](https://lh3.googleusercontent.com/YAUqDAX7BYUSsOm6Foww2oHq7GpJXJIpLt1l8d7BzQ0=w800)](https://lh3.googleusercontent.com/YAUqDAX7BYUSsOm6Foww2oHq7GpJXJIpLt1l8d7BzQ0=s0)
+
+[![](https://lh3.googleusercontent.com/Hah9gGXlzZoN8VqsDC1oipOf0pwmC5ZMnDUYmVVpgJM=w800)](https://lh3.googleusercontent.com/Hah9gGXlzZoN8VqsDC1oipOf0pwmC5ZMnDUYmVVpgJM=s0)
