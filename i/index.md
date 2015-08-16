@@ -9,6 +9,12 @@ Yhteys: minimuutti.com(at)gmail.com
 
 Mikäli sinulla on hyviä aktivointivinkkejä tai kommentteja, tai olet kiinnostunut ostamaan jonkun valokuvistani, niin älä epäröi ottaa yhteyttä.
 
+Mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani, niin käytäthän alla olevia linkkejä kun seuraavan kerran asioit Zooplussan tai Mustin ja Mirrin verkkokaupassa.
+
+Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
+
+1CGjZKmgEaHmbqvfMxKbVgDf38gSAKUgYa
+
 ![](https://lh3.googleusercontent.com/T2AKpsd5XDhDlOFkaBTinOCVl7cRpR2_ld_sXtL7TuA=w447)
 
 ---
@@ -19,7 +25,8 @@ Mikäli sinulla on hyviä aktivointivinkkejä tai kommentteja, tai olet kiinnost
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* Lisätty uusia valokuvia kategoriaan; Kesä
+* 16.8.2015 Lisätty uusi aktivointivinkki; Herkkuhelmet
+* 16.8.2015 Lisätty uusia valokuvia kategoriaan; Kesä
 * 16.8.2015 Päivitetty aktivointivinkki; Mukidonitsi
 * 16.8.2015 Päivitetty aktivointivinkki; Kartonkipakkaukset
 * 16.8.2015 Päivitetty aktivointivinkki; DVD kotelo
