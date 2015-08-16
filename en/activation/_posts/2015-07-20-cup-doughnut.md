@@ -11,6 +11,8 @@ You need at least 10 carton or plastic cups and some string or yarn. I took 15 p
 
 It took Miki about 15 minutes to find all the treats.
 
+I made this game as cup tower too. I took 6 of these cups and wired them with a piece of yarn. I knotted the yarn in the midst cup and then I put the kibbles into the cups. Then I tightened the yarn and put another knot to the other end. It took about 5 minutes to destroy the cup tower.
+
 ---
 
 [![](https://lh3.googleusercontent.com/FcHiSga_H3WOs6vMRjGuXQQYNX4VeRsSAVi6ala2UQE=w800)](https://lh3.googleusercontent.com/FcHiSga_H3WOs6vMRjGuXQQYNX4VeRsSAVi6ala2UQE=s0)
@@ -26,3 +28,9 @@ It took Miki about 15 minutes to find all the treats.
 [![](https://lh3.googleusercontent.com/e11NxH4tPYFNfFJyInhKTv0n7ryNWtnxVKjdO-QjvUg=w800)](https://lh3.googleusercontent.com/e11NxH4tPYFNfFJyInhKTv0n7ryNWtnxVKjdO-QjvUg=s0)
 
 [![](https://lh3.googleusercontent.com/cTAaWa87J_OGbrE_AkbsF-S6X1TTNustssSuhB3HaCs=w800)](https://lh3.googleusercontent.com/cTAaWa87J_OGbrE_AkbsF-S6X1TTNustssSuhB3HaCs=s0)
+
+[![](https://lh3.googleusercontent.com/qANSGvHAQboYxaxeVlt_JvBrlt9FRYhM6HACLuaKO9I=w800)](https://lh3.googleusercontent.com/qANSGvHAQboYxaxeVlt_JvBrlt9FRYhM6HACLuaKO9I=s0)
+
+[![](https://lh3.googleusercontent.com/4EP3Z4XTFuKt3u_UONtwu3sgzK9zCf9c4o85K5n7zs0=w800)](https://lh3.googleusercontent.com/4EP3Z4XTFuKt3u_UONtwu3sgzK9zCf9c4o85K5n7zs0=s0)
+
+[![](https://lh3.googleusercontent.com/RgV43T1HPJjCRD_CqJUZbpeJuws-XamgUFGonDwRO_s=w800)](https://lh3.googleusercontent.com/RgV43T1HPJjCRD_CqJUZbpeJuws-XamgUFGonDwRO_s=s0)

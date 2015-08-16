@@ -19,6 +19,10 @@ Mikäli sinulla on hyviä aktivointivinkkejä tai kommentteja, tai olet kiinnost
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* Lisätty uusia valokuvia kategoriaan; Kesä
+* 16.8.2015 Päivitetty aktivointivinkki; Mukidonitsi
+* 16.8.2015 Päivitetty aktivointivinkki; Kartonkipakkaukset
+* 16.8.2015 Päivitetty aktivointivinkki; DVD kotelo
 * 14.8.2015 Lisätty uusi aktivointivinkki; Tötteröt
 * 14.8.2015 Lisätty uusi aktivointivinkki; Kupit vadissa
 * 12.8.2015 Lisätty uusi aktivointivinkki; Pallomeri
@@ -28,4 +32,3 @@ Uudet ja viimeksi päivitetyt osiot:
 * 10.8.2015 Lisätty uusi aktivointivinkki; Kangaspallo
 * 10.8.2015 Lisätty uusi aktivointivinkki; Narulaatikko
 * 10.8.2015 Lisätty uusi aktivointivinkki; Sateenvarjo
-* 

@@ -15,6 +15,8 @@ Pyöräilykypärän laatikko oli yllättävän vaikea Mikille, koska siellä sis
 
 Jos esim. maitotölkki on koirallesi liian vaikea, voit valmiiksi tehdä pienen reiän tölkin kylkeen tai antaa tölkin ilman kierrekorkkia.
 
+Kerran leikkasin foliorullan hylsystä noin 15 sentin mittaisen pätkän. Taitoin yhden ankkafileen ja yhden kanafileen keskeltä puoliksi, V- kirjaimen malliseksi. Sitten laitoin nämä päällekkäin niin, että tahmea ankkafile jäi päälimmäiseksi ja kanafile meni sisimmäiseksi ja tungin nämä tuonne hylsyn keskelle. Mikiltä kesti noin 5 minuuttia saada ne herkut ulos sieltä.
+
 Näitäkin tehtäviä voi vaikeuttaa ripustamalla namipaketin roikkumaan kaiteesta, puunoksasta tai vaikka tikapuista ja koiran on ensin saatava paketti alas. Tämä narulla ripustaminen on meillä vielä testaamatta.
 
 ---
@@ -28,3 +30,9 @@ Näitäkin tehtäviä voi vaikeuttaa ripustamalla namipaketin roikkumaan kaitees
 [![](https://lh3.googleusercontent.com/mTwsd3rhTmbEo0L4up4VRfbWKUmAfUeKnCN-xdGQ9ck=w800)](https://lh3.googleusercontent.com/mTwsd3rhTmbEo0L4up4VRfbWKUmAfUeKnCN-xdGQ9ck=s0)
 
 [![](https://lh3.googleusercontent.com/XizFBG4OmAxQIacl7EyMuJPumIU80hN47PGh23haEqg=w800)](https://lh3.googleusercontent.com/XizFBG4OmAxQIacl7EyMuJPumIU80hN47PGh23haEqg=s0)
+
+[![](https://lh3.googleusercontent.com/MgjMaFkpS-x25npw2XlbsDIjI94gwUwJC8Q00lo8T4M=w800)](https://lh3.googleusercontent.com/MgjMaFkpS-x25npw2XlbsDIjI94gwUwJC8Q00lo8T4M=s0)
+
+[![](https://lh3.googleusercontent.com/nYqAAjD8BjWQTcTyR0iz074rUxkxxpqSnkx7SNrAzP8=w800)](https://lh3.googleusercontent.com/nYqAAjD8BjWQTcTyR0iz074rUxkxxpqSnkx7SNrAzP8=s0)
+
+[![](https://lh3.googleusercontent.com/lBmPNZqy1sw6EhhlHB3NgWABHA7HGNSvj7oftrkdngs=w800)](https://lh3.googleusercontent.com/lBmPNZqy1sw6EhhlHB3NgWABHA7HGNSvj7oftrkdngs=s0)

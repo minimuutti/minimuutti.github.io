@@ -9,9 +9,9 @@ image:
 
 Tähän tarvitset kertakäyttöisiä pahvi- tai muovimukeja (miksei myös jogurttipurkkeja voisi kokeilla), narua tai lankaa ja mitä tahansa nameja. Mukeja kannattaa olla vähintään 10 kpl, itse laitoin 15 kpl pahvisia kahvimukeja.
 
-Pujotin 75 senttisen langanpätkän neulalla mukien pohjista läpi. Tämän jälkeen solmin narun alku- ja loppupään yhteen ja laitoin 1 tai 2 nappulaa jokaiseen kuppiin. 
+Pujotin 75 senttisen langanpätkän neulalla mukien pohjista läpi. Tämän jälkeen solmin narun alku- ja loppupään yhteen ja laitoin 1 tai 2 nappulaa jokaiseen kuppiin. Mikiltä kesti noin 15 minuuttia saada kaikki namit ulos tuolta.
 
-Mikiltä kesti noin 15 minuuttia saada kaikki namit ulos tuolta. 
+Tein tämän myös mukitornina, eli laitoin 6 pahvimukia päällekkäin ja pujotin neulalla langan niiden lävitse. Sitten laitoin langan solmuun sisimmäisen kupin sisään ja laitoin nappulat kuppeihin. Tämän jälkeen kiristin langan ja solmin sen. Mikiltä meni mukitornin tuhoamiseen noin 5 minuuttia.
 
 ---
 
@@ -28,3 +28,9 @@ Mikiltä kesti noin 15 minuuttia saada kaikki namit ulos tuolta.
 [![](https://lh3.googleusercontent.com/e11NxH4tPYFNfFJyInhKTv0n7ryNWtnxVKjdO-QjvUg=w800)](https://lh3.googleusercontent.com/e11NxH4tPYFNfFJyInhKTv0n7ryNWtnxVKjdO-QjvUg=s0)
 
 [![](https://lh3.googleusercontent.com/cTAaWa87J_OGbrE_AkbsF-S6X1TTNustssSuhB3HaCs=w800)](https://lh3.googleusercontent.com/cTAaWa87J_OGbrE_AkbsF-S6X1TTNustssSuhB3HaCs=s0)
+
+[![](https://lh3.googleusercontent.com/qANSGvHAQboYxaxeVlt_JvBrlt9FRYhM6HACLuaKO9I=w800)](https://lh3.googleusercontent.com/qANSGvHAQboYxaxeVlt_JvBrlt9FRYhM6HACLuaKO9I=s0)
+
+[![](https://lh3.googleusercontent.com/4EP3Z4XTFuKt3u_UONtwu3sgzK9zCf9c4o85K5n7zs0=w800)](https://lh3.googleusercontent.com/4EP3Z4XTFuKt3u_UONtwu3sgzK9zCf9c4o85K5n7zs0=s0)
+
+[![](https://lh3.googleusercontent.com/RgV43T1HPJjCRD_CqJUZbpeJuws-XamgUFGonDwRO_s=w800)](https://lh3.googleusercontent.com/RgV43T1HPJjCRD_CqJUZbpeJuws-XamgUFGonDwRO_s=s0)

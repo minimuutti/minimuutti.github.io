@@ -13,6 +13,8 @@ These packages are so easy for Miki, that I always tape them around before givin
 
 The biking helmet’s box was surprisingly hard for Miki, because there was this floor in the middle where the treats got stuck.
 
+Once I cut about 15 cm (5") long piece of empty tin foil roll. Then I took one sticky duck filet and one chicken filet and folded them in half (shaped like letter V). Then I tucked them into the midpoint of the roll. It took Miki about five minutes to get the treats out.
+
 If this is too easy for your dog, you can hang these packages from trees, railings or ladders, so the dog must first get the package down before he can start to tear it apart.
 
 ---
@@ -26,3 +28,9 @@ If this is too easy for your dog, you can hang these packages from trees, railin
 [![](https://lh3.googleusercontent.com/mTwsd3rhTmbEo0L4up4VRfbWKUmAfUeKnCN-xdGQ9ck=w800)](https://lh3.googleusercontent.com/mTwsd3rhTmbEo0L4up4VRfbWKUmAfUeKnCN-xdGQ9ck=s0)
 
 [![](https://lh3.googleusercontent.com/XizFBG4OmAxQIacl7EyMuJPumIU80hN47PGh23haEqg=w800)](https://lh3.googleusercontent.com/XizFBG4OmAxQIacl7EyMuJPumIU80hN47PGh23haEqg=s0)
+
+[![](https://lh3.googleusercontent.com/MgjMaFkpS-x25npw2XlbsDIjI94gwUwJC8Q00lo8T4M=w800)](https://lh3.googleusercontent.com/MgjMaFkpS-x25npw2XlbsDIjI94gwUwJC8Q00lo8T4M=s0)
+
+[![](https://lh3.googleusercontent.com/nYqAAjD8BjWQTcTyR0iz074rUxkxxpqSnkx7SNrAzP8=w800)](https://lh3.googleusercontent.com/nYqAAjD8BjWQTcTyR0iz074rUxkxxpqSnkx7SNrAzP8=s0)
+
+[![](https://lh3.googleusercontent.com/lBmPNZqy1sw6EhhlHB3NgWABHA7HGNSvj7oftrkdngs=w800)](https://lh3.googleusercontent.com/lBmPNZqy1sw6EhhlHB3NgWABHA7HGNSvj7oftrkdngs=s0)
