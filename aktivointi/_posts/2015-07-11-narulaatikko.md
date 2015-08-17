@@ -9,11 +9,13 @@ image:
 
 Tätä varten tarvitset pahvilaatikon ja maalarinteippiä tai muovisen säilytyskorin missä on reikiä kyljissä, villalankaa, sakset, neulan, sekä mitä tahansa nameja.
 
-Valitsin tähän pahvisen kenkälaatikon josta leikkasin kannen pois ja laitoin laatikon ympärille kierroksen maalarinteippiä vahvikkeeksi. Sitten tein saksenkärjillä reikiä laatikon kummallekin kyljelle vähän eri korkeuksille. Tämän jälkeen pujottelin villalankaa useamman kierroksen noista tekemistäni reijistä, aloittaen kulmasta. Lankaa kului noin viisi metriä. Päätin pujottelemisen samaan kulmaan mistä olin aloittanut ja solmin langan alku- ja loppupään yhteen. Saman voi tehdä myös muoviseen säilytyskoriin, jossa on jo valmiiksi reikiä kyljissä.
+Valitsin tähän pahvisen kenkälaatikon josta leikkasin kannen pois ja laitoin laatikon ympärille kierroksen maalarinteippiä vahvikkeeksi. Sitten tein saksenkärjillä reikiä laatikon kummallekin kyljelle vähän eri korkeuksille. Tämän jälkeen pujottelin villalankaa useamman kierroksen noista tekemistäni reijistä, aloittaen kulmasta. Lankaa kului noin viisi metriä. Päätin pujottelemisen samaan kulmaan mistä olin aloittanut ja solmin langan alku- ja loppupään yhteen.
 
 Tämän jälkeen laitoin laatikon pohjalle esteeksi muutaman tyhjän namituubin sekä pari pientä limupulloa ja ripottelin pieniä nameja tuonne väleihin. Mikiltä kesti noin 2-3 minuuttia etsiä vajaa kourallinen pieniä nameja. Esteeksi voi laittaa myös talouspaperihylsyjä, palloja, paperipalloja tai melkein mitä pieniä esineitä. Esteiden on kuitenkin oltava joko pehmeitä tai pyöreitä, jotta koira ei satuta kuonoaan auratessaan tuolla laatikossa.
 
 Tämän laatikon tekemiseen kului aikaa noin 10 minuuttia, mutta laatikko on uudelleenkäytettävä ja se on vaikuttaa myös melko kestävältä.
+
+Saman voi tehdä myös muoviseen säilytyskoriin, jossa on jo valmiiksi reikiä kyljissä (katso alimmaiset kuvat). Siinä käytin langan sijasta kangasta vanhasta t-paidasta, jonka olin leikannut yhdeksi pitkäksi suikaleeksi.
 
 ---
 
@@ -26,3 +28,9 @@ Tämän laatikon tekemiseen kului aikaa noin 10 minuuttia, mutta laatikko on uud
 [![](https://lh3.googleusercontent.com/lLl-vxGnX1RNH0Qsyx-MOFXNLywsHqjfV78isIWayAQ=w800)](https://lh3.googleusercontent.com/lLl-vxGnX1RNH0Qsyx-MOFXNLywsHqjfV78isIWayAQ=s0)
 
 [![](https://lh3.googleusercontent.com/klm3Mqa88Ocpmg1N3fjRoKBb-66kVDwcrbJBIqZ4Db0=w800)](https://lh3.googleusercontent.com/klm3Mqa88Ocpmg1N3fjRoKBb-66kVDwcrbJBIqZ4Db0=s0)
+
+[![](https://lh3.googleusercontent.com/zzhAaNIqDaCxiOlOda7htrWXkpGpd-5ww3lNDkgU6kg=w800)](https://lh3.googleusercontent.com/zzhAaNIqDaCxiOlOda7htrWXkpGpd-5ww3lNDkgU6kg=s0)
+
+[![](https://lh3.googleusercontent.com/3GM8v2rZRYJ0AicTKSu8KarWvKPwQBq_fD8LfKjQmDA=w800)](https://lh3.googleusercontent.com/3GM8v2rZRYJ0AicTKSu8KarWvKPwQBq_fD8LfKjQmDA=s0)
+
+[![](https://lh3.googleusercontent.com/o5jZNTP_QgHwn22KKdLmaX_GCruddM1E7R0PU7X921E=w800)](https://lh3.googleusercontent.com/o5jZNTP_QgHwn22KKdLmaX_GCruddM1E7R0PU7X921E=s0)

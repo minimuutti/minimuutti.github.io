@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 17.8.2015 Updated activation post; Yarn box
 * 16.8.2015 New activation post; Treat necklace
 * 16.8.2015 New photos added in category; Summer
 * 16.8.2015 Updated activation post; Cup doughnut
@@ -37,5 +38,4 @@ New and recently updated posts:
 * 11.8.2015 New activation post; Towel lasagna
 * 11.8.2015 New activation post; Cup doughnut
 * 10.8.2015 New activation post; Textile ball
-* 10.8.2015 New activation post; Yarn box
 * 10.8.2015 New activation post; Umbrellas

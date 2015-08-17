@@ -25,6 +25,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 17.8.2015 Päivitetty aktivointivinkki; Narulaatikko
 * 16.8.2015 Lisätty uusi aktivointivinkki; Herkkuhelmet
 * 16.8.2015 Lisätty uusia valokuvia kategoriaan; Kesä
 * 16.8.2015 Päivitetty aktivointivinkki; Mukidonitsi
@@ -37,5 +38,4 @@ Uudet ja viimeksi päivitetyt osiot:
 * 11.8.2015 Lisätty uusi aktivointivinkki; Pyyhelasagne
 * 11.8.2015 Lisätty uusi aktivointivinkki; Mukidonitsi
 * 10.8.2015 Lisätty uusi aktivointivinkki; Kangaspallo
-* 10.8.2015 Lisätty uusi aktivointivinkki; Narulaatikko
 * 10.8.2015 Lisätty uusi aktivointivinkki; Sateenvarjo

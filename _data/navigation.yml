@@ -67,12 +67,12 @@
     image:
 
 - fin:
-    title: i
-    url: /i/
+    title: info
+    url: /info/
     excerpt:
     image:
   en:
-    title: i
-    url: /en/i/
+    title: info
+    url: /en/info/
     excerpt:
     image:
