@@ -9,7 +9,6 @@ image:
 
 ### Some of the tricks that I’ll teach to Miki in the future
 
-* clean up his toys in the basket
 * stack the rings in the pole
 * roll over
 

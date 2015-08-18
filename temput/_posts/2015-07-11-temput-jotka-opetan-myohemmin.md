@@ -9,7 +9,6 @@ image:
 
 ### Tässä on lueteltuna sellaisia temppuja, jotka ainakin aion opettaa Mikille joskus tulevaisuudessa
 
-* kerää lelut koriin
 * kerää ja asettelee renkaat tikkuun
 * kieriminen
 
