@@ -31,7 +31,7 @@ This task is harder because of the lid in the big box. Your dog has to open the 
 
 Miki couldn't wait, so he desided to offer the box game :D
 
-[![](https://lh3.googleusercontent.com/ZZS2ww7TxkmDSAwhHSYmPJN3-cP1C7UYbhyYAFSxDis=w800)](https://lh3.googleusercontent.com/ZZS2ww7TxkmDSAwhHSYmPJN3-cP1C7UYbhyYAFSxDis=s0)
+[![](https://lh3.googleusercontent.com/BYx9rqQfbRh5ZMSs8t5iut5gFvnSKnoYBAMytqRt9BA=w800)](https://lh3.googleusercontent.com/BYx9rqQfbRh5ZMSs8t5iut5gFvnSKnoYBAMytqRt9BA=s0)
 
 Picture about the box game
 

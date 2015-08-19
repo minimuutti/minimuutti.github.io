@@ -45,5 +45,7 @@ image:
 ![](https://lh3.googleusercontent.com/LRjutbpFokXv1T4ta4gyuwharS25cfZCdM0DbuM4IbI=w245)
 ![](https://lh3.googleusercontent.com/TBSo3LQvM9hLKqn21RtZ7Lbw4_2hj1CcPjW9PI5BtD4=w245)
 ![](https://lh3.googleusercontent.com/o7MlqVfKG0J-Q3g0GynC1OqoeDL7AIwKSNkrTulcS8E=w245)
+![](https://lh3.googleusercontent.com/CW6fv19NFWYpPmZ9iP-ngcE5_IZWciL1Miy6VDvUJO8=w245)
+![](https://lh3.googleusercontent.com/VusyIIDvJuBYvpf1ClXuJQzFDVtKSpnZBCqWQWn1QsU=w245)
 
 * takatassut kosketusalustalle / back paws on touchpad

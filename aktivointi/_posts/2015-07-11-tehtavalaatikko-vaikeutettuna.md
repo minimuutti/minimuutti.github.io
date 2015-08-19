@@ -37,7 +37,7 @@ Ilmakuivatut [Thrive ProReward](http://clk.tradedoubler.com/click?p(210840)a(252
 
 Miki ei jaksanut odottaa laatikon kasausta, vaan päätti tarjota laatikkoleikkiä :D
 
-[![](https://lh3.googleusercontent.com/ZZS2ww7TxkmDSAwhHSYmPJN3-cP1C7UYbhyYAFSxDis=w800)](https://lh3.googleusercontent.com/ZZS2ww7TxkmDSAwhHSYmPJN3-cP1C7UYbhyYAFSxDis=s0)
+[![](https://lh3.googleusercontent.com/BYx9rqQfbRh5ZMSs8t5iut5gFvnSKnoYBAMytqRt9BA=w800)](https://lh3.googleusercontent.com/BYx9rqQfbRh5ZMSs8t5iut5gFvnSKnoYBAMytqRt9BA=s0)
 
 Kuva laatikkoleikistä
 
