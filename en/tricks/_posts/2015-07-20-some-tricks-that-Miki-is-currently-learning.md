@@ -41,5 +41,10 @@ image:
 ![](https://lh3.googleusercontent.com/QRB_ahmg6cvtiIJHyuU3wEJfM0aDHIy4Xl6RidYoi94=w245)
 ![](https://lh3.googleusercontent.com/Vfi-fczhsv2WwImBNzidi_iGTzoqjTNOybl3gM7PYd0=w222)
 
-* siivoa / clean up (clean up his toys into a basket)
+* siivoa / clean up (cleans up his toys into a basket or a basin)
+
+![](https://lh3.googleusercontent.com/LRjutbpFokXv1T4ta4gyuwharS25cfZCdM0DbuM4IbI=w245)
+![](https://lh3.googleusercontent.com/TBSo3LQvM9hLKqn21RtZ7Lbw4_2hj1CcPjW9PI5BtD4=w245)
+![](https://lh3.googleusercontent.com/o7MlqVfKG0J-Q3g0GynC1OqoeDL7AIwKSNkrTulcS8E=w245)
+
 * takatassut kosketusalustalle / back paws on touchpad
