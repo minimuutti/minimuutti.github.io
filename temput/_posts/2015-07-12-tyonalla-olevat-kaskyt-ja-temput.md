@@ -35,7 +35,6 @@ image:
 * luuppi (hyppää renkaan tai hulavanteen läpi)
 * vilkuta (Mikin olisi tarkoitus vilkuttaa vasemmalla tassulla, mutta tässä ollaan vasta alkutekijöissä)
 * suoraan (eli ei käänny risteyksestä oikealle eikä vasemmalle)
-* pidä (pitää esinettä suussaan kunnes saa luvan irrottaa, nyt ottaa esineen suuhun muttei pidä sitä vielä, vaan esine putoaa heti)
 * kärppä (nuolee huulia)
 
 ![](https://lh3.googleusercontent.com/QRB_ahmg6cvtiIJHyuU3wEJfM0aDHIy4Xl6RidYoi94=w245)

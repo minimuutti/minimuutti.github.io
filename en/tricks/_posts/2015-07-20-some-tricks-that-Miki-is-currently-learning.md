@@ -35,7 +35,6 @@ image:
 * luuppi / jump through a hulahoop
 * vilkuta / wave with left paw
 * suoraan / go straight (don't turn)
-* pidä / hold it
 * kärppä / weasel (licks his lips)
 
 ![](https://lh3.googleusercontent.com/QRB_ahmg6cvtiIJHyuU3wEJfM0aDHIy4Xl6RidYoi94=w245)
