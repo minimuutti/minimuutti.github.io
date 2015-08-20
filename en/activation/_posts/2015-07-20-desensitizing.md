@@ -1,5 +1,5 @@
 ---
-title: "Shaping or desensitizing"
+title: "Desensitizing"
 layout: article
 image:
   feature:
@@ -7,9 +7,9 @@ image:
   thumb:
 ---
 
-You may wanna desensitize something to your dog with shaping. For example I desensitized Miki to wear this furry cap. You may also like to desensitize your dog to wear something like the sunglasses or a biking helmet.
+You may wanna desensitize something to your dog with shaping. For example I desensitized Miki to wear this furry cap. You may also like to desensitize your dog to wear something like sunglasses or a biking helmet.
 
-If you know your dog is going to have some operation that requires the dog to wear the protective collar, you may wanna desensitize your dog to wear the protective collar before the actual operation.
+If you know your dog is going to have some operation that requires the dog to wear a protective collar, you may wanna desensitize your dog to wear the protective collar before the actual operation.
 
 ---
 

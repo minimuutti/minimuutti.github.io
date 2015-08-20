@@ -1,5 +1,5 @@
 ---
-title: "Siedättäminen tai sheippaaminen"
+title: "Siedättäminen sheippaamalla"
 layout: article
 image:
   feature:
@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Sitten aktivoinniksi voidaan kaiketi laskea kaiken tarpeellisen tai turhan asian siedättäminen tai sheippaaminen.
+Sitten aktivoinniksi voidaan kaiketi laskea kaiken tarpeellisen tai turhan asian siedättäminen sheippaamalla.
 
 Esimerkiksi opetin Mikin pitämään tätä karvahattua tai sitten voisi opettaa pitämään vaikka aurinkolaseja tai pyöräilykypärää.
 
