@@ -17,7 +17,7 @@ Jos esim. maitotölkki on koirallesi liian vaikea, voit valmiiksi tehdä pienen 
 
 Kerran leikkasin foliorullan hylsystä noin 15 sentin mittaisen pätkän. Taitoin yhden ankkafileen ja yhden kanafileen keskeltä puoliksi, V- kirjaimen malliseksi. Sitten laitoin nämä päällekkäin niin, että tahmea ankkafile jäi päälimmäiseksi ja kanafile meni sisimmäiseksi ja tungin nämä tuonne hylsyn keskelle. Mikiltä kesti noin 5 minuuttia saada ne herkut ulos sieltä.
 
-Näitäkin tehtäviä voi vaikeuttaa ripustamalla namipaketin roikkumaan kaiteesta, puunoksasta tai vaikka tikapuista ja koiran on ensin saatava paketti alas. Tämä narulla ripustaminen on meillä vielä testaamatta.
+Näitäkin tehtäviä voi vaikeuttaa ripustamalla namipaketin roikkumaan kaiteesta, puun oksasta tai vaikka tikapuista ja koiran on ensin saatava paketti alas. Tämä narulla ripustaminen on meillä vielä testaamatta.
 
 ---
 
