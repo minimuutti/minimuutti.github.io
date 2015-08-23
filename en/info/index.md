@@ -25,6 +25,11 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 23.8.2015 New activation post; Trivet
+* 23.8.2015 New activation post; Ikea's Mula wagon
+* 23.8.2015 New activation post; Obstacle box
+* 23.8.2015 Updated activation post; Two boxes, one inside another
+* 23.8.2015 New activation post; Hot air balloon
 * 17.8.2015 Updated activation post; Yarn box
 * 16.8.2015 New activation post; Treat necklace
 * 16.8.2015 New photos added in category; Summer
