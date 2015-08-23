@@ -15,7 +15,7 @@ If you find this site useful and you want to support me, you can donate bitcoins
 
 If you live in Finland, please use the links below next time you buy something from Zooplus' online store or from Musti ja Mirri's online store.
 
-![](https://lh3.googleusercontent.com/7t2IP__yL2cPL6Gp14SfCh9Ec9tnzH5ir-7LYkrLMJI=w447)
+![](https://lh3.googleusercontent.com/ZbOsFBcX0cv9FlobvH9rtMYUcin9wWVZnYAkwp31lzPbOCrVfDzGtY0Gcoyj2Ad5_Q_SkWyuKGYGJS6QX8o0booxad9SDaM8JLbXsWIzdAXB-xmVQuOTKgYzasYuZVHvnR7UPeL0i0x2tho033aN_WtVUnFJ_0hdkGS4_aYbJEwWeIr_jFx903hQHSkK3MaEUkrFGgda7Y9S1tvUXNhywbR_FlbO2-Fq-lBGjw9ACi3ane3qWXNU_JBQOs4u2Y4oesbLB_zez957YAusteuLBhP4P3M1-fyJhDomAKQFT4PZ1l-GRrzJ9HnxyulJ5B1M3ezuQXthzR1Yg81AFuf3MegAUbMcQ1CVZ13wQVtZ5R4LZTMSrTCUSC2ZL_YNfpn6evLhE9fDK14at7K_-H-ofCAYIlr27OrtX61_cjbd5M1kS6CmUloz2WDYqdTmdEaO5QmhM-WBDq7DNwI3Fbld0ArhIW52DWnMpDEoC3nZbkLLIkjDZ3udnfWJZMefdYDKSkqWmg=w447)
 
 ---
 

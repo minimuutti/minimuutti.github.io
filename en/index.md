@@ -3,7 +3,7 @@ title: "Home"
 layout: default
 ---
 
-# Welcome to a journey with Minimute!
+# Welcome to the journey with Minimute!
 
 ### First about Miki and something about me too
 
