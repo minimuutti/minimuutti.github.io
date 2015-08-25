@@ -7,9 +7,13 @@ image:
   thumb:
 ---
 
+Treats frozen inside ice are the best thing that you can give to your dog on a hot summer day.
+
 I put a small amount of water in the yoghurt cup and then put pieces of wiener there and then I put it in the freezer for two hours. Miki got the treats out about in a minute.
 
-Last time I did this, I put 1,5 cm (about 0,5 inch) of water in a larger cup, and I froze it without the treats. When this was frozen I added the treats and then put more water on top and froze it again. This time it took Miki about 20 minutes to get the treats out.
+Once I put 1,5 cm (about 0,5 inch) of water in a larger cup, and I froze it without the treats. When this was frozen I added the treats and then put more water on top and froze it again. This time it took Miki about 20 minutes to get the treats out.
+
+You can also freeze treats into an ice cube tray. Just put some small treats like tiny pieces of wiener in the tray and fill it with water. It needs to be in the freezer about 2 to 3 hours. It took Miki about fifteen minutes to eat all the treats from the ice cube tray.
 
 ---
 
@@ -22,3 +26,9 @@ Last time I did this, I put 1,5 cm (about 0,5 inch) of water in a larger cup, an
 [![](https://lh3.googleusercontent.com/gc44YigMpKIYrVomfimat_mcU1LTc2_ezxUEqnpUctY=w800)](https://lh3.googleusercontent.com/gc44YigMpKIYrVomfimat_mcU1LTc2_ezxUEqnpUctY=s0)
 
 [![](https://lh3.googleusercontent.com/GwTudBZdXkp5LlggSmQC9Nio6TnTKq6q6Jz50OocY3o=w800)](https://lh3.googleusercontent.com/GwTudBZdXkp5LlggSmQC9Nio6TnTKq6q6Jz50OocY3o=s0)
+
+[![](https://lh3.googleusercontent.com/PJzBvYZurVuImui05aSBZzPiBsULdkzvZedRNIO0qjzaCU-tJNqh4qEkNukTA9GE0ut6IQMfLgQhAFmugFxig-OpXMsL5oBi4j7GbjA81UyD496p6DopuGIIPGvBvxvARYrugQ0OQsiBgUuC41rbxsaJ5LPZcwnTWgE6FGOofvg0p6zkvJgvLwfCQhYsNxSlY9G6huMiSBcRvbmAMBraWhSp6DhzlCaZiTEkSB2Rzl2vSV4njCIE2DIKx-f6Dt6-i9vZ4FOG1FNBArierZC5ycpKshmgnRzN37AbEzSQSQX-HwsGwbHupdMC5okPmbm2xrGOhYXAf57KIfDcFv3zvuVXNqMxMJIpg24AGosV6iZ4a9EK9MpjheRpTdednJgwcMIxfcS_PT96D-L1NeCO6z8Gyp2JqCZ14x4KACNI14NLPaZv_jkXjajhAaVY3i2Ul1XitUbkZUw5WWCj8sxm8tYie9B5spY2xh6ONz0WRz2fYTCLVAleLrLlP4vKlTkh7-jIRA=w800)](https://lh3.googleusercontent.com/PJzBvYZurVuImui05aSBZzPiBsULdkzvZedRNIO0qjzaCU-tJNqh4qEkNukTA9GE0ut6IQMfLgQhAFmugFxig-OpXMsL5oBi4j7GbjA81UyD496p6DopuGIIPGvBvxvARYrugQ0OQsiBgUuC41rbxsaJ5LPZcwnTWgE6FGOofvg0p6zkvJgvLwfCQhYsNxSlY9G6huMiSBcRvbmAMBraWhSp6DhzlCaZiTEkSB2Rzl2vSV4njCIE2DIKx-f6Dt6-i9vZ4FOG1FNBArierZC5ycpKshmgnRzN37AbEzSQSQX-HwsGwbHupdMC5okPmbm2xrGOhYXAf57KIfDcFv3zvuVXNqMxMJIpg24AGosV6iZ4a9EK9MpjheRpTdednJgwcMIxfcS_PT96D-L1NeCO6z8Gyp2JqCZ14x4KACNI14NLPaZv_jkXjajhAaVY3i2Ul1XitUbkZUw5WWCj8sxm8tYie9B5spY2xh6ONz0WRz2fYTCLVAleLrLlP4vKlTkh7-jIRA=s0)
+
+[![](https://lh3.googleusercontent.com/5v514lSn5TEO7UW_vcEc3mxhLcvoaNsaOtrJwlbvC1V2vuJu2TcdoqhfpfcwyAstauBs2sX4iL3aYxtWwcBj_CcWFFvkDtqJerbK8JCXPCP16U4d8lGWFSGcQg5fTv-uzwDgvjU6FMB7Umlv5zjNacSsyGIpqidKrKhHC1kZhvhp_KkTm3mur_XtYDrpUNsCa-zgvq5H30A3zq1ZWDuOf0mtU7Br3l5vmuCLiSTcgfJL2Wy5S3Abgdgn2f6KVpdfAW5n7XmBDD6BmyTnGPqTgbB81Y3lP9B851zTdoPWstdrEXBe5G4BOvmKH8sZ8UqRcK1yv5BB8HFYl1N1fADL3GG3OOHZNu1WNstwabw5dLiOTehDe3VJYsYc2ri0uT-1K7mH7dikzTEzBbgmorBMcx0UGWn4gwK3mBkvRxJftLMY0v0MDDqrKKJR85oD0zCNEWvlcebh7Llfz2MNmiQ5eJTgWwKBmCtJr-3gtsAk8nrSYeF3Shd7Iy7oD576xk8AxJuR1A=w800)](https://lh3.googleusercontent.com/5v514lSn5TEO7UW_vcEc3mxhLcvoaNsaOtrJwlbvC1V2vuJu2TcdoqhfpfcwyAstauBs2sX4iL3aYxtWwcBj_CcWFFvkDtqJerbK8JCXPCP16U4d8lGWFSGcQg5fTv-uzwDgvjU6FMB7Umlv5zjNacSsyGIpqidKrKhHC1kZhvhp_KkTm3mur_XtYDrpUNsCa-zgvq5H30A3zq1ZWDuOf0mtU7Br3l5vmuCLiSTcgfJL2Wy5S3Abgdgn2f6KVpdfAW5n7XmBDD6BmyTnGPqTgbB81Y3lP9B851zTdoPWstdrEXBe5G4BOvmKH8sZ8UqRcK1yv5BB8HFYl1N1fADL3GG3OOHZNu1WNstwabw5dLiOTehDe3VJYsYc2ri0uT-1K7mH7dikzTEzBbgmorBMcx0UGWn4gwK3mBkvRxJftLMY0v0MDDqrKKJR85oD0zCNEWvlcebh7Llfz2MNmiQ5eJTgWwKBmCtJr-3gtsAk8nrSYeF3Shd7Iy7oD576xk8AxJuR1A=ws0)
+
+[![](https://lh3.googleusercontent.com/aUrFqwLhSZZGY-GKPXNPUbbIk8hrmIct66nCIjOST16aU994iFK1ogNIr8Bvo37SOKq1uk5JWIQV0MI8B_bdeJAAC3dadDutVV6nuN2dDMWdgj_sHxFQSLpCzd2XjQVGAZLwrDp9mWRvy9E6D9wbXJHJVSHEpikeJ9EpMrQqbyi4sIct5V62OoYupRUN71RXqP2AuHNxJVF4En74QPuc4_GLqvGK8OoU_ngN4tfK5cxjS_aWQLsOWetgkk9JM2U6YFpdpYMR9PvdeQr-Rsu7TuH9Sssc-z_trLbHoIFziQ6HBdHfZLnoC6ljbcra2ZSb-vLR4S5_f0_X03lUXLO9nAsLWbBugPUVdJlq6Yz5tNFgWZx28fTSL9mDnueGOHTdBtuOMVf5Dt7f6UhCVU693TA2Mdutr9SBwBOoij24VN1VqrLjLKts1Y-ikyAamtm6eTF10GUhvWqb1Gxs47nY9OrQqZWm_bQHEkhjFDirRF0kLQQnTbeeWk_V9jrGywmQBZOkHQ=w800)](https://lh3.googleusercontent.com/aUrFqwLhSZZGY-GKPXNPUbbIk8hrmIct66nCIjOST16aU994iFK1ogNIr8Bvo37SOKq1uk5JWIQV0MI8B_bdeJAAC3dadDutVV6nuN2dDMWdgj_sHxFQSLpCzd2XjQVGAZLwrDp9mWRvy9E6D9wbXJHJVSHEpikeJ9EpMrQqbyi4sIct5V62OoYupRUN71RXqP2AuHNxJVF4En74QPuc4_GLqvGK8OoU_ngN4tfK5cxjS_aWQLsOWetgkk9JM2U6YFpdpYMR9PvdeQr-Rsu7TuH9Sssc-z_trLbHoIFziQ6HBdHfZLnoC6ljbcra2ZSb-vLR4S5_f0_X03lUXLO9nAsLWbBugPUVdJlq6Yz5tNFgWZx28fTSL9mDnueGOHTdBtuOMVf5Dt7f6UhCVU693TA2Mdutr9SBwBOoij24VN1VqrLjLKts1Y-ikyAamtm6eTF10GUhvWqb1Gxs47nY9OrQqZWm_bQHEkhjFDirRF0kLQQnTbeeWk_V9jrGywmQBZOkHQ=s0)

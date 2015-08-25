@@ -25,6 +25,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 24.8.2015 Päivitetty aktivointivinkki; Jään sisällä olevat namit
 * 23.8.2015 Lisätty uusi aktivointivinkki; Ritilä
 * 23.8.2015 Lisätty uusi aktivointivinkki; Ikean Mula vaunu
 * 23.8.2015 Lisätty uusi aktivointivinkki; Estelaatikko
