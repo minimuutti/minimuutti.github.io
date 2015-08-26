@@ -1,0 +1,24 @@
+---
+title: "Lava lamps"
+layout: article
+image:
+  feature:
+  teaser: https://lh3.googleusercontent.com/314YmU2HPXTumElk1P7oiw2CITop6s_S0kZH49gBLuo=w245
+  thumb:
+---
+
+I made these lava lamp looking cones by using Ikea’s Kalas cups and paper cups. I put some kibbles in each paper cup and then I pushed the plastic cups on top of them.
+
+It took Miki about three minutes to get all the kibbles from these six lava lamps.
+
+---
+
+[![](https://lh3.googleusercontent.com/pX7cF8nvFcEtwo8yL7gWCAKwXLlMNKjDUeJXka4qugY=w800)](https://lh3.googleusercontent.com/pX7cF8nvFcEtwo8yL7gWCAKwXLlMNKjDUeJXka4qugY=s0)
+
+[![](https://lh3.googleusercontent.com/4ID9G8XESxEfvl8f2ZeipdWZB3azkwAlXmmDX7qkMGA=w800)](https://lh3.googleusercontent.com/4ID9G8XESxEfvl8f2ZeipdWZB3azkwAlXmmDX7qkMGA=s0)
+
+[![](https://lh3.googleusercontent.com/3kRVRNnxzyTLSbC8NTz18jKwO_jtK_RZrq48N8hacsU=w800)](https://lh3.googleusercontent.com/3kRVRNnxzyTLSbC8NTz18jKwO_jtK_RZrq48N8hacsU=s0)
+
+[![](https://lh3.googleusercontent.com/ECpTDelCLc5WcPXYXyR5HF_81sMfgQMnnpSIKMcG8yc=w800)](https://lh3.googleusercontent.com/ECpTDelCLc5WcPXYXyR5HF_81sMfgQMnnpSIKMcG8yc=s0)
+
+[![](https://lh3.googleusercontent.com/Ks-O9S2e2iqmAY_58SP8X_8PASgcTJOzKUBC06-QGTk=w800)](https://lh3.googleusercontent.com/Ks-O9S2e2iqmAY_58SP8X_8PASgcTJOzKUBC06-QGTk=s0)

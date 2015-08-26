@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 26.8.2015 New activation post; Lava lamps
 * 24.8.2015 Updated activation post; Treats frozen inside ice
 * 23.8.2015 New activation post; Trivet
 * 23.8.2015 New activation post; Ikea's Mula wagon
