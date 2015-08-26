@@ -1,5 +1,5 @@
 ---
-title: "Käveleminen oudoilla pinnoilla"
+title: "Käveleminen uusilla pinnoilla"
 layout: article
 image:
   feature:

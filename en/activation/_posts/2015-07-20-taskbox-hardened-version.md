@@ -11,6 +11,8 @@ You need one big cardboard box with a lid, three or four small carton packages, 
 
 I start by making 40 to 50 paperballs, one or two kibbles or a treat in each. Then I put some of these paperballs inside the smaller boxes and tape them around. Then I put these small boxes in the big box. If there’s any paperballs left, I put them in the big box as well. If I have any kibbles or treats left, I sprinkle them in the big box as well.
 
+You can put other small tasks in the big box as well, like [DVD case](http://minimuutti.com/en/activation/dvd-case/), a treat dispenser toy, [magazine roll](http://minimuutti.com/en/activation/magazine-roll/), [textile ball](http://minimuutti.com/en/activation/textile-ball/) or even [lava lamps](http://minimuutti.com/en/activation/lava-lamps/).
+
 This task is harder because of the lid in the big box. Your dog has to open the lid each time he wants to get something out from it. When sometimes the big box’s lid remains open, I simply close it so Miki needs to open it again.
 
 ---

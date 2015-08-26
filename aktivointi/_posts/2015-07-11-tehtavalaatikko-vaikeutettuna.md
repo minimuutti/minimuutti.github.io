@@ -15,6 +15,8 @@ Pienemmät kartonkilaatikot voi myös täyttää näillä paperipalloilla ja tei
 
 Jos paperipalloja on vielä jäljellä, laitan ne irrallaan sinne isoon pahvilaatikkoon ja loput nappulat voi ripotella sinne väleihin.
 
+Laatikkoon voi näiden lisäksi laittaa muitakin pieniä tehtäviä, kuten vaikka [DVD kotelon](http://minimuutti.com/aktivointi/dvd-kotelo/), ruokaa sisältävän aktivointilelun, [lehtirullan](http://minimuutti.com/aktivointi/lehtirulla/), [kangaspallon](http://minimuutti.com/aktivointi/kangaspallo/), [farkkusolmun](http://minimuutti.com/aktivointi/farkkusolmu/) tai vaikka [laavalamppuja](http://minimuutti.com/aktivointi/laavalamput/).
+
 Mikillä kestää tällaisen vaikeutetun tehtävälaatikon tyhjäksi syöminen noin 10 minuuttia. Ja tehtävää vaikeuttaa tuon ison pahvilaatikon kansi, kun Mikin on ensin aina avattava tuo kansi saadakseen sieltä sisältä uuden tehtävän. Kannen saa auki vain nostamalla sitä vasemmasta reunasta (muilta reunoilta reunalipare on irrotettu).  Jos kansi joskus jää auki, niin laitan sen kiinni jotta Mikillä olisi enemmän työtä.
 
 ---

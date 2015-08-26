@@ -3,7 +3,7 @@ title: "Lava lamps"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/314YmU2HPXTumElk1P7oiw2CITop6s_S0kZH49gBLuo=w245
+  teaser: https://lh3.googleusercontent.com/bpTJtxlTfh_kFuOmJn0z3dnj9cSzrzdsYQHiQfOyEqg=w245
   thumb:
 ---
 
@@ -13,7 +13,9 @@ It took Miki about three minutes to get all the kibbles from these six lava lamp
 
 ---
 
-[![](https://lh3.googleusercontent.com/pX7cF8nvFcEtwo8yL7gWCAKwXLlMNKjDUeJXka4qugY=w800)](https://lh3.googleusercontent.com/pX7cF8nvFcEtwo8yL7gWCAKwXLlMNKjDUeJXka4qugY=s0)
+[![](https://lh3.googleusercontent.com/KcoJWdtAq6pYkHnXN5DRe7cH4bY-h5r5K1HavgOuojE=w800)](https://lh3.googleusercontent.com/KcoJWdtAq6pYkHnXN5DRe7cH4bY-h5r5K1HavgOuojE=s0)
+
+[![](https://lh3.googleusercontent.com/MbkQxbNFOZ-4u8L4zkwMERooBTeo3ZVRLHd29H-3GKI=w800)](https://lh3.googleusercontent.com/MbkQxbNFOZ-4u8L4zkwMERooBTeo3ZVRLHd29H-3GKI=s0)
 
 [![](https://lh3.googleusercontent.com/4ID9G8XESxEfvl8f2ZeipdWZB3azkwAlXmmDX7qkMGA=w800)](https://lh3.googleusercontent.com/4ID9G8XESxEfvl8f2ZeipdWZB3azkwAlXmmDX7qkMGA=s0)
 
@@ -21,4 +23,4 @@ It took Miki about three minutes to get all the kibbles from these six lava lamp
 
 [![](https://lh3.googleusercontent.com/ECpTDelCLc5WcPXYXyR5HF_81sMfgQMnnpSIKMcG8yc=w800)](https://lh3.googleusercontent.com/ECpTDelCLc5WcPXYXyR5HF_81sMfgQMnnpSIKMcG8yc=s0)
 
-[![](https://lh3.googleusercontent.com/Ks-O9S2e2iqmAY_58SP8X_8PASgcTJOzKUBC06-QGTk=w800)](https://lh3.googleusercontent.com/Ks-O9S2e2iqmAY_58SP8X_8PASgcTJOzKUBC06-QGTk=s0)
+[![](https://lh3.googleusercontent.com/OILTNXgwIBQO5VXSSBH9lZkEthoFiw6leu3kFfdGN_k=w800)](https://lh3.googleusercontent.com/OILTNXgwIBQO5VXSSBH9lZkEthoFiw6leu3kFfdGN_k=s0)
