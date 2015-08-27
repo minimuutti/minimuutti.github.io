@@ -15,16 +15,24 @@ Putkipiilon kokoaminen on todella yksinkertaista. Laitoin pyyhkeen sisään muut
 
 Ensimmäisellä kerralla jätin pyyhkeen putken toiseen reunaan ja Miki sai sen ulos noin minuutissa. Toisella kerralla laitoin pyyhkeen ihan putkilon keskelle ja tällä kertaa Mikiltä kesti 10 minuuttia saada pyyhe ulos.
 
+Kokeilin tätä samaa leikkiä rullatulla kylpypyyhkeellä ja muoviputkella. Miki sai tästä namit ulos noin kahdessa minuutissa.
+
 ---
 
-[![](https://lh3.googleusercontent.com/4_hncgkD63cYjlmcczVQ-SVzigA92XECyvAsLxzoySc=w1391-h990-no)](https://lh3.googleusercontent.com/4_hncgkD63cYjlmcczVQ-SVzigA92XECyvAsLxzoySc=w1391-h990-no)
+[![](https://lh3.googleusercontent.com/4_hncgkD63cYjlmcczVQ-SVzigA92XECyvAsLxzoySc=w800)](https://lh3.googleusercontent.com/4_hncgkD63cYjlmcczVQ-SVzigA92XECyvAsLxzoySc=s0)
 
-[![](https://lh3.googleusercontent.com/lD5SA53rB-jBUOBqfZ9FYyPtMyb1u1x5F67OMVivjUM=w1439-h989-no)](https://lh3.googleusercontent.com/lD5SA53rB-jBUOBqfZ9FYyPtMyb1u1x5F67OMVivjUM=w1439-h989-no)
+[![](https://lh3.googleusercontent.com/lD5SA53rB-jBUOBqfZ9FYyPtMyb1u1x5F67OMVivjUM=w800)](https://lh3.googleusercontent.com/lD5SA53rB-jBUOBqfZ9FYyPtMyb1u1x5F67OMVivjUM=s0)
 
-[![](https://lh3.googleusercontent.com/wYYI9jc3eJbOvHTFFd6H-rRiBSTePM6OJG-LlKe31s0=w1489-h989-no)](https://lh3.googleusercontent.com/wYYI9jc3eJbOvHTFFd6H-rRiBSTePM6OJG-LlKe31s0=w1489-h989-no)
+[![](https://lh3.googleusercontent.com/wYYI9jc3eJbOvHTFFd6H-rRiBSTePM6OJG-LlKe31s0=w800)](https://lh3.googleusercontent.com/wYYI9jc3eJbOvHTFFd6H-rRiBSTePM6OJG-LlKe31s0=s0)
 
-[![](https://lh3.googleusercontent.com/zwCb5_kYlcUtq-bxGQVPjsxY6kTLF02y8itKtiWL3S4=w1489-h989-no)](https://lh3.googleusercontent.com/zwCb5_kYlcUtq-bxGQVPjsxY6kTLF02y8itKtiWL3S4=w1489-h989-no)
+[![](https://lh3.googleusercontent.com/zwCb5_kYlcUtq-bxGQVPjsxY6kTLF02y8itKtiWL3S4=w800)](https://lh3.googleusercontent.com/zwCb5_kYlcUtq-bxGQVPjsxY6kTLF02y8itKtiWL3S4=s0)
 
-[![](https://lh3.googleusercontent.com/Tw6G2BjdsKVOcs2dQD5aMvHlQg_V_W9Rlwpyp6wgxjY=w1489-h989-no)](https://lh3.googleusercontent.com/Tw6G2BjdsKVOcs2dQD5aMvHlQg_V_W9Rlwpyp6wgxjY=w1489-h989-no)
+[![](https://lh3.googleusercontent.com/Tw6G2BjdsKVOcs2dQD5aMvHlQg_V_W9Rlwpyp6wgxjY=w800)](https://lh3.googleusercontent.com/Tw6G2BjdsKVOcs2dQD5aMvHlQg_V_W9Rlwpyp6wgxjY=s0)
 
-[![](https://lh3.googleusercontent.com/0b-tgneqN1xE0xhp9LU15IO5Grn7pUfZluQ_D6vGu1M=w1461-h989-no)](https://lh3.googleusercontent.com/0b-tgneqN1xE0xhp9LU15IO5Grn7pUfZluQ_D6vGu1M=w1461-h989-no)
+[![](https://lh3.googleusercontent.com/0b-tgneqN1xE0xhp9LU15IO5Grn7pUfZluQ_D6vGu1M=w800)](https://lh3.googleusercontent.com/0b-tgneqN1xE0xhp9LU15IO5Grn7pUfZluQ_D6vGu1M=s0)
+
+[![](https://lh3.googleusercontent.com/71rZCzMmIVQzYrDwTvTio0L1jfcGhrOIvbM8f1u4Clw=w800)](https://lh3.googleusercontent.com/71rZCzMmIVQzYrDwTvTio0L1jfcGhrOIvbM8f1u4Clw=s0)
+
+[![](https://lh3.googleusercontent.com/_OzDJ9btIzMyun_ZLs0HhagFy8n5F3vBQK6RbyJrqrE=w800)](https://lh3.googleusercontent.com/_OzDJ9btIzMyun_ZLs0HhagFy8n5F3vBQK6RbyJrqrE=s0)
+
+[![](https://lh3.googleusercontent.com/CVEkgYbs5rtC8dg7fOb4NVyVWW5TEEotMVs_J-gw-tY=w800)](https://lh3.googleusercontent.com/CVEkgYbs5rtC8dg7fOb4NVyVWW5TEEotMVs_J-gw-tY=s0)

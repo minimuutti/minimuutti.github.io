@@ -20,7 +20,7 @@ I put some treats on the bottom of the box and then I just laid the towel on top
 
 ### Variation 2
 
-I put some treats on the bottom of the box. After this I laid the towel on top of the box and then I fold the edges under the box. It took Miki under a minute to find all the treats.
+I put some treats on the bottom of the box. After this I laid the towel on top of the box and then I folded the edges under the box. It took Miki under a minute to find all the treats.
 
 [![](https://lh3.googleusercontent.com/b53aR3BYxzn2H-euOnuBUtpuhVNC_REtXOOviZPuaO4=w1489-h989-no)](https://lh3.googleusercontent.com/b53aR3BYxzn2H-euOnuBUtpuhVNC_REtXOOviZPuaO4=w1489-h989-no)
 
@@ -28,7 +28,7 @@ I put some treats on the bottom of the box. After this I laid the towel on top o
 
 ### Variation 3
 
-I made this game similar to variation 2, but I fold the towel tight under the box. It took miki just over a minute to find all the treats.
+I made this game similar to variation 2, but I folded the towel tight under the box. It took miki just over a minute to find all the treats.
 
 [![](https://lh3.googleusercontent.com/9DE4BSADUHPZ5CN3YRSaiJPuJ89EB6AtVlsOLIAk2Ok=w1489-h989-no)](https://lh3.googleusercontent.com/9DE4BSADUHPZ5CN3YRSaiJPuJ89EB6AtVlsOLIAk2Ok=w1489-h989-no)
 
@@ -38,7 +38,7 @@ I made this game similar to variation 2, but I fold the towel tight under the bo
 
 ### Variation 4
 
-I put some treats on the bottom of the box and then I fold the towel and put it into the box. It took Miki about a minute to find all the treats.
+I put some treats on the bottom of the box and then I folded the towel and put it into the box. It took Miki about a minute to find all the treats.
 
 [![](https://lh3.googleusercontent.com/I2kD_7Q7WrTKANvUhZK__rBEglS0u1LU-HSZL0zZ94A=w1489-h989-no)](https://lh3.googleusercontent.com/I2kD_7Q7WrTKANvUhZK__rBEglS0u1LU-HSZL0zZ94A=w1489-h989-no)
 
@@ -46,7 +46,7 @@ I put some treats on the bottom of the box and then I fold the towel and put it 
 
 ### Variation 5
 
-I put some treats on the bottom of the box. Then I fold the towel and I put some treats in foldings as well and then I placed the towel in the box. It took Miki about two minutes to find all the treats.
+I put some treats on the bottom of the box. Then I folded the towel and I put some treats in foldings as well and then I placed the towel in the box. It took Miki about two minutes to find all the treats.
 
 [![](https://lh3.googleusercontent.com/t_cj6t3nf1WWCYTeEXpGKVsNMrKisTSE6DCgtgJbKYw=w1489-h989-no)](https://lh3.googleusercontent.com/t_cj6t3nf1WWCYTeEXpGKVsNMrKisTSE6DCgtgJbKYw=w1489-h989-no)
 

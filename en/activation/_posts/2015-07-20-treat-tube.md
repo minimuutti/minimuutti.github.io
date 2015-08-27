@@ -17,16 +17,24 @@ This is one of the easiest games you can make for your dog. Just put the treats 
 
 At the first time I gave this to Miki, I placed the towel near the other end of the tube, and Miki got the towel out within a minute. At the second time, I placed the towel in the midpoint and it took Miki 10 minutes to get the towel out.
 
+We also played this game with a rolled bath towel and a cut form a plastic pipe. It took Miki about two minutes to get the treats out.
+
 ---
 
-[![](https://lh3.googleusercontent.com/4_hncgkD63cYjlmcczVQ-SVzigA92XECyvAsLxzoySc=w1391-h990-no)](https://lh3.googleusercontent.com/4_hncgkD63cYjlmcczVQ-SVzigA92XECyvAsLxzoySc=w1391-h990-no)
+[![](https://lh3.googleusercontent.com/4_hncgkD63cYjlmcczVQ-SVzigA92XECyvAsLxzoySc=w800)](https://lh3.googleusercontent.com/4_hncgkD63cYjlmcczVQ-SVzigA92XECyvAsLxzoySc=s0)
 
-[![](https://lh3.googleusercontent.com/lD5SA53rB-jBUOBqfZ9FYyPtMyb1u1x5F67OMVivjUM=w1439-h989-no)](https://lh3.googleusercontent.com/lD5SA53rB-jBUOBqfZ9FYyPtMyb1u1x5F67OMVivjUM=w1439-h989-no)
+[![](https://lh3.googleusercontent.com/lD5SA53rB-jBUOBqfZ9FYyPtMyb1u1x5F67OMVivjUM=w800)](https://lh3.googleusercontent.com/lD5SA53rB-jBUOBqfZ9FYyPtMyb1u1x5F67OMVivjUM=s0)
 
-[![](https://lh3.googleusercontent.com/wYYI9jc3eJbOvHTFFd6H-rRiBSTePM6OJG-LlKe31s0=w1489-h989-no)](https://lh3.googleusercontent.com/wYYI9jc3eJbOvHTFFd6H-rRiBSTePM6OJG-LlKe31s0=w1489-h989-no)
+[![](https://lh3.googleusercontent.com/wYYI9jc3eJbOvHTFFd6H-rRiBSTePM6OJG-LlKe31s0=w800)](https://lh3.googleusercontent.com/wYYI9jc3eJbOvHTFFd6H-rRiBSTePM6OJG-LlKe31s0=s0)
 
-[![](https://lh3.googleusercontent.com/zwCb5_kYlcUtq-bxGQVPjsxY6kTLF02y8itKtiWL3S4=w1489-h989-no)](https://lh3.googleusercontent.com/zwCb5_kYlcUtq-bxGQVPjsxY6kTLF02y8itKtiWL3S4=w1489-h989-no)
+[![](https://lh3.googleusercontent.com/zwCb5_kYlcUtq-bxGQVPjsxY6kTLF02y8itKtiWL3S4=w800)](https://lh3.googleusercontent.com/zwCb5_kYlcUtq-bxGQVPjsxY6kTLF02y8itKtiWL3S4=s0)
 
-[![](https://lh3.googleusercontent.com/Tw6G2BjdsKVOcs2dQD5aMvHlQg_V_W9Rlwpyp6wgxjY=w1489-h989-no)](https://lh3.googleusercontent.com/Tw6G2BjdsKVOcs2dQD5aMvHlQg_V_W9Rlwpyp6wgxjY=w1489-h989-no)
+[![](https://lh3.googleusercontent.com/Tw6G2BjdsKVOcs2dQD5aMvHlQg_V_W9Rlwpyp6wgxjY=w800)](https://lh3.googleusercontent.com/Tw6G2BjdsKVOcs2dQD5aMvHlQg_V_W9Rlwpyp6wgxjY=s0)
 
-[![](https://lh3.googleusercontent.com/0b-tgneqN1xE0xhp9LU15IO5Grn7pUfZluQ_D6vGu1M=w1461-h989-no)](https://lh3.googleusercontent.com/0b-tgneqN1xE0xhp9LU15IO5Grn7pUfZluQ_D6vGu1M=w1461-h989-no)
+[![](https://lh3.googleusercontent.com/0b-tgneqN1xE0xhp9LU15IO5Grn7pUfZluQ_D6vGu1M=w800)](https://lh3.googleusercontent.com/0b-tgneqN1xE0xhp9LU15IO5Grn7pUfZluQ_D6vGu1M=s0)
+
+[![](https://lh3.googleusercontent.com/71rZCzMmIVQzYrDwTvTio0L1jfcGhrOIvbM8f1u4Clw=w800)](https://lh3.googleusercontent.com/71rZCzMmIVQzYrDwTvTio0L1jfcGhrOIvbM8f1u4Clw=s0)
+
+[![](https://lh3.googleusercontent.com/_OzDJ9btIzMyun_ZLs0HhagFy8n5F3vBQK6RbyJrqrE=w800)](https://lh3.googleusercontent.com/_OzDJ9btIzMyun_ZLs0HhagFy8n5F3vBQK6RbyJrqrE=s0)
+
+[![](https://lh3.googleusercontent.com/CVEkgYbs5rtC8dg7fOb4NVyVWW5TEEotMVs_J-gw-tY=w800)](https://lh3.googleusercontent.com/CVEkgYbs5rtC8dg7fOb4NVyVWW5TEEotMVs_J-gw-tY=s0)

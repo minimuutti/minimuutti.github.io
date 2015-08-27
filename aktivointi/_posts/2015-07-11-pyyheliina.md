@@ -17,6 +17,8 @@ Nykyään rullaan kylpypyyhkeen pitkittäin pitkäksi pötköksi. Nami kannattaa
 
 Kannattaa käyttää jotain kuivia nameja. Pari kertaa olen laittanut nakin palan, eikä Miki tule silloin avanneeksi solmuja vaan se kuolaa pyyhkeen märäksi nakin kohdalta ja mussuttaa sen nesteenä pyyhkeen läpi. Kuivien namien kanssa pyyhettä ei myöskään tarvitse pestä jokaisen käytön jälkeen.
 
+Pyyhkeen voi ensin laittaa myös matalan laatikon sisään, josta koiran on ensin ongittava se ulos. Pyyhkeen voi laittaa myös alassuin käännetyn laatikon alle, jolloin koiran tulee ensin siirtää tuo laatikko pois tieltä.
+
 ---
 
 [![](https://lh3.googleusercontent.com/EUGEMklxbux158kHddEHOsDAixgJ8wfKUzdZzNDo2Cg=w800)](https://lh3.googleusercontent.com/EUGEMklxbux158kHddEHOsDAixgJ8wfKUzdZzNDo2Cg=s0)
@@ -28,3 +30,13 @@ Kannattaa käyttää jotain kuivia nameja. Pari kertaa olen laittanut nakin pala
 [![](https://lh3.googleusercontent.com/EIUowJnFzROpWme2aqztpsmWjmPzB_kjyxE2gmmu4yo=w800)](https://lh3.googleusercontent.com/EIUowJnFzROpWme2aqztpsmWjmPzB_kjyxE2gmmu4yo=s0)
 
 [![](https://lh3.googleusercontent.com/i89khDJ-eN2d2FbF5t1xjMfWx8KZrIrFyl9u_LUhrCU=w800)](https://lh3.googleusercontent.com/i89khDJ-eN2d2FbF5t1xjMfWx8KZrIrFyl9u_LUhrCU=s0)
+
+[![](https://lh3.googleusercontent.com/5INXkR8MPsvUOAUdsUe5zoFlY2UtnR-TAv8aYH8Y2FE=w800)](https://lh3.googleusercontent.com/5INXkR8MPsvUOAUdsUe5zoFlY2UtnR-TAv8aYH8Y2FE=s0)
+
+[![](https://lh3.googleusercontent.com/D5IAqsXZz44y7ZymZ-ktFRU8g-FSYLzb-pK0EuZAtdQ=w800)](https://lh3.googleusercontent.com/D5IAqsXZz44y7ZymZ-ktFRU8g-FSYLzb-pK0EuZAtdQ=s0)
+
+[![](https://lh3.googleusercontent.com/fzZb3_GoY0BztcEnN4Kp1-qBlbvI_Ar6pSxf28xIiPQ=w800)](https://lh3.googleusercontent.com/fzZb3_GoY0BztcEnN4Kp1-qBlbvI_Ar6pSxf28xIiPQ=s0)
+
+[![](https://lh3.googleusercontent.com/yD-6KYJS0pRp3eI6TGMpxkpUIG1RpANQx27IEuzs6RY=w800)](https://lh3.googleusercontent.com/yD-6KYJS0pRp3eI6TGMpxkpUIG1RpANQx27IEuzs6RY=s0)
+
+[![](https://lh3.googleusercontent.com/BS6Bjp5OMILH4QZvz_I8XCYPS3ykWok4wqRuiVEr3Jc=w800)](https://lh3.googleusercontent.com/BS6Bjp5OMILH4QZvz_I8XCYPS3ykWok4wqRuiVEr3Jc=s0)
