@@ -242,6 +242,10 @@ image:
 ![](https://lh3.googleusercontent.com/M2GlcWPFGU9ga045OMmy8tZAIcq-J91Ju3ny9GKMpeo=w245)
 
 * dough! (laittaa tassun silmille)
+
+![](https://lh3.googleusercontent.com/nX9B7fzY4iEZEWPTI1QWIAJj9vP407VE1_MKHfFZRpM=w245)
+![](https://lh3.googleusercontent.com/xysIQYZqu4ECkxK-YJmO-LWemrz0BXkGJFKNwRT4aD8=w245)
+
 * vapaa
 
 ![](https://lh3.googleusercontent.com/CDtDpWN9MrvaYDyZYBXbv-1WZahCQywUwp1yBYu0AgI=w245)
