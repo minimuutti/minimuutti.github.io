@@ -3,7 +3,7 @@ title: "Basket in the box"
 layout: article
 image:
   feature:
-  teaser: hhttps://lh3.googleusercontent.com/2hK3kkHls_wRDFJWCNyu1NH9LgK53KLxx3yU0sj0qtE=w245
+  teaser: https://lh3.googleusercontent.com/2hK3kkHls_wRDFJWCNyu1NH9LgK53KLxx3yU0sj0qtE=w245
   thumb:
 ---
 
