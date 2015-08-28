@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Tähän tarvitset vain kaksi koria tai laatikkoa, jotka mahtuvat sisäkkäin sekä nappuloita tai mitä tahansa muita nameja. Itse käytin muovista säilytyskoria sekä pahvilaatikkoa sekä nappuloita.
+Tähän tarvitset vain kaksi koria tai laatikkoa, jotka mahtuvat sisäkkäin sekä nappuloita tai mitä tahansa muita nameja. Itse käytin muovista säilytyskoria ja pahvilaatikkoa sekä nappuloita.
 
 Nappulat laitetaan isomman laatikon pohjalle ja siihen laitetaan tämä pienempi laatikko tai kori päälle alassuin. Mikiltä kesti alle minuutti saada nappulat ulos laatikosta.
 
