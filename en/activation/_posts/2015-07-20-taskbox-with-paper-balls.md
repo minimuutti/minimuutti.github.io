@@ -1,5 +1,5 @@
 ---
-title: "Taskbox with paperballs"
+title: "Taskbox with paper balls"
 
 layout: article
 image:
@@ -10,7 +10,7 @@ image:
 
 You need a good size cardboard box and a magazine that fits in the box and some kibbles. You need to take the staples out of the magazine, so that your dog doesn’t accidentally eat them.
 
-Take single sheets of paper from the magazine and wrap one sheet around every kibble or two. I usually make about 40 to 50 of these paperballs and put them in the box. Any excess kibbles can be thrown in the gaps.
+Take single sheets of paper from the magazine and wrap one sheet around every kibble or two. I usually make about 40 to 50 of these paper balls and put them in the box. Any excess kibbles can be thrown in the gaps.
 
 At first time you may wanna use thicker piece of paper, like the covers of the magazine, so your dog doesn’t eat the paper itself but only the treats inside.
 
