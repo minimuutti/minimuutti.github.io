@@ -17,7 +17,7 @@ This is one of the easiest games you can make for your dog. Just put the treats 
 
 At the first time I gave this to Miki, I placed the towel near the other end of the tube, and Miki got the towel out within a minute. At the second time, I placed the towel in the midpoint and it took Miki 10 minutes to get the towel out.
 
-We also played this game with a rolled bath towel and a cut form a plastic pipe. It took Miki about two minutes to get the treats out.
+We also played this game with a rolled bath towel and a cut from a plastic pipe. It took Miki about two minutes to get the treats out.
 
 ---
 
