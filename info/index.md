@@ -25,9 +25,10 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 9.9.2015 Lisätty uusi aktivointivinkki; Jääpalamuotit
+* 9.9.2015 Lisätty uusi aktivointivinkki; Paperipallot mukeissa
 * 28.8.2015 Lisätty uusi aktivointivinkki; Kori laatikossa
 * 27.8.2015 Päivitetty aktivointivinkki; Pyyheliina
-* 27.8.2015 Päivitetty aktivointivinkki; Putkipiilo
 * 26.8.2015 Päivitetty aktivointivinkki; Pyyhelaatikko
 * 26.8.2015 Lisätty uusi aktivointivinkki; Kupit kulhoissa
 * 26.8.2015 Lisätty uusi aktivointivinkki; Laavalamput

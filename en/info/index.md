@@ -25,9 +25,10 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 9.9.2015 New activation post; Ice cube trays
+* 9.9.2015 New activation post; Paper balls in cups
 * 28.8.2015 New activation post; Basket in the box
 * 27.8.2015 Updated activation post; Towels
-* 27.8.2015 Updated activation post; Treat tube
 * 26.8.2015 Updated activation post; Towels in the box
 * 26.8.2015 New activation post; Cups in bowls
 * 26.8.2015 New activation post; Lava lamps
