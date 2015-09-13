@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 13.9.2015 New activation post; Tubes in the box
 * 13.9.2015 New activation post; Treat rope
 * 13.9.2015 New activation post; Stand
 * 13.9.2015 Updated activation post; Treat tube

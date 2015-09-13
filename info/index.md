@@ -25,6 +25,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 13.9.2015 Lisätty uusi aktivointivinkki; Putkilot laatikossa
 * 13.9.2015 Lisätty uusi aktivointivinkki; Namiköysi
 * 13.9.2015 Lisätty uusi aktivointivinkki; Koroke
 * 13.9.2015 Päivitetty aktivointivinkki; Putkipiilo
