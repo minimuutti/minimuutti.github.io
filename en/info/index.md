@@ -25,6 +25,10 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 14.9.2015 New photos added in category; Autumn
+* 14.9.2015 New activation post; Puzzle mat
+* 14.9.2015 New activation post; Kongs in cups
+* 14.9.2015 Updated activation post; Yarn box
 * 13.9.2015 New activation post; Tubes in the box
 * 13.9.2015 New activation post; Treat rope
 * 13.9.2015 New activation post; Stand
@@ -42,7 +46,6 @@ New and recently updated posts:
 * 23.8.2015 New activation post; Obstacle box
 * 23.8.2015 Updated activation post; Two boxes, one inside another
 * 23.8.2015 New activation post; Hot air balloon
-* 17.8.2015 Updated activation post; Yarn box
 * 16.8.2015 New activation post; Treat necklace
 * 16.8.2015 New photos added in category; Summer
 * 16.8.2015 Updated activation post; Cup doughnut
@@ -54,5 +57,3 @@ New and recently updated posts:
 * 12.8.2015 New activation post; Floating cups
 * 11.8.2015 New activation post; Towel lasagna
 * 11.8.2015 New activation post; Cup doughnut
-* 10.8.2015 New activation post; Textile ball
-* 10.8.2015 New activation post; Umbrellas

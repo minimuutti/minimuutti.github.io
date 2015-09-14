@@ -17,6 +17,8 @@ Tämän laatikon tekemiseen kului aikaa noin 10 minuuttia, mutta laatikko on uud
 
 Saman voi tehdä myös muoviseen säilytyskoriin, jossa on jo valmiiksi reikiä kyljissä (katso alimmaiset kuvat). Siinä käytin langan sijasta kangasta vanhasta t-paidasta, jonka olin leikannut yhdeksi pitkäksi suikaleeksi.
 
+Tätä samaa muovikoriin tehtyä tehtävää vaikeutin vielä laittamalla jääpalamuotin tuonne laatikon pohjalle, johon sitten ripottelin muutamia nappuloita.
+
 ---
 
 [![](https://lh3.googleusercontent.com/kOYI4NjllwrYCg5ZpXrxr4zQSY310Rww8s81_iPw-ao=w800)](https://lh3.googleusercontent.com/kOYI4NjllwrYCg5ZpXrxr4zQSY310Rww8s81_iPw-ao=s0)
@@ -34,3 +36,5 @@ Saman voi tehdä myös muoviseen säilytyskoriin, jossa on jo valmiiksi reikiä 
 [![](https://lh3.googleusercontent.com/3GM8v2rZRYJ0AicTKSu8KarWvKPwQBq_fD8LfKjQmDA=w800)](https://lh3.googleusercontent.com/3GM8v2rZRYJ0AicTKSu8KarWvKPwQBq_fD8LfKjQmDA=s0)
 
 [![](https://lh3.googleusercontent.com/o5jZNTP_QgHwn22KKdLmaX_GCruddM1E7R0PU7X921E=w800)](https://lh3.googleusercontent.com/o5jZNTP_QgHwn22KKdLmaX_GCruddM1E7R0PU7X921E=s0)
+
+[![](https://lh3.googleusercontent.com/_zfAvkkTd3k-tvtHgvCJEC-j0t5Con0DxuMD7i7FE-m-GzAV1f9lVypNt8ZeRo0NpX1lyvLmAJK04raHSF1WOiqYnTqT4kXz-bftMNRRPgJebCSm-AxHQY6RxZxQTy9-4Q_W9KJFmdR2U-p93if80-NE8QJc5Dkn-tvC6h7OWXqVJ4Zn8lLaMFT3XiSMdyocSXcsC6zAd4YTPdrLAdGO2jzIRXrbyJBeSe5ILEzfEs9XX33IOOMO71geXOZRSmykEkZtoEwTQzxmddHo0paRA4hciheUcXao5S09Rqtx1boyusuLA0S098jSAYWQFGICyP3yagGb0kraXvQHQ_TZleI1mxgtlqBc_YmvXeykla11VrcZk2jgeNwCk1GV8TbrW0tkSO0-v187_ohOz9upaqpjkz3rVMh5QMNgGbdVDO_nBcHhvuiu8fwv1Wrb70oE4BczvVLOVmOChsJvtsrLkFJpmZKP7poX4_5EG7LtclH016SmzxFPq3f-fumXHLZx1nGWVlGMHJZ_7S_-ZaL_rsFbH4i4wXeroc42rKPlCQc=w800)](https://lh3.googleusercontent.com/_zfAvkkTd3k-tvtHgvCJEC-j0t5Con0DxuMD7i7FE-m-GzAV1f9lVypNt8ZeRo0NpX1lyvLmAJK04raHSF1WOiqYnTqT4kXz-bftMNRRPgJebCSm-AxHQY6RxZxQTy9-4Q_W9KJFmdR2U-p93if80-NE8QJc5Dkn-tvC6h7OWXqVJ4Zn8lLaMFT3XiSMdyocSXcsC6zAd4YTPdrLAdGO2jzIRXrbyJBeSe5ILEzfEs9XX33IOOMO71geXOZRSmykEkZtoEwTQzxmddHo0paRA4hciheUcXao5S09Rqtx1boyusuLA0S098jSAYWQFGICyP3yagGb0kraXvQHQ_TZleI1mxgtlqBc_YmvXeykla11VrcZk2jgeNwCk1GV8TbrW0tkSO0-v187_ohOz9upaqpjkz3rVMh5QMNgGbdVDO_nBcHhvuiu8fwv1Wrb70oE4BczvVLOVmOChsJvtsrLkFJpmZKP7poX4_5EG7LtclH016SmzxFPq3f-fumXHLZx1nGWVlGMHJZ_7S_-ZaL_rsFbH4i4wXeroc42rKPlCQc=s0)
