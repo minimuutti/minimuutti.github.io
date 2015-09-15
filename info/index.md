@@ -25,6 +25,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 15.9.2015 Päivitetty aktivointivinkki; Useita purkkeja sisäkkäin
 * 14.9.2015 Lisätty uusia valokuvia kategoriaan; Syksy
 * 14.9.2015 Lisätty uusi aktivointivinkki; Palapelimatto
 * 14.9.2015 Lisätty uusi aktivointivinkki; Kongit mukeissa

@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 15.9.2015 Updated activation post; Multiple cups inside others
 * 14.9.2015 New photos added in category; Autumn
 * 14.9.2015 New activation post; Puzzle mat
 * 14.9.2015 New activation post; Kongs in cups
