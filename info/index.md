@@ -58,5 +58,3 @@ Uudet ja viimeksi päivitetyt osiot:
 * 12.8.2015 Lisätty uusi aktivointivinkki; Kelluvat kupit
 * 11.8.2015 Lisätty uusi aktivointivinkki; Pyyhelasagne
 * 11.8.2015 Lisätty uusi aktivointivinkki; Mukidonitsi
-* 10.8.2015 Lisätty uusi aktivointivinkki; Kangaspallo
-* 10.8.2015 Lisätty uusi aktivointivinkki; Sateenvarjo
