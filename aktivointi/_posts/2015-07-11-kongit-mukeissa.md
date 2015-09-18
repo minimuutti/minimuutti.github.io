@@ -11,7 +11,7 @@ Ensin laitoin mukiin vajaan kourallisen nappuloita. Tämän jälkeen laitoin sam
 
 Mikiltä kesti noin 4 minuuttia saada kaikki nappulat syötyä.
 
-Tommy's minitomaattimukit ovat juuri sopivan kokoisia L-kokoisen lumiukko Kongin kanssa. Toisella kerralla laitoin kolmeen mukiin muutamia nappuloita ja sitten painoin Kongit tiukasti mukeihin.
+Tommies minitomaattimukit ovat juuri sopivan kokoisia L-kokoisen lumiukko Kongin kanssa. Toisella kerralla laitoin kolmeen mukiin muutamia nappuloita ja sitten painoin Kongit tiukasti mukeihin.
 
 Mikiltä kesti noin pari minuuttia saada kaikki nappulat ulos näistä.
 
