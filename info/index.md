@@ -25,21 +25,21 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 19.9.2015 Päivitetty aktivointivinkki; Kori laatikossa
+* 19.9.2015 Päivitetty aktivointivinkki; Putkilot laatikossa
+* 19.9.2015 Päivitetty aktivointivinkki; Kupit kulhoissa
 * 19.9.2015 Päivitetty aktivointivinkki; Palapelimatto
 * 15.9.2015 Päivitetty aktivointivinkki; Useita purkkeja sisäkkäin
 * 14.9.2015 Lisätty uusia valokuvia kategoriaan; Syksy
 * 14.9.2015 Lisätty uusi aktivointivinkki; Kongit mukeissa
 * 14.9.2015 Päivitetty aktivointivinkki; Narulaatikko
-* 13.9.2015 Lisätty uusi aktivointivinkki; Putkilot laatikossa
 * 13.9.2015 Lisätty uusi aktivointivinkki; Namiköysi
 * 13.9.2015 Lisätty uusi aktivointivinkki; Koroke
 * 13.9.2015 Päivitetty aktivointivinkki; Putkipiilo
 * 9.9.2015 Lisätty uusi aktivointivinkki; Jääpalamuotit
 * 9.9.2015 Lisätty uusi aktivointivinkki; Paperipallot mukeissa
-* 28.8.2015 Lisätty uusi aktivointivinkki; Kori laatikossa
 * 27.8.2015 Päivitetty aktivointivinkki; Pyyheliina
 * 26.8.2015 Päivitetty aktivointivinkki; Pyyhelaatikko
-* 26.8.2015 Lisätty uusi aktivointivinkki; Kupit kulhoissa
 * 26.8.2015 Lisätty uusi aktivointivinkki; Laavalamput
 * 24.8.2015 Päivitetty aktivointivinkki; Jään sisällä olevat namit
 * 23.8.2015 Lisätty uusi aktivointivinkki; Ritilä
@@ -54,7 +54,3 @@ Uudet ja viimeksi päivitetyt osiot:
 * 16.8.2015 Päivitetty aktivointivinkki; DVD kotelo
 * 14.8.2015 Lisätty uusi aktivointivinkki; Tötteröt
 * 14.8.2015 Lisätty uusi aktivointivinkki; Kupit vadissa
-* 12.8.2015 Lisätty uusi aktivointivinkki; Pallomeri
-* 12.8.2015 Lisätty uusi aktivointivinkki; Kelluvat kupit
-* 11.8.2015 Lisätty uusi aktivointivinkki; Pyyhelasagne
-* 11.8.2015 Lisätty uusi aktivointivinkki; Mukidonitsi

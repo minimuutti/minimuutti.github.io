@@ -25,21 +25,21 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 19.9.2015 Updated activation post; Basket in the box
+* 19.9.2015 Updated activation post; Tubes in the box
+* 19.9.2015 Updated activation post; Cups in bowls
 * 19.9.2015 Updated activation post; Puzzle mat
 * 15.9.2015 Updated activation post; Multiple cups inside others
 * 14.9.2015 New photos added in category; Autumn
 * 14.9.2015 New activation post; Kongs in cups
 * 14.9.2015 Updated activation post; Yarn box
-* 13.9.2015 New activation post; Tubes in the box
 * 13.9.2015 New activation post; Treat rope
 * 13.9.2015 New activation post; Stand
 * 13.9.2015 Updated activation post; Treat tube
 * 9.9.2015 New activation post; Ice cube trays
 * 9.9.2015 New activation post; Paper balls in cups
-* 28.8.2015 New activation post; Basket in the box
 * 27.8.2015 Updated activation post; Towels
 * 26.8.2015 Updated activation post; Towels in the box
-* 26.8.2015 New activation post; Cups in bowls
 * 26.8.2015 New activation post; Lava lamps
 * 24.8.2015 Updated activation post; Treats frozen inside ice
 * 23.8.2015 New activation post; Trivet
@@ -54,7 +54,3 @@ New and recently updated posts:
 * 16.8.2015 Updated activation post; DVD case
 * 14.8.2015 New activation post; Cones
 * 14.8.2015 New activation post; Cups in a basin
-* 12.8.2015 New activation post; Ball pool
-* 12.8.2015 New activation post; Floating cups
-* 11.8.2015 New activation post; Towel lasagna
-* 11.8.2015 New activation post; Cup doughnut

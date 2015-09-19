@@ -8,7 +8,7 @@ image:
 ---
 
 I made several fun games for Miki from these puzzle mat pieces. Toys for small children are usually safe for dogs as well because they seldom have any small loose parts in them.
-
+ 
 ### Variation 1
 
 First I made a box out of these pieces. I put the box on its side on the floor and then I put few treats inside and let Miki search them. Later on I attached a piece of paper as an obstacle at the front of the box.
