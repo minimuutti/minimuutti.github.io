@@ -25,12 +25,12 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 20.9.2015 New photos added in category; Autumn
 * 19.9.2015 Updated activation post; Basket in the box
 * 19.9.2015 Updated activation post; Tubes in the box
 * 19.9.2015 Updated activation post; Cups in bowls
 * 19.9.2015 Updated activation post; Puzzle mat
 * 15.9.2015 Updated activation post; Multiple cups inside others
-* 14.9.2015 New photos added in category; Autumn
 * 14.9.2015 New activation post; Kongs in cups
 * 14.9.2015 Updated activation post; Yarn box
 * 13.9.2015 New activation post; Treat rope
