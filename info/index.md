@@ -25,6 +25,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 23.9.2015 Lisätty uusi aktivointivinkki; Pehmopanda
 * 20.9.2015 Lisätty uusia valokuvia kategoriaan; Syksy
 * 19.9.2015 Päivitetty aktivointivinkki; Kori laatikossa
 * 19.9.2015 Päivitetty aktivointivinkki; Putkilot laatikossa

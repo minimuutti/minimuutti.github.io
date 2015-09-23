@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 23.9.2015 New activation post; Stuffed panda
 * 20.9.2015 New photos added in category; Autumn
 * 19.9.2015 Updated activation post; Basket in the box
 * 19.9.2015 Updated activation post; Tubes in the box
