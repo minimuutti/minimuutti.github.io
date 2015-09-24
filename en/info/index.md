@@ -25,6 +25,8 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 24.9.2015 New activation post; Space Ball Stellaron
+* 24.9.2015 New activation post; Dermosil bottles
 * 23.9.2015 New activation post; Stuffed panda
 * 20.9.2015 New photos added in category; Autumn
 * 19.9.2015 Updated activation post; Basket in the box
@@ -49,9 +51,3 @@ New and recently updated posts:
 * 23.8.2015 Updated activation post; Two boxes, one inside another
 * 23.8.2015 New activation post; Hot air balloon
 * 16.8.2015 New activation post; Treat necklace
-* 16.8.2015 New photos added in category; Summer
-* 16.8.2015 Updated activation post; Cup doughnut
-* 16.8.2015 Updated activation post; Carton packages
-* 16.8.2015 Updated activation post; DVD case
-* 14.8.2015 New activation post; Cones
-* 14.8.2015 New activation post; Cups in a basin

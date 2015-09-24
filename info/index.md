@@ -25,6 +25,8 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 24.9.2015 Lisätty uusi aktivointivinkki; Space Ball Stellaron
+* 24.9.2015 Lisätty uusi aktivointivinkki; Dermosil pullot
 * 23.9.2015 Lisätty uusi aktivointivinkki; Pehmopanda
 * 20.9.2015 Lisätty uusia valokuvia kategoriaan; Syksy
 * 19.9.2015 Päivitetty aktivointivinkki; Kori laatikossa
@@ -49,9 +51,3 @@ Uudet ja viimeksi päivitetyt osiot:
 * 23.8.2015 Päivitetty aktivointivinkki; Kaksi laatikkoa sisäkkäin tai kuppi laatikon sisällä
 * 23.8.2015 Lisätty uusi aktivointivinkki; Kuumailmapallo
 * 16.8.2015 Lisätty uusi aktivointivinkki; Herkkuhelmet
-* 16.8.2015 Lisätty uusia valokuvia kategoriaan; Kesä
-* 16.8.2015 Päivitetty aktivointivinkki; Mukidonitsi
-* 16.8.2015 Päivitetty aktivointivinkki; Kartonkipakkaukset
-* 16.8.2015 Päivitetty aktivointivinkki; DVD kotelo
-* 14.8.2015 Lisätty uusi aktivointivinkki; Tötteröt
-* 14.8.2015 Lisätty uusi aktivointivinkki; Kupit vadissa

@@ -3,7 +3,7 @@ title: "Kong Quest Star Pod"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/IctO5A-Dr6SGX-7Nuxae-j0sot83GrjF7Ego2-7C1g0=w245
+  teaser: https://lh3.googleusercontent.com/ONdeEH9YjoHK-GyifuH7KZsHPEKUO63-Ecw0WgcSHKMNhJLCs7P731JdMjOvTCdqNvAg1GWGDRC0friuR0X1b86m77pPHHPiLW4u5jpJ3lTRRlhQbbFQxNYAZJXHJ6d40hYyCdQYhRLmWJENPZ-YQt9f39LRfSS1WLiZCjNJNVk4WcXwp09UwjMWp1dFiYMtfgJtzRveVpB-NNKugpM0NMXZ7aBzaYboiskzR-ykRTcjFbk44IcyEUnkAj4eyPiv3jSyvnpJ_uOEhvvZQeWN_zr1AxLLdYmCbB-VmCD-7_UrJkqbxVJv8NxXI_XdUqDIa--SfS-6jP-iyqZcjFVsiZfMqHkVnS707Zxk4zIojT4vFQcQ-2L4HfUp8GhvCkm_wYGfCrvSClfuwOT6XV-cmeODdwhcZxOvxoudfM0mZDKcL6DLbKED7crQ5KNrVbColP8HdNoAFHLt0s8IGqRo0rDsLd9OTUMtzFEgvy9Gp6RtUgvV20916jop-8CY-6j8XQ_E0FBOAlE8kZ2nc3N-OMHDYq314vDvL6It1Z3fnm0=w245
   thumb:
 ---
 
