@@ -27,7 +27,7 @@ It took Miki about a minute to find a small handful of kibbles.
 
 ### Variation 2
 
-I took four tubes and I put the treats inside of the tubes before I placed them in the box.
+I took four tubes and I put the treats in the tubes before I placed them in the box.
 
 It took Miki about two minutes to figure out, that he needed to lift the tubes out of the box one at a time in order to get the treats. It took Miki about three minutes altogether to eat all the treats.
 
