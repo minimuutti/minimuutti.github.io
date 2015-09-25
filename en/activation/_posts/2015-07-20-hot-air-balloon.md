@@ -1,5 +1,5 @@
 ---
-title: "Hot air balloon"
+title: "Hot-air balloon"
 layout: article
 image:
   feature:

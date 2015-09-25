@@ -49,5 +49,5 @@ New and recently updated posts:
 * 23.8.2015 New activation post; Ikea's Mula wagon
 * 23.8.2015 New activation post; Obstacle box
 * 23.8.2015 Updated activation post; Two boxes, one inside another
-* 23.8.2015 New activation post; Hot air balloon
+* 23.8.2015 New activation post; Hot-air balloon
 * 16.8.2015 New activation post; Treat necklace
