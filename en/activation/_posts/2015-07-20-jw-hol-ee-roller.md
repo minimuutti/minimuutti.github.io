@@ -25,7 +25,7 @@ It took Miki under 10 minutes to get all the kibbles out.
 
 ### Wired hand towels
 
-I rolled two small hand towels into long tubes and I put some kibbles inside them. Then I wired both towels throught the holes in the ball.
+I rolled two small hand towels into long tubes and I put some kibbles inside them. Then I wired both towels throught the holes of the ball.
 
 It took Miki under 10 minutes to get all the kibbles out.
 
