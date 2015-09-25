@@ -39,7 +39,7 @@ It took Miki under 10 minutes to get all the kibbles out.
 
 ### Paper balls
 
-I made 10 paper balls, which I tucked inside the ball. I put some kibbles inside each ball and when I had tucked all the paper balls inside the ball, I put some extra treats in between the paper balls.
+I made 10 paper balls, which I tucked inside the ball. I put some kibbles inside each paper ball and when I had tucked all the paper balls inside the ball, I put some extra treats in between the paper balls.
 
 It took Miki over ten minutes to get all the kibbles out.
 
