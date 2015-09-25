@@ -25,6 +25,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 25.9.2015 Lisätty uusi aktivointivinkki; JW Hol-ee Roller 
 * 24.9.2015 Lisätty uusi aktivointivinkki; Space Ball Stellaron
 * 24.9.2015 Lisätty uusi aktivointivinkki; Dermosil pullot
 * 23.9.2015 Lisätty uusi aktivointivinkki; Pehmopanda

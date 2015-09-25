@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 25.9.2015 New activation post; JW Hol-ee Roller
 * 24.9.2015 New activation post; Space Ball Stellaron
 * 24.9.2015 New activation post; Dermosil bottles
 * 23.9.2015 New activation post; Stuffed panda
