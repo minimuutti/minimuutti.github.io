@@ -25,11 +25,11 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 25.9.2015 Lisätty uusia valokuvia kategoriaan; Syksy
 * 25.9.2015 Lisätty uusi aktivointivinkki; JW Hol-ee Roller 
 * 24.9.2015 Lisätty uusi aktivointivinkki; Space Ball Stellaron
 * 24.9.2015 Lisätty uusi aktivointivinkki; Dermosil pullot
 * 23.9.2015 Lisätty uusi aktivointivinkki; Pehmopanda
-* 20.9.2015 Lisätty uusia valokuvia kategoriaan; Syksy
 * 19.9.2015 Päivitetty aktivointivinkki; Kori laatikossa
 * 19.9.2015 Päivitetty aktivointivinkki; Putkilot laatikossa
 * 19.9.2015 Päivitetty aktivointivinkki; Kupit kulhoissa
