@@ -19,7 +19,7 @@ Kannattaa käyttää jotain kuivia nameja. Pari kertaa olen laittanut nakin pala
 
 Pyyhkeen voi ensin laittaa myös matalan laatikon sisään, josta koiran on ensin ongittava se ulos. Pyyhkeen voi laittaa myös alassuin käännetyn laatikon alle, jolloin koiran tulee ensin siirtää tuo laatikko pois tieltä.
 
-Kokeilin myös rullata kylpypyyhkeen pitkittäin niin tiukalle rullalle, että se kääntyi itsensä ympäri. Vaikea selittää, mutta kuvat kertoo varmasti enemmän. Mikiltä kesti noin 4 minuuttia saada namit ulos täältä tiukkaan rullatusta pyyhkeestä.
+Kokeilin myös rullata herkkuja sisältävän kylpypyyhkeen kierteelle. Ensin rullasin pyyhkeen pitkittäin rullaksi ja sen jälkeen käänsin rullaa kierteelle tiukasti, että se kääntyi takaisin itsensä ympäri. Vaikea selittää, mutta kuvat kertoo varmasti enemmän. Mikiltä kesti noin 4 minuuttia saada namit ulos tästä tiukkaan kierretystä pyyhkeestä.
 
 ---
 
