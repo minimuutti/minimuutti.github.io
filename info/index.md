@@ -25,6 +25,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 26.9.2015 Päivitetty aktivointivinkki; Putkipiilo
 * 25.9.2015 Lisätty uusia valokuvia kategoriaan; Syksy
 * 25.9.2015 Lisätty uusi aktivointivinkki; JW Hol-ee Roller 
 * 24.9.2015 Lisätty uusi aktivointivinkki; Space Ball Stellaron
@@ -39,7 +40,6 @@ Uudet ja viimeksi päivitetyt osiot:
 * 14.9.2015 Päivitetty aktivointivinkki; Narulaatikko
 * 13.9.2015 Lisätty uusi aktivointivinkki; Namiköysi
 * 13.9.2015 Lisätty uusi aktivointivinkki; Koroke
-* 13.9.2015 Päivitetty aktivointivinkki; Putkipiilo
 * 9.9.2015 Lisätty uusi aktivointivinkki; Jääpalamuotit
 * 9.9.2015 Lisätty uusi aktivointivinkki; Paperipallot mukeissa
 * 27.8.2015 Päivitetty aktivointivinkki; Pyyheliina

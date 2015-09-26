@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 26.9.2015 Updated activation post; Treat tube
 * 25.9.2015 New photos added in category; Autumn
 * 25.9.2015 New activation post; JW Hol-ee Roller
 * 24.9.2015 New activation post; Space Ball Stellaron
@@ -39,7 +40,6 @@ New and recently updated posts:
 * 14.9.2015 Updated activation post; Yarn box
 * 13.9.2015 New activation post; Treat rope
 * 13.9.2015 New activation post; Stand
-* 13.9.2015 Updated activation post; Treat tube
 * 9.9.2015 New activation post; Ice cube trays
 * 9.9.2015 New activation post; Paper balls in cups
 * 27.8.2015 Updated activation post; Towels
