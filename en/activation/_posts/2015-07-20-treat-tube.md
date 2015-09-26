@@ -23,7 +23,7 @@ Once we played with the tube I put three Kong Classic toys inside the tube and I
 
 The Kong toys fits just inside the tube, and because the tube has a dent at the other end the Kong toys doesn't fall out right away :)
 
-I made similar game with 60 cm (about 17") long tube and a 60 cm wide bath towel. I sprinkled a small handful of kibbles on top the towel and then I rolled it and pushed it inside the tube. It took Miki about 15 minutes to get all the kibbles out.
+I made similar game with 60 cm (about 24") long tube and a 60 cm wide bath towel. I sprinkled a small handful of kibbles on top the towel and then I rolled it and pushed it inside the tube. It took Miki about 15 minutes to get all the kibbles out.
 
 ---
 

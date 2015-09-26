@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 26.9.2015 New activation post; Falling treats
 * 26.9.2015 Updated activation post; Treat tube
 * 26.9.2015 New photos added in category; Autumn
 * 25.9.2015 New activation post; JW Hol-ee Roller
