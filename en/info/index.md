@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 26.9.2015 Updated activation post; Towels
 * 26.9.2015 New activation post; Falling treats
 * 26.9.2015 Updated activation post; Treat tube
 * 26.9.2015 New photos added in category; Autumn
@@ -43,7 +44,6 @@ New and recently updated posts:
 * 13.9.2015 New activation post; Stand
 * 9.9.2015 New activation post; Ice cube trays
 * 9.9.2015 New activation post; Paper balls in cups
-* 27.8.2015 Updated activation post; Towels
 * 26.8.2015 Updated activation post; Towels in the box
 * 26.8.2015 New activation post; Lava lamps
 * 24.8.2015 Updated activation post; Treats frozen inside ice
