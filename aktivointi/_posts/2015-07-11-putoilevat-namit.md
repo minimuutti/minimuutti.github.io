@@ -19,6 +19,8 @@ Mikäli teet tämän tehtävän esim. tyhjällä Pringlestuubilla, niin tuubista
 
 Kun itse putkilo on valmis ja kiinnitetty, niin tarvitset vielä tuon pienen palasen pahvia. Tähän kannattaa ensimmäisellä kerralla valita niin ohut pahvi tai kartongin palanen, että koira saa sen suht helposti vedettyä tuolta ulos. Lisäksi pahvin palanen kannattaa ensimmäisillä kerroilla jättää vähän suuremmaksi, jotta koiran on helpompi tarttua siihen hampaillaan.
 
+Tässä tehtävässä kannattaa käyttää jotain kuivia nameja tai nappuloita, jotta namit putoavat helposti eivätkä tartu tuohon pahviin kiinni.
+
 Miki oppi tämän tehtävän sekunneissa. Muutaman kerran jälkeen vaihdoin tuon pahvin palasen paksummaksi, jotta se oli vaikeampi vetää ulos. Ja sitten taas muutaman kerran jälkeen leikkasin pahvin niin pieneksi, että putkilon ulkopuolelle jäi vain noin puolen sentin mittainen kaistale näkyviin.
 
 ---
