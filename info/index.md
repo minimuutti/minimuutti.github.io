@@ -25,6 +25,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 27.9.2015 Lisätty uusi aktivointivinkki; Jogurttipullot
 * 27.9.2015 Lisätty uusi aktivointivinkki; Minitehtäviä
 * 27.9.2015 Lisätty uusia valokuvia kategoriaan; Syksy
 * 26.9.2015 Päivitetty aktivointivinkki; Pyyheliina
