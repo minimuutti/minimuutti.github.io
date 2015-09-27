@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 27.9.2015 New activation post; Small games
 * 27.9.2015 New photos added in category; Autumn
 * 26.9.2015 Updated activation post; Towels
 * 26.9.2015 New activation post; Falling treats
