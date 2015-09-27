@@ -25,10 +25,10 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 27.9.2015 New photos added in category; Autumn
 * 26.9.2015 Updated activation post; Towels
 * 26.9.2015 New activation post; Falling treats
 * 26.9.2015 Updated activation post; Treat tube
-* 26.9.2015 New photos added in category; Autumn
 * 25.9.2015 New activation post; JW Hol-ee Roller
 * 24.9.2015 New activation post; Space Ball Stellaron
 * 24.9.2015 New activation post; Dermosil bottles
