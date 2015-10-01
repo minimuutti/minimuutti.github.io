@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 1.10.2015 New activation post; Taskbox with bottles
 * 27.9.2015 New activation post; Yoghurt bottles
 * 27.9.2015 New activation post; Small games
 * 27.9.2015 New photos added in category; Autumn
