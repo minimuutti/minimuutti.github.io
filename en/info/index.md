@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 2.10.2015 New activation post; Cans with lids
 * 1.10.2015 New activation post; Taskbox with bottles
 * 27.9.2015 New activation post; Yoghurt bottles
 * 27.9.2015 New activation post; Small games
@@ -51,8 +52,3 @@ New and recently updated posts:
 * 26.8.2015 New activation post; Lava lamps
 * 24.8.2015 Updated activation post; Treats frozen inside ice
 * 23.8.2015 New activation post; Trivet
-* 23.8.2015 New activation post; Ikea's Mula wagon
-* 23.8.2015 New activation post; Obstacle box
-* 23.8.2015 Updated activation post; Two boxes, one inside another
-* 23.8.2015 New activation post; Hot-air balloon
-* 16.8.2015 New activation post; Treat necklace

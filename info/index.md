@@ -25,6 +25,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 2.10.2015 Lisätty uusi aktivointivinkki; Kannelliset rasiat
 * 1.10.2015 Lisätty uusi aktivointivinkki; Tehtävälaatikko pulloilla
 * 27.9.2015 Lisätty uusi aktivointivinkki; Jogurttipullot
 * 27.9.2015 Lisätty uusi aktivointivinkki; Minitehtäviä
@@ -51,8 +52,3 @@ Uudet ja viimeksi päivitetyt osiot:
 * 26.8.2015 Lisätty uusi aktivointivinkki; Laavalamput
 * 24.8.2015 Päivitetty aktivointivinkki; Jään sisällä olevat namit
 * 23.8.2015 Lisätty uusi aktivointivinkki; Ritilä
-* 23.8.2015 Lisätty uusi aktivointivinkki; Ikean Mula vaunu
-* 23.8.2015 Lisätty uusi aktivointivinkki; Estelaatikko
-* 23.8.2015 Päivitetty aktivointivinkki; Kaksi laatikkoa sisäkkäin tai kuppi laatikon sisällä
-* 23.8.2015 Lisätty uusi aktivointivinkki; Kuumailmapallo
-* 16.8.2015 Lisätty uusi aktivointivinkki; Herkkuhelmet
