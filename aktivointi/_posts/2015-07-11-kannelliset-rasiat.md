@@ -11,13 +11,13 @@ Helsingin sanomissa oli artikkeli koirilla ja susilla Amerikassa tehdystä testi
 
 Jokaiselle eläimelle annettiin sama tehtävä ja saman verran aikaa (2 minuuttia) tehtävän ratkaisemiseen. Tehtävänä oli avata kannellinen rasia, jonka sisällä oli herkkupala. Yritin etsiä tutkimuksesta lisätietoa selvittääkseni millainen tämä testissä käytetty rasia oli, tuloksetta.
 
-Testin tulos oli kuitenkin erittäin mielenkiintoinen. Koiratarhan koirista vain yhdellä yksilöllä oli tarpeeksi motivaatiota saada tuo rasia auki ja lemmikkikoirista yksikään ei edes yrittänyt. Sudet ovat selviytymisen mestareita luonnossakin ja tässä testissä peräti 8 sutta sai tuon rasian auki määräajassa, kahdella kesti kauemmin mutta nekään eivät antaneet periksi.
+Testin tulos oli kuitenkin erittäin mielenkiintoinen. Koiratarhan koirista vain yhdellä yksilöllä oli tarpeeksi motivaatiota saada tuo rasia auki ja lemmikkikoirista yksikään ei edes yrittänyt. Sudet ovat selviytymisen mestareita luonnossakin ja tässä testissä peräti 8 sutta sai tuon rasian auki määräajassa, kahdella kesti kauemmin, mutta nekään eivät antaneet periksi.
 
 Tästä testistä innostuneena annoin Mikille kuvissa näkyvän kannellisen rasian. Mikiä on "treenattu" erilaisilla tehtävillä jo pidemmän aikaa, mutta mitään avattavia kansia sille ei ole ennen tätä annettu. Vaikka olen tiennyt Mikin olevan poikkeuksellisen älykäs koira, ällistyin silti, kun Miki sai rasian auki ensimmäisellä kerralla 15 sekunnissa!
 
 Muutamalla ensimmäisellä kerralla annoin Mikille vain yhden rasian, johon olin laittanut muutamia nappuloita. Tämän jälkeen annoin Mikille yhtä aikaa kaikki 13 rasiaa ja Mikiltä kesti yksittäisen rasian avaaminen 2 sekunnista noin 30 sekuntiin.
 
-Halusin kuitenkin viedä tämän tehtävän vieläkin pidemmälle. Laitoin kaksi tällaista rasiaa, joissa oli nameja sisällä, pahvisen putkilon molempiin päihin jonne ne mahtuivat juuri ja juuri. Rasian ulkohalkaisia on 74 mm ja pahviputkilon sisähalkaisija on 75 mm. Laitoin myös muutamia nameja tuonne putkeen ennen kuin laitoin rasiat sinne päihin.
+Halusin kuitenkin viedä tämän tehtävän vieläkin pidemmälle. Laitoin kaksi tällaista rasiaa (joissa oli nameja sisällä) pahvisen putkilon molempiin päihin jonne ne mahtuivat juuri ja juuri. Rasian ulkohalkaisia on 74 mm ja pahviputkilon sisähalkaisija on 75 mm. Laitoin myös muutamia nameja tuonne putkeen ennen kuin laitoin rasiat sinne päihin.
 
 Mikiltä kesti noin 10 sekuntia saada ensimmäinen kansi irti tuubin sisällä olevasta rasiasta ja noin 30 sekuntia kesti saada ensimmäinen rasia ulos tuolta tuubista.
 

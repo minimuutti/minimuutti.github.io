@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 3.10.2015 New activation post; Cardboard spiral
 * 3.10.2015 New photos added in category; Autumn
 * 2.10.2015 New activation post; Cans with lids
 * 1.10.2015 New activation post; Taskbox with bottles
