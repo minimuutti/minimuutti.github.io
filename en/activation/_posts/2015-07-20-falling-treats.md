@@ -15,7 +15,7 @@ The 30 cm (about 12") long tube was cut in the middle so that it remained quite 
 
 My tube also had holes drilled at both ends so that I could zip tie it to a large cardboard box. If you're not going to attach it with zip ties there is no need to drill the holes. You can just as easily use masking tape if you want to attach it to a doorway or a tree.
 
-If you are going to do this game with an empty Pringles tube you need to cut out the bottom of the tube. You can use scissors or a modeling knife to do the cut to a Pringles tube (I needed to use an angle grinder :) ). If you have a small dog you can also use an empty paper towel roll.
+If you are going to do this game with an empty Pringles tube you need to cut out the bottom of the tube. You can use scissors or a modelling knife to do the cut to a Pringles tube (I needed to use an angle grinder :) ). If you have a small dog you can also use an empty paper towel roll.
 
 When the tube is finished you still need that small piece of cardboard or carton. Start with a thin and large piece of cardboard and make the game harder by moving to a thicker and smaller piece when your dog has learned the game.
 

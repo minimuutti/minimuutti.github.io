@@ -25,6 +25,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 10.10.2015 Lisätty uusi aktivointivinkki; Levysoittimet
 * 3.10.2015 Lisätty uusi aktivointivinkki; Aaltopahvispiraali
 * 3.10.2015 Lisätty uusia valokuvia kategoriaan; Syksy
 * 2.10.2015 Lisätty uusi aktivointivinkki; Kannelliset rasiat
