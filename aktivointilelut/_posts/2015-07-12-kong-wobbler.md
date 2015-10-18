@@ -13,6 +13,10 @@ Mietin, että miten tätä muuten hyvää lelua voisi vaikeuttaa. Keksin leikata
 
 Wobblerin sisään voisi kokeilla laittaa myös esim. tennispallon tai useamman pehmeän pikkupallon niin nappulat ei tulisi niin helposti ulos.
 
+Kokeilin myös laittaa lelun sisälle 10 kpl näitä [Nutrivet Instinct Dog Treat](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/nutrivet)) nameja. Namit ovat niin suuria, että ne mahtuvat tuosta lelun aukosta ulos vain pitkittäin, mutta eivät poikittain.
+
+Mikiltä kesti 9 minuuttia saada nämä namit ulos tuolta :)
+
 ---
 
 [![](https://lh3.googleusercontent.com/xDyU1bdgi9uohEdw0ilZRfAC287y6ROZcoF6RIDpqF0=w800)](https://lh3.googleusercontent.com/xDyU1bdgi9uohEdw0ilZRfAC287y6ROZcoF6RIDpqF0=s0)
