@@ -25,7 +25,6 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 18.10.2015 Lisätty uusia valokuvia kategoriaan; Kuvia Mikistä
 * 18.10.2015 Päivitetty aktivointivinkki; Jogurttipullot
 * 10.10.2015 Lisätty uusi aktivointivinkki; Levysoittimet
 * 3.10.2015 Lisätty uusi aktivointivinkki; Aaltopahvispiraali
