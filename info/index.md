@@ -25,6 +25,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 29.10.2015 Lisätty uusi aktivointivinkki; Aaltopahviwräpit
 * 29.10.2015 Lisätty uusi aktivointivinkki; Herkkuwräppi
 * 28.10.2015 Päivitetty aktivointivinkki; Jogurttipullot
 * 28.10.2015 Lisätty uusi aktivointivinkki; Köydenveto
