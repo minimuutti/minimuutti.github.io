@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 29.10.2015 New activation post; Treat wrap
 * 28.10.2015 Updated activation post; Yoghurt bottles
 * 28.10.2015 New activation post; Tug of war
 * 10.10.2015 New activation post; Turntables
