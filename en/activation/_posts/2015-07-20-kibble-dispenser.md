@@ -11,15 +11,15 @@ This game is easy to prepare, but it still gives a good challenge for your dog.
 
 You need a tube or a jar with a lid and some tape. I took a small Pringles tube and I made two holes on the side with a modelling knife. I'm sure you can cut the holes with scissors too.
 
-I made the first hole so small, that the kibbles barely fits through, so that the game wouldn't be too easy. Then I made the other hole slightly larger, so that the tube is easier for me to fill.
+I made the first hole so small, that the kibbles barely fit through, so that the game wouldn't be too easy. Then I made another hole that is slightly larger, so that the tube is easier for me to fill.
 
 When I had made the holes, I secured the lid to the tube with clear packing tape.
 
 It took Miki about 5 minutes to get half of a cup of kibbles out.
 
-You can easily adjust the difficulty of this game by making more or less holes, or making the holes smaller or larger.
+You can easily adjust the difficulty of this game by making more or less holes, or by making the holes smaller or larger.
 
-If you make too many holes and the game is too easy for your dog, you can always tape some of the holes shut so that the game becames harder.
+If you make too many holes and the game is too easy for your dog, you can always tape some of the holes shut so that the game becomes harder.
 
 ---
 
