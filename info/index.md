@@ -25,6 +25,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 1.11.2015 Lisätty uusi aktivointivinkki; Purkin pyöritys
 * 29.10.2015 Lisätty uusi aktivointivinkki; Aaltopahviwräpit
 * 29.10.2015 Lisätty uusi aktivointivinkki; Herkkuwräppi
 * 28.10.2015 Päivitetty aktivointivinkki; Jogurttipullot
@@ -53,5 +54,4 @@ Uudet ja viimeksi päivitetyt osiot:
 * 13.9.2015 Lisätty uusi aktivointivinkki; Koroke
 * 9.9.2015 Lisätty uusi aktivointivinkki; Jääpalamuotit
 * 9.9.2015 Lisätty uusi aktivointivinkki; Paperipallot mukeissa
-* 26.8.2015 Päivitetty aktivointivinkki; Pyyhelaatikko
 * 26.8.2015 Lisätty uusi aktivointivinkki; Laavalamput

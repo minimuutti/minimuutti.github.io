@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 1.11.2015 New activation post; Kibble dispenser
 * 29.10.2015 New activation post; Corrugated cardboard wraps
 * 29.10.2015 New activation post; Treat wrap
 * 28.10.2015 Updated activation post; Yoghurt bottles
@@ -53,5 +54,4 @@ New and recently updated posts:
 * 13.9.2015 New activation post; Stand
 * 9.9.2015 New activation post; Ice cube trays
 * 9.9.2015 New activation post; Paper balls in cups
-* 26.8.2015 Updated activation post; Towels in the box
 * 26.8.2015 New activation post; Lava lamps
