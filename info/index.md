@@ -25,6 +25,8 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 9.11.2015 Lisätty uusi aktivointivinkki; Muki tuubissa
+* 9.11.2015 Lisätty uusi aktivointivinkki; Kannet
 * 1.11.2015 Lisätty uusi aktivointivinkki; Purkin pyöritys
 * 29.10.2015 Lisätty uusi aktivointivinkki; Aaltopahviwräpit
 * 29.10.2015 Lisätty uusi aktivointivinkki; Herkkuwräppi
