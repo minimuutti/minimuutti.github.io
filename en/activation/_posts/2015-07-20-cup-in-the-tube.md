@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-You need a tube, a paper cup, some string and a block as a handle for this game. I used a 70cm (28") long cardboard tube but you can use a Pringles tube as well.
+You need a tube, a paper cup with handles, some string and a block as a handle for this game. I used a 70cm (28") long cardboard tube but you can use a Pringles tube as well.
 
 I tied the string to the paper cup's handles and then I tied a round block to the other end of the string. If you don't have any suitable blocks, you can tie a piece of cardboard as a handle.
 
