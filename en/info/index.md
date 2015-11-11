@@ -25,6 +25,8 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 11.11.2015 New activation post; Hardest taskbox ever
+* 11.11.2015 Updated activation post; Cones
 * 9.11.2015 New activation post; Cup in the tube
 * 9.11.2015 New activation post; Lids
 * 1.11.2015 New activation post; Kibble dispenser

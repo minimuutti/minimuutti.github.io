@@ -25,6 +25,8 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 11.11.2015 Lisätty uusi aktivointivinkki; Kaikkien aikojen vaikein tehtavalaatikko
+* 11.11.2015 Päivitetty aktivointivinkki; Tötteröt
 * 9.11.2015 Lisätty uusi aktivointivinkki; Muki tuubissa
 * 9.11.2015 Lisätty uusi aktivointivinkki; Kannet
 * 1.11.2015 Lisätty uusi aktivointivinkki; Purkin pyöritys
