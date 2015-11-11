@@ -11,7 +11,7 @@ You need a tube, a paper cup with handles, some string and a block as a handle f
 
 I tied the string to the paper cup's handles and then I tied a round block to the other end of the string. If you don't have any suitable blocks, you can tie a piece of cardboard as a handle.
 
-Then I put a couple of treats to the cup and pushed the cup bottom first into the tube so far, that only the handle remained out.
+Then I put a couple of treats into the cup and pushed the cup bottom first into the tube so far, that only the handle remained out.
 
 Miki knew right away what he was supposed to do, because of the green block handle (which have been used as a handle before). The game was still challenging for Miki, because the paper cup's diameter was about the same as the tube's, so it didn't come out so easily. Still, this game was sooo fun for Miki and for me too :)
 
