@@ -25,11 +25,12 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 14.11.2015 New activation post; Kong Traxx and towels
+* 14.11.2015 Updated activation post; Kibble dispenser
 * 11.11.2015 New activation post; Hardest taskbox ever
 * 11.11.2015 Updated activation post; Cones
 * 9.11.2015 New activation post; Cup in the tube
 * 9.11.2015 New activation post; Lids
-* 1.11.2015 New activation post; Kibble dispenser
 * 29.10.2015 New activation post; Corrugated cardboard wraps
 * 29.10.2015 New activation post; Treat wrap
 * 28.10.2015 Updated activation post; Yoghurt bottles
