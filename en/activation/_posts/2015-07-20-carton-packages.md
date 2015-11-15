@@ -7,18 +7,6 @@ image:
   thumb:
 ---
 
-All small grocery packages that are made out of carton or cardboard are good to be given to the dog to shred. I usually put some kibbles inside these.
-
-These packages are so easy for Miki, that I always tape them around before giving them to Miki. Miki shreds a taped package about in two minutes. Sometimes I put the treats inside paper balls, so that they are harder to get out.
-
-The biking helmet’s box was surprisingly hard for Miki, because there was this floor in the middle where the treats got stuck.
-
-Once I cut about 15 cm (5") long piece of empty tin foil roll. Then I took one sticky duck filet and one chicken filet and folded them in half (shaped like letter V). Then I tucked them into the midpoint of the roll. It took Miki about five minutes to get the treats out.
-
-If this is too easy for your dog, you can hang these packages from trees, railings or ladders, so the dog must first get the package down before he can start to tear it apart.
-
----
-
 [![](https://lh3.googleusercontent.com/U-ZijnUPEYXn1RWAJ5pYCjWMHFTntAx31S27X_PZe4o=w800)](https://lh3.googleusercontent.com/U-ZijnUPEYXn1RWAJ5pYCjWMHFTntAx31S27X_PZe4o=s0)
 
 [![](https://lh3.googleusercontent.com/1DKg9sQq2y6JU4QeQr0N6MZ_GSYIcYzhwEJSrz0KpLw=w800)](https://lh3.googleusercontent.com/1DKg9sQq2y6JU4QeQr0N6MZ_GSYIcYzhwEJSrz0KpLw=s0)
@@ -28,6 +16,10 @@ If this is too easy for your dog, you can hang these packages from trees, railin
 [![](https://lh3.googleusercontent.com/CD2-Ctqm5OH0LMstJqVhAIaZW8_FVV7vL4mNJmQGleY=w800)](https://lh3.googleusercontent.com/CD2-Ctqm5OH0LMstJqVhAIaZW8_FVV7vL4mNJmQGleY=s0)
 
 [![](https://lh3.googleusercontent.com/XizFBG4OmAxQIacl7EyMuJPumIU80hN47PGh23haEqg=w800)](https://lh3.googleusercontent.com/XizFBG4OmAxQIacl7EyMuJPumIU80hN47PGh23haEqg=s0)
+
+[![](https://lh3.googleusercontent.com/4yJmS4SFx3OvQ7ytCpujgLddKa9c_10waTPixB2AtjI2E_xkuR6ihJjO4CufDEbafcXkwfTMXWxjkDCTTleX3RpbX2i-5_WI2L-mspp5zTtg7HcaNf44Xz-r15tCDjowy5WZ8VxZz4jPk6RYl2fhzcgXt6NztxYq0dzEz5hmRvjLnK0gqCq-K-9q7cOCOPOSXpglvw_L458H-ragc2ibeAdCLc7BH6ca4LAwPHHA-Qez3q8gtipvneEy82hN15ddDTkTNBBdpZT6NdlUYYg9iqjMG5RWNKa_0Nc1vmWoTaIPuxBE33uoeyyBA_nXTc1yx3aeCsS38uDufiUqEoWVYw7bGFDUmtDOwN2-yNFVWp7AA1KX-heOfpnwphIgs4BFvBS47h2EYPnZif15ENYeGDhBvbKt3eiL0z-QPLLxVHPazVEtpyel6WHP-bplPaCrNX6MJkaqRo8b4s_o-ZZSi6TCWySZ8aL0Ou5AhOscqGnPrFWUabhpyrXr3EHkJIVT5yA9MpH5VypsHDbR-W9PphKVwCs_wKuMgw2jYk9-DSg=w800)](https://lh3.googleusercontent.com/4yJmS4SFx3OvQ7ytCpujgLddKa9c_10waTPixB2AtjI2E_xkuR6ihJjO4CufDEbafcXkwfTMXWxjkDCTTleX3RpbX2i-5_WI2L-mspp5zTtg7HcaNf44Xz-r15tCDjowy5WZ8VxZz4jPk6RYl2fhzcgXt6NztxYq0dzEz5hmRvjLnK0gqCq-K-9q7cOCOPOSXpglvw_L458H-ragc2ibeAdCLc7BH6ca4LAwPHHA-Qez3q8gtipvneEy82hN15ddDTkTNBBdpZT6NdlUYYg9iqjMG5RWNKa_0Nc1vmWoTaIPuxBE33uoeyyBA_nXTc1yx3aeCsS38uDufiUqEoWVYw7bGFDUmtDOwN2-yNFVWp7AA1KX-heOfpnwphIgs4BFvBS47h2EYPnZif15ENYeGDhBvbKt3eiL0z-QPLLxVHPazVEtpyel6WHP-bplPaCrNX6MJkaqRo8b4s_o-ZZSi6TCWySZ8aL0Ou5AhOscqGnPrFWUabhpyrXr3EHkJIVT5yA9MpH5VypsHDbR-W9PphKVwCs_wKuMgw2jYk9-DSg=s0)
+
+[![](https://lh3.googleusercontent.com/urNVqnSwpeKMHI07UrvFq-BUDyKNVSsVNQU_ppZSPXxtlhCKTusCrji3ra6mCHD0vlvz8_kJYe2XxBKh3-9M9hJCKodHL3wIn73Z_tEowGZE1cqtf66vWfPw8uqkzo_ZyeC78aaSuHjyVqAgr4JObx8Ja4YEcbLhDNceR8EwkL0NWb7_oz9R5cL8zbbk-o46donca2gbVOISlJmJNJ6yZNPaKT6RorI0-m_q9Em361aOo5fPcRr7q7ss1pL6u_zE1bdWh9xsZmlT6-azUizfsGdgEy8d-enhacImCnIbSpwdotat0QTcRDinnhI5tb8LXG4HvATiTBlwTs8Syq3XOkwtbsKx43lJNApu_z5RR7uEeZ9oHul5ct292LtAjYh5D4LhQ1w7kcqIHRnwBwYifMuypqN1Bdg5eEjy4xC6Kj8FKQ-4upEyWGrCp7Fp78M_e6oA8v6VwChMczdZC1RzfyVCx4rjlxloLcEGEOWu89JGojeDcem7dUKoZEizmoCDb2VX6fcbU8KZrYZ18YOQfyS0YpK5CZDsg15MllI2D8o=w800)](https://lh3.googleusercontent.com/urNVqnSwpeKMHI07UrvFq-BUDyKNVSsVNQU_ppZSPXxtlhCKTusCrji3ra6mCHD0vlvz8_kJYe2XxBKh3-9M9hJCKodHL3wIn73Z_tEowGZE1cqtf66vWfPw8uqkzo_ZyeC78aaSuHjyVqAgr4JObx8Ja4YEcbLhDNceR8EwkL0NWb7_oz9R5cL8zbbk-o46donca2gbVOISlJmJNJ6yZNPaKT6RorI0-m_q9Em361aOo5fPcRr7q7ss1pL6u_zE1bdWh9xsZmlT6-azUizfsGdgEy8d-enhacImCnIbSpwdotat0QTcRDinnhI5tb8LXG4HvATiTBlwTs8Syq3XOkwtbsKx43lJNApu_z5RR7uEeZ9oHul5ct292LtAjYh5D4LhQ1w7kcqIHRnwBwYifMuypqN1Bdg5eEjy4xC6Kj8FKQ-4upEyWGrCp7Fp78M_e6oA8v6VwChMczdZC1RzfyVCx4rjlxloLcEGEOWu89JGojeDcem7dUKoZEizmoCDb2VX6fcbU8KZrYZ18YOQfyS0YpK5CZDsg15MllI2D8o=s0)
 
 [![](https://lh3.googleusercontent.com/MgjMaFkpS-x25npw2XlbsDIjI94gwUwJC8Q00lo8T4M=w800)](https://lh3.googleusercontent.com/MgjMaFkpS-x25npw2XlbsDIjI94gwUwJC8Q00lo8T4M=s0)
 
