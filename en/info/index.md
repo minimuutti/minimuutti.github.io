@@ -49,15 +49,3 @@ New and recently updated posts:
 * 24.9.2015 New activation post; Space Ball Stellaron
 * 24.9.2015 New activation post; Dermosil bottles
 * 23.9.2015 New activation post; Stuffed panda
-* 19.9.2015 Updated activation post; Basket in the box
-* 19.9.2015 Updated activation post; Tubes in the box
-* 19.9.2015 Updated activation post; Cups in bowls
-* 19.9.2015 Updated activation post; Puzzle mat
-* 15.9.2015 Updated activation post; Multiple cups inside others
-* 14.9.2015 New activation post; Kongs in cups
-* 14.9.2015 Updated activation post; Yarn box
-* 13.9.2015 New activation post; Treat rope
-* 13.9.2015 New activation post; Stand
-* 9.9.2015 New activation post; Ice cube trays
-* 9.9.2015 New activation post; Paper balls in cups
-* 26.8.2015 New activation post; Lava lamps

@@ -49,15 +49,3 @@ Uudet ja viimeksi päivitetyt osiot:
 * 24.9.2015 Lisätty uusi aktivointivinkki; Space Ball Stellaron
 * 24.9.2015 Lisätty uusi aktivointivinkki; Dermosil pullot
 * 23.9.2015 Lisätty uusi aktivointivinkki; Pehmopanda
-* 19.9.2015 Päivitetty aktivointivinkki; Kori laatikossa
-* 19.9.2015 Päivitetty aktivointivinkki; Putkilot laatikossa
-* 19.9.2015 Päivitetty aktivointivinkki; Kupit kulhoissa
-* 19.9.2015 Päivitetty aktivointivinkki; Palapelimatto
-* 15.9.2015 Päivitetty aktivointivinkki; Useita purkkeja sisäkkäin
-* 14.9.2015 Lisätty uusi aktivointivinkki; Kongit mukeissa
-* 14.9.2015 Päivitetty aktivointivinkki; Narulaatikko
-* 13.9.2015 Lisätty uusi aktivointivinkki; Namiköysi
-* 13.9.2015 Lisätty uusi aktivointivinkki; Koroke
-* 9.9.2015 Lisätty uusi aktivointivinkki; Jääpalamuotit
-* 9.9.2015 Lisätty uusi aktivointivinkki; Paperipallot mukeissa
-* 26.8.2015 Lisätty uusi aktivointivinkki; Laavalamput
