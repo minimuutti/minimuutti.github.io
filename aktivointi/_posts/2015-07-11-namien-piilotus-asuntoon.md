@@ -13,8 +13,6 @@ Tässä tehtävässä laitan Mikin parvekkeelle odottamaan, jotta se ei suoraan 
 
 Tässä on muutamia vinkkejä johon piilottaa nappulat: jalkalistojen päälle, lattialla olevien tavaroiden viereen tai taakse, tuolien pöytien sohvien jalkojen taakse, keittiötuolien välipuulle (mikä sitten onkaan se oikea termi tuolle puulle mikä on vaakatasossa tuolin jalkojen välissä), ovien taakse, pitkien verhojen alle, keskelle lattiaa jotka peitän esim. tyynyillä, maton kulman alle, matalien huonekalujen reunoille (esim. sohvapöytä, rahi) niin ettei Mikin tarvitse kiivetä.
 
-Talvella kun illalla on pilkkopimeää (tai huoneessa minkä saa täysin pimeäksi) voi saman tehdä itselleen helpommalla tavalla, eikä tarvitse kontata ja nähdä vaivaa nappuloiden piilottamisessa. Eli huone vain pimeäksi  ja sen jälkeen nappulat voi ripotella suoraan keskelle lattiaa ja kehottaa koiraa etsimään. Näin koiran on pakko käyttää nenäänsä löytääkseen nappulat.
-
 ---
 
 [![](https://lh3.googleusercontent.com/6pdSJZA21RVCoC76XtYAFK-AjP4wiPCuy9rffbYzVRc=w800)](https://lh3.googleusercontent.com/6pdSJZA21RVCoC76XtYAFK-AjP4wiPCuy9rffbYzVRc=s0)

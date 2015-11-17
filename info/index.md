@@ -25,6 +25,8 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 17.11.2015 Lisätty uusi aktivointivinkki; Etsiminen pimeässä
+* 15.11.2015 Lisätty uusi aktivointivinkki; Kapea laatikko
 * 15.11.2015 Päivitetty aktivointivinkki; Kartonkipakkaukset
 * 14.11.2015 Lisätty uusi aktivointivinkki; Kong Traxx ja pyyhe
 * 14.11.2015 Päivitetty aktivointivinkki; Purkin pyöritys

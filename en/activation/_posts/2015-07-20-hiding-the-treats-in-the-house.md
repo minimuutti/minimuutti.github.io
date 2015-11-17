@@ -11,8 +11,6 @@ I often hide the kibbles (about 50 to 100) around the apartment. Or I could just
 
 You need to hide the kibbles only in those areas you are comfortable for your dog to go. For example Miki doesn’t have a permission to climb on the sofa or any other furniture, so I hide the kibbles relatively close to the floorlevel.
 
-In the winter we have long dark nights here in Finland. Sometimes when it’s dark outside I turn the lights out and just sprinkle the kibbles on the floor and let Miki use his nose to sniff out where the kibbles are. You can do the same thing if you have a windowless room, just shut the door and turn the lights off.
-
 ---
 
 [![](https://lh3.googleusercontent.com/6pdSJZA21RVCoC76XtYAFK-AjP4wiPCuy9rffbYzVRc=w800)](https://lh3.googleusercontent.com/6pdSJZA21RVCoC76XtYAFK-AjP4wiPCuy9rffbYzVRc=s0)
