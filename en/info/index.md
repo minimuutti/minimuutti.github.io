@@ -25,10 +25,12 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 3.12.2015 New activation post; Obstacle course
+* 3.12.2015 Updated activation post; Carton packages
+* 3.12.2015 Updated activation post; Multiple cups inside others
 * 22.11.2015 New activation post; Spin the disk
 * 17.11.2015 New activation post; Searching in the dark
 * 15.11.2015 New activation post; Narrow box
-* 15.11.2015 Updated activation post; Carton packages
 * 14.11.2015 New activation post; Kong Traxx and towels
 * 14.11.2015 Updated activation post; Kibble dispenser
 * 11.11.2015 New activation post; Hardest taskbox ever

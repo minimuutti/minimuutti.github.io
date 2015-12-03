@@ -25,10 +25,12 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 3.12.2015 Lisätty uusi aktivointivinkki; Esterata
+* 3.12.2015 Päivitetty aktivointivinkki; Kartonkipakkaukset
+* 3.12.2015 Päivitetty aktivointivinkki; Useita purkkeja sisäkkäin
 * 22.11.2015 Lisätty uusi aktivointivinkki; Kiekon pyöritys
 * 17.11.2015 Lisätty uusi aktivointivinkki; Etsiminen pimeässä
 * 15.11.2015 Lisätty uusi aktivointivinkki; Kapea laatikko
-* 15.11.2015 Päivitetty aktivointivinkki; Kartonkipakkaukset
 * 14.11.2015 Lisätty uusi aktivointivinkki; Kong Traxx ja pyyhe
 * 14.11.2015 Päivitetty aktivointivinkki; Purkin pyöritys
 * 11.11.2015 Lisätty uusi aktivointivinkki; Kaikkien aikojen vaikein tehtavalaatikko
