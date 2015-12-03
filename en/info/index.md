@@ -26,6 +26,7 @@ If you live in Finland, please use the links below next time you buy something f
 New and recently updated posts:
 
 * 3.12.2015 New activation post; Obstacle course
+* 3.12.2015 New activation post; Hide and seek
 * 3.12.2015 Updated activation post; Carton packages
 * 3.12.2015 Updated activation post; Multiple cups inside others
 * 22.11.2015 New activation post; Spin the disk
