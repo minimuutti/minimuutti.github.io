@@ -52,6 +52,4 @@ New and recently updated posts:
 * 26.9.2015 New activation post; Falling treats
 * 26.9.2015 Updated activation post; Treat tube
 * 25.9.2015 New activation post; JW Hol-ee Roller
-* 24.9.2015 New activation post; Space Ball Stellaron
 * 24.9.2015 New activation post; Dermosil bottles
-* 23.9.2015 New activation post; Stuffed panda
