@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 5.12.2015 New activation post; Under the dome
 * 3.12.2015 New activation post; Obstacle course
 * 3.12.2015 New activation post; Hide and seek
 * 3.12.2015 Updated activation post; Carton packages
