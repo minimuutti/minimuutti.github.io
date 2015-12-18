@@ -25,6 +25,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 18.12.2015 Lisätty uusi aktivointivinkki; Pilleripurkit
 * 5.12.2015 Lisätty uusi aktivointivinkki; Under the dome
 * 3.12.2015 Lisätty uusi aktivointivinkki; Esterata
 * 3.12.2015 Lisätty uusi aktivointivinkki; Piiloleikki
