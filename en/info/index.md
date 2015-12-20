@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 20.12.2015 New activation post; All eggs in one basket
 * 18.12.2015 New activation post; Sniffing course
 * 18.12.2015 New activation post; Pill jars
 * 5.12.2015 New activation post; Under the dome
