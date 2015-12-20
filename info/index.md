@@ -51,9 +51,3 @@ Uudet ja viimeksi päivitetyt osiot:
 * 3.10.2015 Lisätty uusia valokuvia kategoriaan; Syksy
 * 2.10.2015 Lisätty uusi aktivointivinkki; Kannelliset rasiat
 * 1.10.2015 Lisätty uusi aktivointivinkki; Tehtävälaatikko pulloilla
-* 27.9.2015 Lisätty uusi aktivointivinkki; Minitehtäviä
-* 26.9.2015 Päivitetty aktivointivinkki; Pyyheliina
-* 26.9.2015 Lisätty uusi aktivointivinkki; Putoilevat namit
-* 26.9.2015 Päivitetty aktivointivinkki; Putkipiilo
-* 25.9.2015 Lisätty uusi aktivointivinkki; JW Hol-ee Roller 
-* 24.9.2015 Lisätty uusi aktivointivinkki; Dermosil pullot
