@@ -147,7 +147,6 @@ image:
 ![](https://lh3.googleusercontent.com/JnjcM-DuW7bea3dqLxvpjtGRoa6Jvh-yibWJ_nBELCE=w245)
 
 * Leo (hakee Kong Genius Leon)
-
 * Kongi (hakee lumiukko Kongin)
 
 ![](https://lh3.googleusercontent.com/fiQPWPo0ZDdAWwFiTzpe1HKSSdz-T18qyjISnN_Pt3U=w245)
@@ -204,7 +203,6 @@ image:
 ![](https://lh3.googleusercontent.com/hNxPRi1FtnVwElU9GORx2jm4Wx0r7LZ3wepsC-l3CR8=w245)
 
 * kuonon lepuuttaminen kämmenellä (tähän ei ole mitään käskyä vaan pelkkä käsimerkki, koska toiminnon on tarkoitus rauhoittaa Mikiä)
-
 * kosketuskepin pään koskettaminen kuonolla
 
 ![](https://lh3.googleusercontent.com/mKdR6-U0Ob5ocDNMG6cFi4bRocYUQ41a3jjkxVlfgFo=w245)

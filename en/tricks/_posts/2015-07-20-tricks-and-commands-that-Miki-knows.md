@@ -147,7 +147,6 @@ image:
 ![](https://lh3.googleusercontent.com/JnjcM-DuW7bea3dqLxvpjtGRoa6Jvh-yibWJ_nBELCE=w245)
 
 * Leo / bring Kong Leo
-
 * Kongi / bring the Kong
 
 ![](https://lh3.googleusercontent.com/fiQPWPo0ZDdAWwFiTzpe1HKSSdz-T18qyjISnN_Pt3U=w245)
@@ -204,7 +203,6 @@ image:
 ![](https://lh3.googleusercontent.com/hNxPRi1FtnVwElU9GORx2jm4Wx0r7LZ3wepsC-l3CR8=w245)
 
 * chin rest (we don't have a verbal cue for this but we have a hand signal, because it's suppose to calm Miki when he puts his chin on my palm)
-
 * touch stick (touches the ball on the stick with his nose)
 
 ![](https://lh3.googleusercontent.com/mKdR6-U0Ob5ocDNMG6cFi4bRocYUQ41a3jjkxVlfgFo=w245)
