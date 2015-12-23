@@ -13,11 +13,6 @@ image:
 
 ![](https://lh3.googleusercontent.com/83GXrS90Xpz1VkNpW5X0XaxpiK4KKSsN6SpT5uZj5AA=w245)
 
-* rengas puhkee (makaa selällään kuten "flat tire in alaska" -memessä, odotellaan siepattavia hetkiä)
-
-![](https://lh3.googleusercontent.com/3o272aBNRpW-kZsIKtrosnme7B2ByV8WxYSWn8vv--w=w245)
-![](https://lh3.googleusercontent.com/oq1tKwhGcch9q2Fhc-vjVukxgVhYnX-v3f-dEEpc5wA=w245)
-
 * nami nenällä (eli tarkoitus olisi saada nami nenän päälle, jonka saisi luvalla ottaa. Tämä on vähän jäänyt, koska Miki ei oikein pidä siitä, että kättä laitetaan sen kasvojen eteen tai päälle. Odottaminen sujuu jo mallikkaasti.)
 
 ![](https://lh3.googleusercontent.com/1ag025tJip4yM6pieZJ5Lltmemz3-jd3SJlvUy6ccWc=w245)
