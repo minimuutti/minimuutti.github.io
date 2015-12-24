@@ -20,3 +20,5 @@ This kind of game can be really taxing on a dog so it's really important to end 
 In this game I don't require that Miki performs the tricks that he does perfectly because the idea behind this game is to let the dog think for himself and try out different things.
 
 When we play this game I click even when Miki does some little things like lifting a paw, backing up couple of steps, picking up a toy, licking his lips and all other little things that aren't necessarily things that have been taught to him. Miki did try out things that he hadn't been taught like rolling on the floor :)
+
+This game is so fun and it's one of my favourite rainy day activity.
