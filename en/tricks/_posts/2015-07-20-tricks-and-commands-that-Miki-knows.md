@@ -147,6 +147,9 @@ image:
 ![](https://lh3.googleusercontent.com/JnjcM-DuW7bea3dqLxvpjtGRoa6Jvh-yibWJ_nBELCE=w245)
 
 * Leo / bring Kong Leo
+
+![](https://lh3.googleusercontent.com/sqAZ7K7SajO0wgQaLXi3hdtSilE1PYod0Wkz5ZXgWXPjRScK9HwjOCJR-nEImfD5u9by5HztsxZNn6NrSuYl8uQN1P3Rzm78ag0lbltzY1bYGN_Ez8eBYN2Yes3mnHeGHlGeOiD91OzohvcghAY9pdCbwiQpEKacXXzMpd-r1qVPPAuTB-Lpl51oTpgFJO8vBy70NFX9wAFUWqqnnu4__dKwHNqg1jHvzHLXaO9baKkafZqR2MrBr37kEzwgf83n6qKcvLrrZsZ7f5O9fryf7LlEFMEflShP3CGxuKtMrpm7FwgMv4wEsOE7XehXlX1yeV5Eej-lnQjnjP9T-XV-LxmWfgEGnqyoJY-H2E71pLPNbG4zp8dHpjxSHlGLZxL9Gk-xwBGq23Q4MmTXbUBgRxVu9DQuse4W8v_uMvfNBPCtl08G2B_HaopdnFzwEK8uD-SFXsWbo0h0gQ0sM7g2oDicGA4DeTx8bQSiJOFHEu5UX-JfjUxzYyL4TgkIORb1E-IIKW9HY6YfAzbgmNlllkPsR8-aRRli_WWWo2nCR2wSElmmwtXQsH6R9wRu0ospIIe-=w245)
+
 * Kongi / bring the Kong
 
 ![](https://lh3.googleusercontent.com/fiQPWPo0ZDdAWwFiTzpe1HKSSdz-T18qyjISnN_Pt3U=w245)
