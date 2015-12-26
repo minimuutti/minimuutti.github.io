@@ -13,6 +13,8 @@ Tässä tehtävässä laitan Mikin parvekkeelle odottamaan, jotta se ei suoraan 
 
 Tässä on muutamia vinkkejä johon piilottaa nappulat: jalkalistojen päälle, lattialla olevien tavaroiden viereen tai taakse, tuolien pöytien sohvien jalkojen taakse, keittiötuolien välipuulle (mikä sitten onkaan se oikea termi tuolle puulle mikä on vaakatasossa tuolin jalkojen välissä), ovien taakse, pitkien verhojen alle, keskelle lattiaa jotka peitän esim. tyynyillä, maton kulman alle, matalien huonekalujen reunoille (esim. sohvapöytä, rahi) niin ettei Mikin tarvitse kiivetä.
 
+Vaihtelua tähän leikkiin saa laittamalla namit ensin paperipallojen sisälle, jotka sitten piilotetaan.
+
 ---
 
 [![](https://lh3.googleusercontent.com/6pdSJZA21RVCoC76XtYAFK-AjP4wiPCuy9rffbYzVRc=w800)](https://lh3.googleusercontent.com/6pdSJZA21RVCoC76XtYAFK-AjP4wiPCuy9rffbYzVRc=s0)
