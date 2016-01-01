@@ -20,3 +20,5 @@ Tälläinen leikki voi olla koiralle erittäin väsyttävää, joten kannattaa t
 En tässä leikissä vaadi, että Miki suorittaa mitään tietynlaista käytöstä (siis en vaadi pilkuntarkkaa suoritusta, kun se vaikka pyörähtää lattialla ympäri), koska tarkoitus on nimenomaan saada Miki kokeilemaan ja tarjoamaan mitä tahansa. Tässä leikissä en kiellä Mikiä ollenkaan, mutta ei toivotut asiat, kuten haukkumisen tai ulvomisen jätän aina naksuttamatta.
 
 Kun leikimme tätä, niin naksutan Mikille pienimmästäkin erilaisesta toiminnosta, kuten tassun nostamisesta, parin askeleen peruuttamisesta, lelun koskemisesta, lelun nostamisesta, huulten nuolemisesta ja muistakin pienistä asioista, jotka eivät välttämättä ole mitään opetettuja käskyjä. Miki tulee tarjonneeksi myös sellaisia toimintoja joita sille ei koskaan ole opetettu, kuten maassa kieriminen. Ihanaa :)
+
+Tätä leikkiä kannattaa leikkiä eri huoneissa ja vaikka kylässä ollessaan. Tällöin leikistä saa kaikista eniten irti kun koira tulee tarjonneeksi eri asioita eri ympäristöissä.

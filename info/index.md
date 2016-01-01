@@ -25,6 +25,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 1.1.2015 Päivitetty aktivointivinkki; Minitehtäviä
 * 25.12.2015 Lisätty uusi aktivointivinkki; Joulukalenterit
 * 24.12.2015 Lisätty uusi aktivointivinkki; Jotain muuta -leikki
 * 20.12.2015 Lisätty uusi aktivointivinkki; Kaikki munat samassa korissa

@@ -21,4 +21,6 @@ In this game I don't require that Miki performs the tricks that he does perfectl
 
 When we play this game I click even when Miki does some little things like lifting a paw, backing up couple of steps, picking up a toy, licking his lips and all other little things that aren't necessarily things that have been taught to him. Miki did try out things that he hadn't been taught like rolling on the floor :)
 
+We play this game in different rooms and at our friends houses. When we play this game in different environments, Miki does different things and not always the same ones.
+
 This game is so fun and it's one of my favourite rainy day activity.
