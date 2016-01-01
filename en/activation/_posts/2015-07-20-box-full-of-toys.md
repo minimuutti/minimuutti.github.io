@@ -7,8 +7,6 @@ image:
   thumb:
 ---
 
-We use different boxes to search with Miki daily.
-
 At first I thought of making a ball pool in the cardboard box, but the balls would have cost about 50 euros so I ended up improvising.
 
 In this box full of toys we have for example rope toys, stuffed animal, different kinds of balls, empty treat tubes, a small towel, Kong toys, empty soda bottles etc. The items should be soft or rounded, so your dog doesn’t hurt his nose while he is plowing in the box to get the treats.

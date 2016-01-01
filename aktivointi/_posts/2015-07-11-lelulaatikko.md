@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Lelulaatikot on meillä päivittäin käytössä. Ajattelin ensin ostaa pahvilaatikollisen pallomereen tarkoitettuja palloja, josta Miki olisi saanut etsiä nameja. Pallot (200 kpl) olisivat tulleet maksamaan melkein 50 euroa ja olisivat vieneet hirveästi tilaa, joten päädyin improvisoimaan.
+Lelulaatikot tuo kivaa vaihtelua etsimistehtäviin. Ajattelin ensin ostaa pahvilaatikollisen pallomereen tarkoitettuja palloja, josta Miki olisi saanut etsiä nameja. Pallot (200 kpl) olisivat tulleet maksamaan melkein 50 euroa ja olisivat vieneet hirveästi tilaa, joten päädyin improvisoimaan.
 
 Meillä on iso pahvilaatikko täytetty kaikenlaisilla pehmeillä ja pyöreillä esineillä, josta Miki sitten etsii nameja. Tässä olen käyttänyt pieniä nakin palasia.
 
