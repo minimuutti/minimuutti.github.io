@@ -25,6 +25,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 2.1.2016 Lisätty uusia valokuvia kategoriaan; Kuvia Mikistä
 * 1.1.2016 Lisätty uusia valokuvia kategoriaan; Talvi
 * 1.1.2016 Päivitetty aktivointivinkki; Jotain muuta -leikki
 * 1.1.2016 Päivitetty aktivointivinkki; Minitehtäviä
