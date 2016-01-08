@@ -19,7 +19,7 @@ Sivusto sisältää vinkkejä vilkkaiden koirien energian kuluttamiseksi. Kaikki
 
 Mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani, niin käytäthän **[Info](http://minimuutti.com/info/)** -sivulta löytyviä linkkejä, kun seuraavan kerran asioit Zooplussan tai Mustin ja Mirrin verkkokaupassa. Linkit avautuvat klikkaamalla kauppojen logoja.
 
-Sivustolta löytyy myös suomalaisia luontokuvia sekä kuvia Mikistä.
+Sivustolta löytyy myös luontokuvia sekä kuvia Mikistä.
 
 
 ### Mikistä ja vähän myös kirjoittajasta
