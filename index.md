@@ -5,7 +5,24 @@ layout: default
 
 # Tervetuloa Minimuutin matkaan!
 
-### Ensin Mikistä ja vähän myös kirjoittajasta
+The site is also available in [English](http://minimuutti.com/en/).
+
+Sivusto sisältää vinkkejä vilkkaiden koirien energian kuluttamiseksi. Kaikki sivustolta löytyvät ideat on testattu eläinkokein ;) ja testaajana on toiminut oma vilkas koirani Miki.
+
+[**Aktivointi**](http://minimuutti.com/aktivointi/) –kategoriasta löytyy paljon haistelu- ja älytehtäviä sekä erilaisia itsetehtyjä pelejä kuvallisilla ohjeilla.
+
+[**Aktivointilelut**](http://minimuutti.com/aktivointilelut/) –kategoriasta löydät vinkkejä eri aktivointilelujen käyttöön.
+
+[**Temput**](http://minimuutti.com/temput/) –kategoriassa on listattuna Mikin osaamat sekä opetteluvaiheessa olevat temput, jotta sinä saisit ideoita omalle koirallesi opetettavista tempuista.
+
+[**Info**](http://minimuutti.com/info/) –linkin takaa löydät listan viimeksi lisätyistä posteista, yhteistyökumppaneiden linkit sekä yhteystiedot.
+
+Mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani, niin käytäthän **[Info](http://minimuutti.com/info/)** -sivulta löytyviä linkkejä, kun seuraavan kerran asioit Zooplussan tai Mustin ja Mirrin verkkokaupassa. Linkit avautuvat klikkaamalla kauppojen logoja.
+
+Sivustolta löytyy myös suomalaisia luontokuvia sekä kuvia Mikistä.
+
+
+### Mikistä ja vähän myös kirjoittajasta
 
 Miki (inuiittikieltä, tarkoittaa pientä) on elokuussa 2012 syntynyt alaskanmalamuutin ja suomenlapinkoiran sekoitus; minimuutti. Sydämeltään se on 100% malamuuttia. Miki oli 8 pennun pentueestaan pentu numero 1. Se oli ensimmäisenä emon nisällä, ensimmäisenä meitä tervehtimässä ja kuulemma söi häikäilemättä myös vanhempiensa ruuat.
 

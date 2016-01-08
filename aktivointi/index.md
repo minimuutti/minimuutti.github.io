@@ -3,7 +3,7 @@ title: "Aktivointi"
 layout: category
 ---
 
-20 minuutin aktivointi vastaa noin kahden tunnin lenkkiä, joka pitäisi riittää väsyttämään useimmat koirat. Mikiä lenkitetään arkena noin 3 tuntia päivässä ja viikonloppuisin 3-4 tuntia päivässä. Lenkkien lisäksi Mikiä aktivoidaan noin 1–1,5 tuntia joka päivä. Syys-talvi-kevät kausilla Mikin kanssa käydään myös juoksemassa keskimäärin pari kertaa viikossa. Ja juoksemisella todella tarkoitan juoksemista, jossa Miki vetää valjaissa, enkä mitään hölkkää.
+20 minuutin aktivointi vastaa noin kahden tunnin lenkkiä, joka pitäisi riittää väsyttämään useimmat koirat. Mikiä lenkitetään arkena noin 3 tuntia päivässä ja viikonloppuisin 3-4 tuntia päivässä. Lenkkien lisäksi Mikiä aktivoidaan noin 1–1,5 tuntia joka päivä. Syys-talvi-kevät kausilla Mikin kanssa käydään myös juoksemassa keskimäärin pari kertaa viikossa.
 
 Edellinen koirakouluttajamme ei uskonut, että Miki on TODELLA energinen vaikka sitä vakuutin ennen ensimmäistä tapaamistamme. Kun kouluttaja tajusi miten energisen yksilön kanssa on tekemisissä, hän ehdotti että ennen harjoituksia kannattaa Mikille heittää muutama naminpalanen ruohikkoon etsittäväksi "se jos mikä väsyttää koiran kuin koiran". Toimii ehkä normaalienergisillä koirilla ja vielä ehkä ennemmin sellaisilla yksilöillä, jotka eivät ole tottuneet hajutyöskentelyyn tai eivät ole ennen saaneet etsiä ruokaansa.
 
