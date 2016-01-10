@@ -25,6 +25,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 10.1.2016 Lisätty uusi aktivointivinkki; Korallit
 * 10.1.2016 Päivitetty aktivointivinkki; Kaikki munat samassa korissa
 * 2.1.2016 Päivitetty aktivointivinkki; Joulukalenterit
 * 2.1.2016 Lisätty uusia valokuvia kategoriaan; Kuvia Mikistä
