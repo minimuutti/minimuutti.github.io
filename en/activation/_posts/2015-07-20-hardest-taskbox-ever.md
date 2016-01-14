@@ -18,7 +18,7 @@ I made this, the hardest taskbox ever, included:
 - 2 dog treat tubes
 - 1 taped cereal package, which had 20 [paper balls](http://minimuutti.com/en/activation/small-games/#paperballs) inside (and one kibble in each ball)
 - 15 small [yoghurt bottles](http://minimuutti.com/en/activation/yoghurt-bottles/)
-- 3 pill jars
+- 3 [pill jars](http://localhost:4000/en/activation/pill-jars/)
 - 1 towel tied to a knot
 - 2 rolled towels inside a [JW Hol-ee Roller](http://minimuutti.com/en/activation/jw-hol-ee-roller/) toy
 - 1 small carton package

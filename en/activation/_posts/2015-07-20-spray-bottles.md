@@ -1,5 +1,5 @@
 ---
-title: ""
+title: "Spray bottles"
 layout: article
 image:
   feature:

@@ -9,7 +9,7 @@ image:
 
 Tämä lelu on oikeasti tarkoitettu noutoleikkeihin, mutta meillä tätä on käytetty aktivointileluna.
 
-Olen pujottanut noista reijistä puolikosteita [ankkafileen](http://clk.tradedoubler.com/click?p(240480)a(2526211)g(21401374)url(https://www.mustijamirri.fi/brit-care-let-s-bite-ankanrinta-80-g-018621-1))  siivuja, sekä ohuiksi leikattuja puolikosteita [kanafileen](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/puruliuskat/rocco/171756)) siivuja. Koloihin voisi yhtä hyvin pujotella vaikka juustosiivuja tai kinkkusiivuja.
+Olen pujottanut noista reijistä puolikosteita [ankkafileen](http://clk.tradedoubler.com/click?p(240480)a(2526211)g(21401374)url(https://www.mustijamirri.fi/brit-care-let-s-bite-ankanrinta-80-g-018621-1)) siivuja, sekä ohuiksi leikattuja puolikosteita [kanafileen](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/puruliuskat/rocco/171756)) siivuja. Koloihin voisi yhtä hyvin pujotella vaikka juustosiivuja tai kinkkusiivuja.
 
 Mikiltä kesti noin 2-3 minuuttia saada nuo herkut syötyä.
 
