@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 14.1.2016 New activation post; Step stool
 * 14.1.2016 Updated activation post; All eggs in one basket
 * 11.1.2016 Updated activation post; Small games
 * 11.1.2016 New activation post; Spray bottles
