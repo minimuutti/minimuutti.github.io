@@ -25,9 +25,9 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 17.1.2016 Päivitetty aktivointivinkki; Minitehtäviä
 * 14.1.2016 Lisätty uusi aktivointivinkki; Jakkara
 * 14.1.2016 Päivitetty aktivointivinkki; Kaikki munat samassa korissa
-* 11.1.2016 Päivitetty aktivointivinkki; Minitehtäviä
 * 11.1.2016 Lisätty uusi aktivointivinkki; Suihkepullot
 * 10.1.2016 Lisätty uusi aktivointivinkki; Korallit
 * 2.1.2016 Päivitetty aktivointivinkki; Joulukalenterit
@@ -55,7 +55,3 @@ Uudet ja viimeksi päivitetyt osiot:
 * 28.10.2015 Päivitetty aktivointivinkki; Jogurttipullot
 * 28.10.2015 Lisätty uusi aktivointivinkki; Köydenveto
 * 10.10.2015 Lisätty uusi aktivointivinkki; Levysoittimet
-* 3.10.2015 Lisätty uusi aktivointivinkki; Aaltopahvispiraali
-* 3.10.2015 Lisätty uusia valokuvia kategoriaan; Syksy
-* 2.10.2015 Lisätty uusi aktivointivinkki; Kannelliset rasiat
-* 1.10.2015 Lisätty uusi aktivointivinkki; Tehtävälaatikko pulloilla

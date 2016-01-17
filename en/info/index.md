@@ -25,9 +25,9 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 17.1.2016 Updated activation post; Small games
 * 14.1.2016 New activation post; Step stool
 * 14.1.2016 Updated activation post; All eggs in one basket
-* 11.1.2016 Updated activation post; Small games
 * 11.1.2016 New activation post; Spray bottles
 * 10.1.2016 New activation post; Corals
 * 2.1.2016 Updated activation post; Advent calendars
@@ -55,7 +55,3 @@ New and recently updated posts:
 * 28.10.2015 Updated activation post; Yoghurt bottles
 * 28.10.2015 New activation post; Tug of war
 * 10.10.2015 New activation post; Turntables
-* 3.10.2015 New activation post; Cardboard spiral
-* 3.10.2015 New photos added in category; Autumn
-* 2.10.2015 New activation post; Cans with lids
-* 1.10.2015 New activation post; Taskbox with bottles
