@@ -25,6 +25,8 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+
+* 21.1.2016 Päivitetty aktivointivinkki; Paperituubi
 * 19.1.2016 Lisätty uusi aktivointivinkki; Pussukat
 * 17.1.2016 Päivitetty aktivointivinkki; Minitehtäviä
 * 14.1.2016 Lisätty uusi aktivointivinkki; Jakkara
