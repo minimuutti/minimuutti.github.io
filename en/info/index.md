@@ -25,6 +25,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 22.1.2016 Updated activation post; Ball pool
 * 21.1.2016 Updated activation post; Papertube
 * 19.1.2016 New activation post; Crocheted baskets
 * 17.1.2016 Updated activation post; Small games
