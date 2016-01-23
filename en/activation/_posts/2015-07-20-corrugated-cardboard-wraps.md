@@ -7,9 +7,9 @@ image:
   thumb:
 ---
 
-In this wrap there are two pieces of duck filet hidden under the corrugated cardboard.
+In this wrap there are two pieces of duck fillet hidden under the corrugated cardboard.
 
-First I cut two pieces from corrugated cardboard. Then I cut a duck filet half, and put them under the wraps before I secured the wraps with some packing tape. You can use any thin and sticky treats for this game, for example pieces of duck filet or chicken filet or small slices of cheese or ham.
+First I cut two pieces from corrugated cardboard. Then I cut a duck fillet half, and put them under the wraps before I secured the wraps with some packing tape. You can use any thin and sticky treats for this game, for example pieces of duck fillet or chicken fillet or small slices of cheese or ham.
 
 You can use a Pringlestube, or if you have a small dog you can use empty paper towel rolls as well.
 

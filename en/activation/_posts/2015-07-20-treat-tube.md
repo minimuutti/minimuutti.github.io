@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-For this you only need a tube, a towel or a newspaper and any kind of treats. I used pieces of dried chicken filet.
+For this you only need a tube, a towel or a newspaper and any kind of treats. I used pieces of dried chicken fillet.
 
 I used a cardboard tube size 30 x 8 cm (12" x 3"), but you can use plastic pipes like part of sewer pipe or rainwater pipe as well. You can inquire these plastic pipes from your hardware store and cardboard tubes from companies that offer blueprint copying like I did, and they gave me the tubes for free :)
 

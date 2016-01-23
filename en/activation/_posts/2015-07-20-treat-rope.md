@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-You can use old and worn out rope toys for this game. I cut a chicken filet to thin strips and then I pushed the strips into the holes of the rope.
+You can use old and worn out rope toys for this game. I cut a chicken fillet to thin strips and then I pushed the strips into the holes of the rope.
 
 It took Miki over 20 minutes to get all the treats out from the long rope toy. From the circular rope it took Miki only about 3 minutes.
 

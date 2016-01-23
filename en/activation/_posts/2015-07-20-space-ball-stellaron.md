@@ -9,7 +9,7 @@ image:
 
 This toy is actually meant for fetching, but we have used it as a treat dispenser.
 
-I wired two semi-moist duck filets and a semi-moist chicken filet (which I had cut into strings) around the toy’s holes. You can also use slices of cheese or slices of ham.
+I wired two semi-moist duck filets and a semi-moist chicken fillet (which I had cut into strings) around the toy’s holes. You can also use slices of cheese or slices of ham.
 
 It took Miki about 2 to 3 minutes to get the treats out.
 

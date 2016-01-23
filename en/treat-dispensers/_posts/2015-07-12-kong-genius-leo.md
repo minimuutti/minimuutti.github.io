@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-With Kong Genius Leo (size L) I usually use kibbles. Once I tucked in a dried chicken filet in it but Miki decided to take a shortcut and tore the toy apart to get to the chicken. So, I had to go to the pet store to get a new one.
+With Kong Genius Leo (size L) I usually use kibbles. Once I tucked in a dried chicken fillet in it but Miki decided to take a shortcut and tore the toy apart to get to the chicken. So, I had to go to the pet store to get a new one.
 
 I also gave feedback to the Kong company. I suggested that they should manufacture the Genius toys from the black Extreme Kong rubber so that the Genius toys would last rougher mouthing.
 

@@ -30,7 +30,7 @@ My course included:
 - a trivet
 - and I also hide some treats under the tables and under the office chair's legs.
 
-You can use any treats in this game. I used small pieces of dried chicken filet.
+You can use any treats in this game. I used small pieces of dried chicken fillet.
 
 It took me about 10-15 minutes altogether to plan, build and clear the course, but it was worth every minute. Miki loves to search and he even got tired after we played this game about 20 minutes.
 

@@ -3,7 +3,10 @@ title: Info
 layout: article
 ---
 
-Yhteys: minimuutti.com(at)gmail.com
+Yhteystiedot:
+
+sähköposti: minimuutti.com(at)gmail.com
+Twitterissä: @minimuutti
 
 ![](https://lh3.googleusercontent.com/rUi_U-5Iu5bgA0h60ykYVrw8kV3k10DMccmLkt_t2Vs=w245)
 

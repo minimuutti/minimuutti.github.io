@@ -6,9 +6,9 @@ image:
   teaser: https://lh3.googleusercontent.com/O3vOyNbURU_tl5eE_jF723I1eGBo0h1Fff3_Pqquwhs=w245
   thumb:
 ---
-In the Classic Kong I usually put a dried chicken filet, which I have folded in half (shaped like a letter V). When the chicken filet opens up inside the Kong, it is relatively hard to get it out especially when I tuck the ends under the edge of the Kong.
+In the Classic Kong I usually put a dried chicken fillet, which I have folded in half (shaped like a letter V). When the chicken fillet opens up inside the Kong, it is relatively hard to get it out especially when I tuck the ends under the edge of the Kong.
 
-It normally takes Miki from two minutes to twenty minutes to get the chicken filet out. Once I managed to tuck the chicken in the Kong so hard, that it took Miki 4 hours and 45 minutes to get it out, and he didn’t get tired or bored at any point. But hey, there was some chicken inside :D
+It normally takes Miki from two minutes to twenty minutes to get the chicken fillet out. Once I managed to tuck the chicken in the Kong so hard, that it took Miki 4 hours and 45 minutes to get it out, and he didn’t get tired or bored at any point. But hey, there was some chicken inside :D
 
 I like the Classic Kong toy very much, because it can also be frozen. I usually do larger portion of somekind  pâté paste and freeze three Kong toys at the same time. Miki usually licks a frozen Kong clean in 10 to 15 minutes. To keep the freezer clean I always freeze Kongs in yoghurt cups or on plates.
 

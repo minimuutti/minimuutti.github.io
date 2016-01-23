@@ -3,7 +3,10 @@ title: Info
 layout: article
 ---
 
-Contact: minimuutti.com(at)gmail.com
+Contact:
+
+email: minimuutti.com(at)gmail.com
+Twitter: @minimuutti
 
 ![](https://lh3.googleusercontent.com/rUi_U-5Iu5bgA0h60ykYVrw8kV3k10DMccmLkt_t2Vs=w245)
 
