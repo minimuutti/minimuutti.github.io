@@ -5,7 +5,7 @@ layout: article
 
 Yhteystiedot:
 
-sähköposti: minimuutti.com(at)gmail.com
+sähköposti: minimuutti.com(at)gmail.com<br/>
 Twitterissä: @minimuutti
 
 ![](https://lh3.googleusercontent.com/rUi_U-5Iu5bgA0h60ykYVrw8kV3k10DMccmLkt_t2Vs=w245)

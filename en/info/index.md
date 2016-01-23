@@ -5,7 +5,7 @@ layout: article
 
 Contact:
 
-email: minimuutti.com(at)gmail.com
+email: minimuutti.com(at)gmail.com<br/>
 Twitter: @minimuutti
 
 ![](https://lh3.googleusercontent.com/rUi_U-5Iu5bgA0h60ykYVrw8kV3k10DMccmLkt_t2Vs=w245)
