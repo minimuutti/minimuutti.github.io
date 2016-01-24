@@ -230,6 +230,7 @@ image:
 ![](https://lh3.googleusercontent.com/HrvaCBQ1QJfWcGogRx8dqhHbCfDvsZorGRloyhfbozc=w245)
 ![](https://lh3.googleusercontent.com/OSFi3p17bYXODb8RC85Fo8Hbm8vsM4IMjOJ0dFXe2Ow=w245)
 
+* vaaka (menee vaa'an päälle seisomaan)
 * mangusti (nousee istuma-asennosta istumaan pystyasentoon)
 
 ![](https://lh3.googleusercontent.com/8OjwWKDL2fhVFu8ssZ-hxJIHul93Tyv39qhBrgW_-1g=w245)

@@ -12,4 +12,4 @@ Here are two links, from where you can learn how to teach various tricks to your
 * [https://www.youtube.com/user/kikopup/videos](https://www.youtube.com/user/kikopup/videos)
 * [https://www.youtube.com/user/tab289/videos](https://www.youtube.com/user/tab289/videos)
 
-Miki knows 69 commands and tricks and he is currently learning 9 new. Here are also some of the tricks that I will teach to Miki in the future.
+Miki knows 70 commands and tricks and he is currently learning 9 new. Here are also some of the tricks that I will teach to Miki in the future.

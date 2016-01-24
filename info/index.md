@@ -28,7 +28,8 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 23.1.2015 Lisätty uusi aktivointivinkki; Estelaatikko II
+* 24.1.2016 Päivitetty; Mikin osaamat käskyt ja temput
+* 23.1.2016 Lisätty uusi aktivointivinkki; Estelaatikko II
 * 22.1.2016 Päivitetty aktivointivinkki; Pallomeri
 * 21.1.2016 Päivitetty aktivointivinkki; Paperituubi
 * 19.1.2016 Lisätty uusi aktivointivinkki; Pussukat
