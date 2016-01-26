@@ -28,6 +28,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 26.1.2016 Updated activation post; Denim plait
 * 24.1.2016 Updated; Tricks and commands Miki knows
 * 23.1.2016 New activation post; Obstacle box II
 * 22.1.2016 Updated activation post; Ball pool
