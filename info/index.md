@@ -28,6 +28,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 29.1.2016 Lisätty uusi aktivointivinkki; Solmupiilo
 * 28.1.2016 Lisätty uusi aktivointivinkki; Pyyheköysi
 * 28.1.2016 Päivitetty aktivointivinkki; Farkkuletti
 * 24.1.2016 Päivitetty; Mikin osaamat käskyt ja temput
