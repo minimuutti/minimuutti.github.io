@@ -9,13 +9,13 @@ image:
 
 This is a two-part game. First the dog needs to pull the knotted fleece out of the toy and then he needs to dig the treats out of the knots.
 
-First I cut a string of fleece, about 6cm wide and 60cm long. Then I tied three loose knots to the fleece. You need to use fleece, so that I won't unravel when the dog pulls it out from the toy.
+First I cut a string of fleece, about 6cm wide and 60cm long. Then I tied three loose knots to the fleece. You should use fleece, so that it won't unravel when the dog pulls it out from the toy.
 
-I pushed one of these [Nutrivet Instinct Dog Treats](http://www.zooplus.com/shop/dogs/dog_treats_chews/dog_reward_treats/other/428730) into every knot and pulled the knots tight. Then I pushed the knotted fleece into the Kong Genius Leo toy, but left about 10cm tail outside. You can use a Kong Genius Mike toy as well, if you don't have the Leo.
+I placed one of these [Nutrivet Instinct Dog Treats](http://www.zooplus.com/shop/dogs/dog_treats_chews/dog_reward_treats/other/428730) into every knot and pulled the knots tight. Then I pushed the knotted fleece into the Kong Genius Leo toy, but left about 10cm tail outside. You can use a Kong Genius Mike toy as well, if you don't have the Leo.
 
-First two times we played this game I hold on the toy, so that the fleece was easier for Miki to pull out. Not until the third time I gave the whole thing to Miki, and Miki knew right away what he was supposed to do in order to get the fleece out.
+First two times we played this game I hold on the toy, so that the fleece was easier for Miki to pull out. On the third time I gave the whole thing to Miki, and he knew right away what he was supposed to do in order to get the fleece out.
 
-At the first time it took Miki about 20 seconds to figure out that he needed to pull the fleece out of the toy. And it took about a minute to dig the treats out the knots.
+At the first time it took Miki about 20 seconds to figure out that he needed to pull the fleece out of the toy. And it took about a minute to dig the treats out of the knots.
 
 ---
 
