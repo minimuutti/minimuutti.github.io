@@ -5,7 +5,10 @@
     {% if language.size == 2 %}
       {% assign locale = language %}
     {% endif %}
-    <a href="/{% if locale.size == 2 %}{{ locale }}/{% endif %}" class="site-title">{{ site.title }}</a>
+    <div class="site-title">
+      <div>{{ site.title }}</div>
+      <div class="site-subtitle">On the journey with minimute</div>
+    </div>
     <nav role="navigation" class="menu top-menu">
         {% include languages.html %}
         {% include navigation.html %}
