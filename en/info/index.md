@@ -30,6 +30,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 5.2.2016 New activation post; Flying saucer
 * 5.2.2016 Updated activation post; Kibble dispenser
 * 30.1.2016 New activation post; Empty paper rolls
 * 29.1.2016 New activation post; Tug a fleece

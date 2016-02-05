@@ -30,6 +30,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 5.2.2016 Lisätty uusi aktivointivinkki; Lentävä lautanen
 * 5.2.2016 Päivitetty aktivointivinkki; Purkin pyöritys
 * 30.1.2016 Lisätty uusi aktivointivinkki; Paperirullien hylsyt
 * 29.1.2016 Lisätty uusi aktivointivinkki; Solmupiilo
