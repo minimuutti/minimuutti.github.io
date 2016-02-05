@@ -30,6 +30,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 5.2.2016 Päivitetty aktivointivinkki; Purkin pyöritys
 * 30.1.2016 Lisätty uusi aktivointivinkki; Paperirullien hylsyt
 * 29.1.2016 Lisätty uusi aktivointivinkki; Solmupiilo
 * 28.1.2016 Lisätty uusi aktivointivinkki; Pyyheköysi
@@ -59,4 +60,3 @@ Uudet ja viimeksi päivitetyt osiot:
 * 17.11.2015 Lisätty uusi aktivointivinkki; Etsiminen pimeässä
 * 15.11.2015 Lisätty uusi aktivointivinkki; Kapea laatikko
 * 14.11.2015 Lisätty uusi aktivointivinkki; Kong Traxx ja pyyhe
-* 14.11.2015 Päivitetty aktivointivinkki; Purkin pyöritys

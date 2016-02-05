@@ -30,6 +30,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 5.2.2016 Updated activation post; Kibble dispenser
 * 30.1.2016 New activation post; Empty paper rolls
 * 29.1.2016 New activation post; Tug a fleece
 * 28.1.2016 New activation post; Towels on rope
@@ -59,4 +60,3 @@ New and recently updated posts:
 * 17.11.2015 New activation post; Searching in the dark
 * 15.11.2015 New activation post; Narrow box
 * 14.11.2015 New activation post; Kong Traxx and towels
-* 14.11.2015 Updated activation post; Kibble dispenser
