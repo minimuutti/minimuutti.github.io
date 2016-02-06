@@ -14,7 +14,7 @@ Only after this you can make the searching games harder. You can throw the treat
 
 Here you can find various nose work and finding game ideas for your dog.
 
-### Brain games
+### Brain games and puzzles
 
 You can arrange various of problem solving tasks and brain games for your dog, and these are good ways to drain your dogs energy. When the dog really needs to work something out in order to get his food, he will get tired. Here you can find multiple problem solving tasks and brain games as well.
 
