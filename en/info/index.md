@@ -30,6 +30,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 12.2.2016 Updated activation post; Carton packages
 * 6.2.2016 New activation post; Reversed muffin tray
 * 5.2.2016 New activation post; Flying saucer
 * 5.2.2016 Updated activation post; Kibble dispenser
@@ -56,7 +57,6 @@ New and recently updated posts:
 * 5.12.2015 New activation post; Under the dome
 * 3.12.2015 New activation post; Obstacle course
 * 3.12.2015 New activation post; Hide and seek
-* 3.12.2015 Updated activation post; Carton packages
 * 3.12.2015 Updated activation post; Multiple cups inside others
 * 22.11.2015 New activation post; Spin the disk
 * 17.11.2015 New activation post; Searching in the dark
