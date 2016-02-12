@@ -60,8 +60,6 @@ New and recently updated posts:
 * 5.12.2015 New activation post; Under the dome
 * 3.12.2015 New activation post; Obstacle course
 * 3.12.2015 New activation post; Hide and seek
-* 3.12.2015 Updated activation post; Multiple cups inside others
 * 22.11.2015 New activation post; Spin the disk
 * 17.11.2015 New activation post; Searching in the dark
-* 15.11.2015 New activation post; Narrow box
 * 14.11.2015 New activation post; Kong Traxx and towels
