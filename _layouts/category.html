@@ -24,11 +24,14 @@ layout: default
 					{% for post in site.categories[category] %}
 						{% assign last = post.categories | last %}
 						{% if last == category %}
+							{% assign ruler = 1 %}
 							{% include post-grid.html %}
 						{% endif %}
 					{% endfor %}
 				</div>
+				{% if ruler %}
 				<hr />
+				{% endif %}
 				<aside>
 					{% if page.comments == true %}{% include comments.html %}{% endif %}
 				</aside>
