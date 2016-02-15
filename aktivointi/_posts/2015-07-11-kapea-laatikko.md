@@ -15,7 +15,7 @@ Odotusten vastaisesti kapeisiin laatikoihin tehdyt tehtävät ovat olleet Mikill
 
 Laatikoihin voi laittaa melkeinpä mitä vaan herkkuja sekä mitä vaan pehmeitä tai pyöreitä esteitä herkkujen päälle esteeksi. Hyviä esteitä ovat mm. erilaiset mukit tai kupit, pallot, kumilelut, köysilelut jne. Alassuin käännettyjen mukien kanssa olen laittanut herkut piiloon mukien alle.
 
-Esineistä riippuen Mikiltä kestää alle minuutin saada herkut syötyä.
+Esineistä riippuen Mikiltä kestää alle minuutin saada herkut syötyä. 
 
 ---
 
