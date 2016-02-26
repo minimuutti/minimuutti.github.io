@@ -16,14 +16,14 @@ Ensimmäisellä kerralla kannattaa aloittaa paksulla paperilla (esim. aikakausle
 
 ---
 
-[![](https://lh3.googleusercontent.com/hTm-z04GI6pMcdabLEeZooYh3t2VwYfK51cATp5EmW0=w800)](https://lh3.googleusercontent.com/hTm-z04GI6pMcdabLEeZooYh3t2VwYfK51cATp5EmW0=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACjwMfCk0bSqI1TSOxRdHi9a/aktivointi/tehtavalaatikko-paperipalloilla/DSC25010_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA7Qaz7w2UFue4ylgZAM3c9a/aktivointi/tehtavalaatikko-paperipalloilla/DSC25010_2.jpg)
 
-[![](https://lh3.googleusercontent.com/hPJ6slE21VwC1vQtfLsrzCfPAPQgihDpycZ2Bnrt_Ks=w800)](https://lh3.googleusercontent.com/hPJ6slE21VwC1vQtfLsrzCfPAPQgihDpycZ2Bnrt_Ks=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACTiwzE37jBhficWc127jyta/aktivointi/tehtavalaatikko-paperipalloilla/DSC25011_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAstBaqIjVE12sQfON9bexca/aktivointi/tehtavalaatikko-paperipalloilla/DSC25011_2.jpg)
 
-[![](https://lh3.googleusercontent.com/jn5SpKcgafvKW2o8X8kpBFkWSG8c9zGTFhcBcJJd5Ic=w800)](https://lh3.googleusercontent.com/jn5SpKcgafvKW2o8X8kpBFkWSG8c9zGTFhcBcJJd5Ic=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACqlT5OwOq_53KeNHfnlwSoa/aktivointi/tehtavalaatikko-paperipalloilla/DSC25014_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABKT29Fby4M-Uvpckt2vCKCa/aktivointi/tehtavalaatikko-paperipalloilla/DSC25014_2.jpg)
 
-[![](https://lh3.googleusercontent.com/MQTG-AsD8qNRpk53FVuwZggXUevK4c7jGt4KLSCp9HU=w800)](https://lh3.googleusercontent.com/MQTG-AsD8qNRpk53FVuwZggXUevK4c7jGt4KLSCp9HU=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAABkCybIXx3C1VZ69C3T6__a/aktivointi/tehtavalaatikko-paperipalloilla/DSC25118_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADxfAP5EOvNaMe5caoUhoola/aktivointi/tehtavalaatikko-paperipalloilla/DSC25118_2.jpg)
 
-[![](https://lh3.googleusercontent.com/lfmvt21TSY7rtu3OPB3MYTL7_vJbKjXKTn7uapLOZrM=w800)](https://lh3.googleusercontent.com/lfmvt21TSY7rtu3OPB3MYTL7_vJbKjXKTn7uapLOZrM=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD3w5NLAGBadn5I7JvI7fima/aktivointi/tehtavalaatikko-paperipalloilla/DSC25168_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABPk54Agk7xLsDQrAIr7lhma/aktivointi/tehtavalaatikko-paperipalloilla/DSC25168_2.jpg)
 
-[![](https://lh3.googleusercontent.com/OVc9lRA4p_MKnIJyqORpnQkUxPjbU7lqNcHOKcPMRHY=w800)](https://lh3.googleusercontent.com/OVc9lRA4p_MKnIJyqORpnQkUxPjbU7lqNcHOKcPMRHY=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAADV8047OMhmq8pO8Sc6QoYa/aktivointi/tehtavalaatikko-paperipalloilla/DSC25186_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABDW__cN0PmSL-vTuOm16ZQa/aktivointi/tehtavalaatikko-paperipalloilla/DSC25186_2.jpg)
