@@ -3,7 +3,7 @@ title: "Sanomalehtisipuli"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/oAf8CqsWWGWimYhXnoL9rSCDRZvh2KlscqBgMkCmTZc=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABaT7uZScdcQ8_I6m29JyIua/aktivointi/sanomalehtisipuli/DSC37764-245px.jpg
   thumb:
 ---
 
@@ -17,14 +17,14 @@ Tälläistä sanomalehtisipulia ei kannata antaa koiralle valkoisella matolla, v
 
 ---
 
-[![](https://lh3.googleusercontent.com/Ouymgty3jeqAg1WjoTTlsziSFo5iAdItmuIiUyaB1V0=w800)](https://lh3.googleusercontent.com/Ouymgty3jeqAg1WjoTTlsziSFo5iAdItmuIiUyaB1V0=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADmRMMthbwtU7FnREbFPbqXa/aktivointi/sanomalehtisipuli/DSC37688-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADLdEKW0cnIGE8xlnacvX8aa/aktivointi/sanomalehtisipuli/DSC37688.jpg)
 
-[![](https://lh3.googleusercontent.com/WYNBRoXhRyfVdhfGLGLOorQ0u-RMjA2wl9qXe0pco34=w800)](https://lh3.googleusercontent.com/WYNBRoXhRyfVdhfGLGLOorQ0u-RMjA2wl9qXe0pco34=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD5sapJZTL8TZvBndkUrEIra/aktivointi/sanomalehtisipuli/DSC37787-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACuNlroVcLq02Qzgu6x28xja/aktivointi/sanomalehtisipuli/DSC37787.jpg)
 
-[![](https://lh3.googleusercontent.com/1as3V7NDdZLLWWqYZUpYocHauXm79bSi48q1LjgfWt9Lwg_ZqNoTNd_CNdO3ql8bkZfISyM2eoDvAHftNr2D5uSNyxEg5Q0BrkCVW9BC7A2RN5ncdcJBEO2hQB6oIThfFTp5k2gVpm9nWP4jc4JBlRV87NIa9um3QZNB92RecjLh7EY9gGGRY0lX7ymWELGJygYNBht7MVuH4VAipd94y31lVrqzc9CuTdw9xurXjqiCTIp3wq2FWEOKeCe9Ora7u4TkTxE0NAfJ3hGKM1tirf7QCLrdSv-XwaguqsFXzo8dkuI5OPjDpSBfUj-BjpSzldGbIF2AKYa-VxaTs6AMVd32YJ8Wiq-ZNRUHeyExKpAcTsgwgSyOtlFxmCOEaYs-W_uDB3TbFWj9kAwZIdsIqbEELyp6kBicxJuVwFMGyLJF4lDSW076dyY3neCkXC5YjzLs9nxtfwltziigusPHePBKyoLYX_tiecxVx-IAGX8WlU2qHmPQvxKV3IpoGSkGdxSo1nvoIvXqfBLibA6yJxL3YTsr-is3tfYW3X-dAy8=w800)](https://lh3.googleusercontent.com/1as3V7NDdZLLWWqYZUpYocHauXm79bSi48q1LjgfWt9Lwg_ZqNoTNd_CNdO3ql8bkZfISyM2eoDvAHftNr2D5uSNyxEg5Q0BrkCVW9BC7A2RN5ncdcJBEO2hQB6oIThfFTp5k2gVpm9nWP4jc4JBlRV87NIa9um3QZNB92RecjLh7EY9gGGRY0lX7ymWELGJygYNBht7MVuH4VAipd94y31lVrqzc9CuTdw9xurXjqiCTIp3wq2FWEOKeCe9Ora7u4TkTxE0NAfJ3hGKM1tirf7QCLrdSv-XwaguqsFXzo8dkuI5OPjDpSBfUj-BjpSzldGbIF2AKYa-VxaTs6AMVd32YJ8Wiq-ZNRUHeyExKpAcTsgwgSyOtlFxmCOEaYs-W_uDB3TbFWj9kAwZIdsIqbEELyp6kBicxJuVwFMGyLJF4lDSW076dyY3neCkXC5YjzLs9nxtfwltziigusPHePBKyoLYX_tiecxVx-IAGX8WlU2qHmPQvxKV3IpoGSkGdxSo1nvoIvXqfBLibA6yJxL3YTsr-is3tfYW3X-dAy8=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADhtKmdQjNEGAGRTDAWUGifa/aktivointi/sanomalehtisipuli/DSC37764-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABT9c7WYULv6TxlCRFduMeEa/aktivointi/sanomalehtisipuli/DSC37764.jpg)
 
-[![](https://lh3.googleusercontent.com/PS1dT0c2b8IUcf8F02NpN6T2t4_RvuemgjinRz3o1l8=w800)](https://lh3.googleusercontent.com/PS1dT0c2b8IUcf8F02NpN6T2t4_RvuemgjinRz3o1l8=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACr-ZzVCPInrdM73yyBe3kQa/aktivointi/sanomalehtisipuli/DSC37877-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC2OSsVR048pjRgMyRZEvg8a/aktivointi/sanomalehtisipuli/DSC37877.jpg)
 
-[![](https://lh3.googleusercontent.com/YHgtUf_Lhkqw0Cw0S1y0YYyZ6Sg0ifbxHF7wk84ZCYo=w800)](https://lh3.googleusercontent.com/YHgtUf_Lhkqw0Cw0S1y0YYyZ6Sg0ifbxHF7wk84ZCYo=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAChWkOMO2EZgJslXL17jhC0a/aktivointi/sanomalehtisipuli/DSC37824-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAKr4GUK4cHGJADoStDGiVLa/aktivointi/sanomalehtisipuli/DSC37824.jpg)
 
-[![](https://lh3.googleusercontent.com/RHRVXM-ptXSm9Nyaqe-FfKrVUCBF68N1rgzyP7rzAIo=w800)](https://lh3.googleusercontent.com/RHRVXM-ptXSm9Nyaqe-FfKrVUCBF68N1rgzyP7rzAIo=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAKuSYZFfgAOhs48rvGu300a/aktivointi/sanomalehtisipuli/DSC37961-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADnuLE5hn5a2QC7KoETgwz2a/aktivointi/sanomalehtisipuli/DSC37961.jpg)
