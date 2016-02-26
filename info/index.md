@@ -8,7 +8,7 @@ Yhteystiedot:
 sähköposti: minimuutti.com(at)gmail.com<br/>
 Twitterissä: @minimuutti
 
-[![](https://lh3.googleusercontent.com/yQUWtl1bwfx6ud-w_tSjosWkR-5aFWF7z4Go4MkFPHknKAYk9X-Hq5udnbWF3CbJuz0oXmqWsDT76aEriNzDmvvyHoa8JCFp49A2MVJjYnQ4dhLY0Ta2TZEtA2JwBMB1Zu_y0-yY_I4azQKF9dRsxi9PjdXyMjAm2Of8it7ze5-hRNYj_MLI0nDTb20BEfS_eYtEGq3TLh7tUjTSPsAjisZDjhq39oViLfBeXLIGtqepJspUvTDTwSnSuPzpkvc1C3m6_NNx_YnoTDtSe_g2Kr-1lchTzA6uwOlZo95Dm2KKpCT7grm1kUleMkNW3XJzLP_tnyIEUCb7_vGSf0JsUWVnbi2NxdySCJByWTjcKrWhSupdC0DQM31dIR6gcb3WTfSrJq0PAIx-kTPoljLSD0fhAV2H4DMrRLmP68iokREBa8LiB3spKEStX4PzlRWIY-Lw8ayH9Q30BXp6t4ct0qdiwvzkQ-ykfR_sEQ2qNCQTfPdIrmDClfDihcecqaogOexsq6tq-4iHRIi4wTouneougiN1-qFzN7bMNUpCoom_3xrnx0Y38vKGBx3XTJC2TQ2A=s40)](https://twitter.com/minimuutti)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADN3gQnG6WMsOFYQTpumxJda/muut/Twitter%20logo_40.jpg)](https://twitter.com/minimuutti)
 
 ![](https://lh3.googleusercontent.com/rUi_U-5Iu5bgA0h60ykYVrw8kV3k10DMccmLkt_t2Vs=w245)
 

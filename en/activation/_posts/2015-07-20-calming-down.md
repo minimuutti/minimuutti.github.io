@@ -3,7 +3,7 @@ title: "Calming down"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/5AMHm_McRQybDMFsH5uBoUt6-yfuymxLNrNbBj22IVs=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABUV_PcyiMFN4XCDxcbQWy3a/aktivointi/rauhoittuminen/DSC14799-245px.jpg
   thumb:
 ---
 
@@ -15,8 +15,8 @@ You can also capture the calm behaviour when the dog is lying on his mat or in h
 
 ---
 
-[![](https://lh3.googleusercontent.com/oDv51m89h5lYRBR0bUqmpxSzoEVVwBM8GUsBbjMAPnc=w800)](https://lh3.googleusercontent.com/oDv51m89h5lYRBR0bUqmpxSzoEVVwBM8GUsBbjMAPnc=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAGqw-aH53fJogBizYTZ3rpa/aktivointi/rauhoittuminen/DSC14806_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC_0Sc03DTpLHNZEJ8Dx-t6a/aktivointi/rauhoittuminen/DSC14806_2.jpg)
 
-[![](https://lh3.googleusercontent.com/L01K-f7_lvLBMh8qKPBcpoZ_DMqwc54JZDEe9AY3MqM=w800)](https://lh3.googleusercontent.com/L01K-f7_lvLBMh8qKPBcpoZ_DMqwc54JZDEe9AY3MqM=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB59L8X66jgAOnUszfvdBH_a/aktivointi/rauhoittuminen/DSC14799_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADGLulkO-Kic_3RNGBIFmHva/aktivointi/rauhoittuminen/DSC14799_2.jpg)
 
-[![](https://lh3.googleusercontent.com/TXSflQVWlu6rYuxLjUcdmsD8N6cElgNwLK9XHB3Rg4U=w800)](https://lh3.googleusercontent.com/TXSflQVWlu6rYuxLjUcdmsD8N6cElgNwLK9XHB3Rg4U=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABUcnLZp0Lzt0ifbS8R9Aiva/temput/1/DSC13786_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJpVEbDJMr-Hfb5Axnuy-sa/temput/1/DSC13786_2.jpg)
