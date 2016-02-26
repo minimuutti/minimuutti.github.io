@@ -3,7 +3,7 @@ title: "Taskbox, hardened version"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/U2kgpNrZebRU3H1MYW7QKM4I1p5bVs1C18rDnDYj8oM=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-fYKrucc6x-LerdKK4UGta/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31011-245px.jpg
   thumb:
 ---
 
@@ -17,24 +17,24 @@ This task is harder because of the lid in the big box. Your dog has to open the 
 
 ---
 
-[![](https://lh3.googleusercontent.com/8ZbGgdSdLZ5j1ZRps1ud-h4ctqr6sNrY-YbuFcFSv0E=w800)](https://lh3.googleusercontent.com/8ZbGgdSdLZ5j1ZRps1ud-h4ctqr6sNrY-YbuFcFSv0E=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAChqV9S1zZEaFD3zHvOgi6Na/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31011-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACeE6HBoBheu_Oq48146ua7a/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31011.jpg)
 
-[![](https://lh3.googleusercontent.com/1mPGkwq1fbuptLCHqAwQU6K8TbeZekQKOL3FwXpx-I0=w800)](https://lh3.googleusercontent.com/1mPGkwq1fbuptLCHqAwQU6K8TbeZekQKOL3FwXpx-I0=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAf1VeEtrl_JG4sUs8HJUH1a/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31286-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADuZft-Wj8fFrejD81OGV9na/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31286.jpg)
 
-[![](https://lh3.googleusercontent.com/C5BvWJyH-EEyBd-jNItcaxQhdXhEpBDgwI5lp6Vm_ws=w800)](https://lh3.googleusercontent.com/C5BvWJyH-EEyBd-jNItcaxQhdXhEpBDgwI5lp6Vm_ws=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAALB3Dyoabmq_0QpSKcK33ya/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31288-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB7vC2LqIu2WMo02HAEYIPWa/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31288.jpg)
 
-[![](https://lh3.googleusercontent.com/fxZFhnr6nse9KLy7hqnPsWV4ucp2u641lvmwksbtlF4=w800)](https://lh3.googleusercontent.com/fxZFhnr6nse9KLy7hqnPsWV4ucp2u641lvmwksbtlF4=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADneGi7Ee84IQHy3Z6JHouLa/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31450-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADzUua9ghs9xih2TqEttJGIa/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31450.jpg)
 
-[![](https://lh3.googleusercontent.com/TTkfXEiH-ynK_VK6J6k5Hvfpc0fLx2uUhUPMTr7Ui7M=w800)](https://lh3.googleusercontent.com/TTkfXEiH-ynK_VK6J6k5Hvfpc0fLx2uUhUPMTr7Ui7M=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAOSwSY7i5VRQPbbVhgVCECa/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30968-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABqkZ1xTxQtFPdftDVBIaIza/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30968.jpg)
 
-[![](https://lh3.googleusercontent.com/nGBoUwMgROi42G_g27oBOz717yZHPeGVn0ey-a7uA7A=w800)](https://lh3.googleusercontent.com/nGBoUwMgROi42G_g27oBOz717yZHPeGVn0ey-a7uA7A=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC__UY1ZJ6NazHEWe76-Dtza/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30977-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADkp3WoCuWXpYB6X67ohmfia/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30977.jpg)
 
-[![](https://lh3.googleusercontent.com/Kgi_C0lbQxC5BSBmAYuW0cCbOS8RdtsoIddahN1LBLs=w800)](https://lh3.googleusercontent.com/Kgi_C0lbQxC5BSBmAYuW0cCbOS8RdtsoIddahN1LBLs=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABQzFEUMVI0TItUwC92X7gYa/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30990-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACZB3UQZDKE2YWl4NpDg4pla/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30990.jpg)
 
 Miki couldn't wait, so he desided to offer the box game :D
 
-[![](https://lh3.googleusercontent.com/BYx9rqQfbRh5ZMSs8t5iut5gFvnSKnoYBAMytqRt9BA=w800)](https://lh3.googleusercontent.com/BYx9rqQfbRh5ZMSs8t5iut5gFvnSKnoYBAMytqRt9BA=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABbaGxT5CvwLuLmxPlOQdBka/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30983-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB6mPTHL9WIByDJ9On08Sgsa/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30983.jpg)
 
 Picture about the box game
 
-[![](https://lh3.googleusercontent.com/LVaOYq4ETi6e3VQGuwvX7LTcs8FxxWQe7tIK6JQo2w=w800)](https://lh3.googleusercontent.com/LVaOYq4ETi6e3VQGuwvX7LTcs8FxxWQe7tIK6JQo2w=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD6_UmU-uFOpm-wMCJ7QsDUa/temput/1/DSC27270_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAna8L0dyOdmh264m6hFBw3a/temput/1/DSC27270_2.jpg)
