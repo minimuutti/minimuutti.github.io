@@ -3,7 +3,7 @@ title: "Siedättäminen sheippaamalla"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/vRj6GkSb7AixTdAOUqrJUqFE-gaM0tKMCrVEC4LdFoY=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACaO1IEjLsEJ5J7EPhxCbG-a/aktivointi/siedattaminen-sheippaamalla/IMG29753-245px.jpg
   thumb:
 ---
 
@@ -17,8 +17,8 @@ En pidä koirien inhimillistämisestä, enkä suosittele koiralle puettavaksi mi
 
 ---
 
-[![](https://lh3.googleusercontent.com/g2CQ_X8KeeHhr3W5n8O5tbOk5SSRdo_zCyOTxPZDqQI=w800)](https://lh3.googleusercontent.com/g2CQ_X8KeeHhr3W5n8O5tbOk5SSRdo_zCyOTxPZDqQI=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABbRAyCT9CPhhPKf-Axxl1fa/aktivointi/siedattaminen-sheippaamalla/IMG29753_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADXnW0vZncM6CtLbKAbYodea/aktivointi/siedattaminen-sheippaamalla/IMG29753_2.jpg)
 
-[![](https://lh3.googleusercontent.com/EDVNzD7Dq2gSLDUXuk9RNWCcE0suW4qu0uxGgf48eN4=w800)](https://lh3.googleusercontent.com/EDVNzD7Dq2gSLDUXuk9RNWCcE0suW4qu0uxGgf48eN4=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD85Goq4QitTjqV0DxrnUsZa/aktivointi/siedattaminen-sheippaamalla/IMG23810_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAPy6svDntkAK27ZGlldlTSa/aktivointi/siedattaminen-sheippaamalla/IMG23810_2.jpg)
 
-[![](https://lh3.googleusercontent.com/5A8-4d3FMqujsXlhCz0Eo05FS6kfOx82ziE_GqMMcD0N8HhgE31SL4gicbHILSPkRcYocRx83VT2e7bya0vCC-VLQpZLQ1UnindcrYyVBPEr10JPxg6fu8iVnGliMM-5f7e5NeIVkhSLAJqR-Z4djb3VDGySrqXBhp4nXgBoTpeSbZcUPr7GkKsX5QgrO65UYtXfijLsokxeqJomN6mEB9p7_KxYEyxmJ64ehKCB8zU17muDOStSw49CpNJ_LdMmA4FBhxpacOK5_hxm2dwzAZjzv5HMBpf6MrRKybJBYAO0CwfgdGsxFex_zhM2_7jmynV5ObRUfrZieJ-kfziynNzVp_0eSshLWzaw1Mg5-BPFwh3xqGwDveWuTmmiqe16mqdyS3K7lG2lSrJNx2JXx0luPfA_kBQEjx7CYO0o0FaNOZKfNx8YsF3IwSRQUquI4hEiAzcGBQc2yulXxPmg6JrbtBZ4jCogoabIOw1-TMIYpUVRW7PD1I2oh5lyGJ76Fr3-ZWkyvT7P-2CqqStKsPTNddJE5YQV-tWrn25wXfUts6ltQW6W860mfaeL9jSSjJjM=w800)](https://lh3.googleusercontent.com/5A8-4d3FMqujsXlhCz0Eo05FS6kfOx82ziE_GqMMcD0N8HhgE31SL4gicbHILSPkRcYocRx83VT2e7bya0vCC-VLQpZLQ1UnindcrYyVBPEr10JPxg6fu8iVnGliMM-5f7e5NeIVkhSLAJqR-Z4djb3VDGySrqXBhp4nXgBoTpeSbZcUPr7GkKsX5QgrO65UYtXfijLsokxeqJomN6mEB9p7_KxYEyxmJ64ehKCB8zU17muDOStSw49CpNJ_LdMmA4FBhxpacOK5_hxm2dwzAZjzv5HMBpf6MrRKybJBYAO0CwfgdGsxFex_zhM2_7jmynV5ObRUfrZieJ-kfziynNzVp_0eSshLWzaw1Mg5-BPFwh3xqGwDveWuTmmiqe16mqdyS3K7lG2lSrJNx2JXx0luPfA_kBQEjx7CYO0o0FaNOZKfNx8YsF3IwSRQUquI4hEiAzcGBQc2yulXxPmg6JrbtBZ4jCogoabIOw1-TMIYpUVRW7PD1I2oh5lyGJ76Fr3-ZWkyvT7P-2CqqStKsPTNddJE5YQV-tWrn25wXfUts6ltQW6W860mfaeL9jSSjJjM=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADpjCws7YMyivjSPhMgnUZWa/aktivointi/siedattaminen-sheippaamalla/DSC58327-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_yaFPJE1Qd_EKP5T3KwZ8a/aktivointi/siedattaminen-sheippaamalla/DSC58327.jpg)

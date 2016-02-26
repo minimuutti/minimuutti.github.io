@@ -3,7 +3,7 @@ title: "Umbrellas"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/4FXNH80BFVKQ2gSeM8M63rFOD1vyxGuekRaR1Zm-B6A=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC5Oa0tQDyVbYMqfz7wZXlVa/aktivointi/sateenvarjot/DSC38196-245px.jpg
   thumb:
 ---
 
@@ -15,8 +15,8 @@ At second time I used two umbrellas, but you can use as many as you like.
 
 ---
 
-[![](https://lh3.googleusercontent.com/uyl5kyBV3doahmmNDhHZpg_Tp5cEgB75heouJ_x78rE=w800)](https://lh3.googleusercontent.com/uyl5kyBV3doahmmNDhHZpg_Tp5cEgB75heouJ_x78rE=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACs2xp2NpVNzZ6fzHy13rxea/aktivointi/sateenvarjot/DSC38230-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAMvl_P2ZoYe8-zTAL940E-a/aktivointi/sateenvarjot/DSC38230.jpg)
 
-[![](https://lh3.googleusercontent.com/5HiojwuFs5vI0Z6VAck_wh1eGmi0WtNAYmyzlDx2zRo=w800)](https://lh3.googleusercontent.com/5HiojwuFs5vI0Z6VAck_wh1eGmi0WtNAYmyzlDx2zRo=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABdTYxKfnYyLbz7mmTHjnxia/aktivointi/sateenvarjot/DSC38196-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABUUD4z5DRvta1Whtxea6UKa/aktivointi/sateenvarjot/DSC38196.jpg)
 
-[![](https://lh3.googleusercontent.com/bVwx1b1gcOIlmiwwYYeEBChJ4MIW1hdGEnZxu83lpoo=w800)](https://lh3.googleusercontent.com/bVwx1b1gcOIlmiwwYYeEBChJ4MIW1hdGEnZxu83lpoo=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACrP8WebzmFv8sx4IfHfxsAa/aktivointi/sateenvarjot/DSC38250-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADxnOYcMwRSAO5RRm_ZEAgia/aktivointi/sateenvarjot/DSC38250.jpg)
