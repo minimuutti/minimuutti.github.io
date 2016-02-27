@@ -3,7 +3,7 @@ title: "Phonebookfan"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/1-ANJ4MpGTq8IWhBw7nfde-4EmONANq68gVFqMz07aA=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAZS41Om0VssIC0L2CTx5uxa/aktivointi/puhelinluetteloviuhka/DSC25474-245px.jpg
   thumb:
 ---
 
@@ -15,12 +15,12 @@ In the first time it took Miki about ten minutes to "read" the book and to find 
 
 ---
 
-[![](https://lh3.googleusercontent.com/auVahgM8HcL0mA3uRoBQKlPbDURg-cjAJpzMZSfKmh8=w800)](https://lh3.googleusercontent.com/auVahgM8HcL0mA3uRoBQKlPbDURg-cjAJpzMZSfKmh8=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAxpesUrO5RXvcPJXRxr0FYa/aktivointi/puhelinluetteloviuhka/DSC25474_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADBb0srhfMpHPTpxUpg-zuda/aktivointi/puhelinluetteloviuhka/DSC25474_2.jpg)
 
-[![](https://lh3.googleusercontent.com/tpe96-6Turu_I2W-80BjHPUmdIVYirnQocqeJGFeskQ=w800)](https://lh3.googleusercontent.com/tpe96-6Turu_I2W-80BjHPUmdIVYirnQocqeJGFeskQ=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADGDbTnCe2tFqFCi84DTAY7a/aktivointi/puhelinluetteloviuhka/DSC25478_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAALU6Oyy1SyXOtxo8BaGvlda/aktivointi/puhelinluetteloviuhka/DSC25478_2.jpg)
 
-[![](https://lh3.googleusercontent.com/9vSY_h5uqfSscNaF_Brs4l4Rr9moGPjNEiOapGa8_ZU=w800)](https://lh3.googleusercontent.com/9vSY_h5uqfSscNaF_Brs4l4Rr9moGPjNEiOapGa8_ZU=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACqsFNYd8OVzWoaQA3Dc62Ra/aktivointi/puhelinluetteloviuhka/DSC25659_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADsVJ-gcGcXfLSWEifTNQcxa/aktivointi/puhelinluetteloviuhka/DSC25659_2.jpg)
 
-[![](https://lh3.googleusercontent.com/jalyj-XNVL_xtmFaHtzs6NliwL6h55v8J-lCYUQpC4o=w800)](https://lh3.googleusercontent.com/jalyj-XNVL_xtmFaHtzs6NliwL6h55v8J-lCYUQpC4o=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADrJzsyGHqmfMY1xCidQ9kaa/aktivointi/puhelinluetteloviuhka/DSC38061-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAw6VjBvxHaj1OJ3Vm0yZZla/aktivointi/puhelinluetteloviuhka/DSC38061.jpg)
 
-[![](https://lh3.googleusercontent.com/YvZMTUcK2RgaZKA4LhHM_QD_Fx3GCwodyigR9ccmVfg=w800)](https://lh3.googleusercontent.com/YvZMTUcK2RgaZKA4LhHM_QD_Fx3GCwodyigR9ccmVfg=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAATf3pjAceFa223d7t-_r-5a/aktivointi/puhelinluetteloviuhka/DSC38063-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAbSMFmDTeSLn8pujEY0TC_a/aktivointi/puhelinluetteloviuhka/DSC38063.jpg)
