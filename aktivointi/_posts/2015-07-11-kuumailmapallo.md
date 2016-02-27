@@ -3,7 +3,7 @@ title: "Kuumailmapallo"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/efeebUMOPOXBLoStzFf_HRBtHjPeAUmg6crvU19llnE=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA2T0oDmJB3Mgys7P0AjSMya/aktivointi/kuumailmapallo/DSC40554-245px.jpg
   thumb:
 
 ---
@@ -16,12 +16,12 @@ Mikiltä kesti pallon pudottaminen noin minuutin.
 
 ---
 
-[![](https://lh3.googleusercontent.com/i09SIhKwuIltBQbOaG4PX1z5cGn96gcMoaCHX_XdJtI=w800)](https://lh3.googleusercontent.com/i09SIhKwuIltBQbOaG4PX1z5cGn96gcMoaCHX_XdJtI=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACTobep8Tf4KL7UZJkRwKvza/aktivointi/kuumailmapallo/DSC40547-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAiMorsN6nUEHn634QoOT27a/aktivointi/kuumailmapallo/DSC40547.jpg)
 
-[![](https://lh3.googleusercontent.com/m2Dx1wS9oZC1qGgfOjemMV6N70jkMabm6pSZon2gvOc=w800)](https://lh3.googleusercontent.com/m2Dx1wS9oZC1qGgfOjemMV6N70jkMabm6pSZon2gvOc=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACbqqM-4U6K8moCs3-G56Kza/aktivointi/kuumailmapallo/DSC40575-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJY-AjQ--fm_OmNj_AD2p9a/aktivointi/kuumailmapallo/DSC40575.jpg)
 
-[![](https://lh3.googleusercontent.com/cJIejvI_kx4ryjDaUgSdiBXBABxFLG_LRAD8tKZjPLw=w800)](https://lh3.googleusercontent.com/cJIejvI_kx4ryjDaUgSdiBXBABxFLG_LRAD8tKZjPLw=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADEjscsROA-CeoDF3F5qVZsa/aktivointi/kuumailmapallo/DSC40554-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABYTvjqOH2KFBaM3yY9YaHEa/aktivointi/kuumailmapallo/DSC40554.jpg)
 
-[![](https://lh3.googleusercontent.com/7SFpaJtD1pTWehC-veZQly2NhoGsTes-ke3UHCQXlOo=w800)](https://lh3.googleusercontent.com/7SFpaJtD1pTWehC-veZQly2NhoGsTes-ke3UHCQXlOo=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACaK0vatboV5-e5X31NJQAoa/aktivointi/kuumailmapallo/DSC40589-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA8OE6nT-jopIoFFQsMB9lVa/aktivointi/kuumailmapallo/DSC40589.jpg)
 
-[![](https://lh3.googleusercontent.com/roNxgdwTEYmQMdATrBq9LSQpO374Dj7x_DRsvBDKA5U=w800)](https://lh3.googleusercontent.com/roNxgdwTEYmQMdATrBq9LSQpO374Dj7x_DRsvBDKA5U=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAo0b4ENRtGTbuUCbNgeNkwa/aktivointi/kuumailmapallo/DSC40545-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAASxcV9MIoF7cZGd_XPAhtua/aktivointi/kuumailmapallo/DSC40545.jpg)

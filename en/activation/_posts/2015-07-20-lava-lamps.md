@@ -3,7 +3,7 @@ title: "Lava lamps"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/bpTJtxlTfh_kFuOmJn0z3dnj9cSzrzdsYQHiQfOyEqg=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACXPDbJ4rDCl2AX1OqxOqRQa/aktivointi/laavalamput/DSC44309-245px.jpg
   thumb:
 ---
 
@@ -13,14 +13,14 @@ It took Miki about three minutes to get all the kibbles from these six lava lamp
 
 ---
 
-[![](https://lh3.googleusercontent.com/KcoJWdtAq6pYkHnXN5DRe7cH4bY-h5r5K1HavgOuojE=w800)](https://lh3.googleusercontent.com/KcoJWdtAq6pYkHnXN5DRe7cH4bY-h5r5K1HavgOuojE=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5L5WthnY-Fnr3hblXkKLCa/aktivointi/laavalamput/DSC44315-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAUE7I_FfIS2qrMQyA9huLNa/aktivointi/laavalamput/DSC44315.jpg)
 
-[![](https://lh3.googleusercontent.com/MbkQxbNFOZ-4u8L4zkwMERooBTeo3ZVRLHd29H-3GKI=w800)](https://lh3.googleusercontent.com/MbkQxbNFOZ-4u8L4zkwMERooBTeo3ZVRLHd29H-3GKI=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABCz-DBonPJoNvjEChu7z8Za/aktivointi/laavalamput/DSC44320-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACp9R3HO_F_P5p06A9poLW1a/aktivointi/laavalamput/DSC44320.jpg)
 
-[![](https://lh3.googleusercontent.com/4ID9G8XESxEfvl8f2ZeipdWZB3azkwAlXmmDX7qkMGA=w800)](https://lh3.googleusercontent.com/4ID9G8XESxEfvl8f2ZeipdWZB3azkwAlXmmDX7qkMGA=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADHAIxy_X0o9BZBqdDXLdOMa/aktivointi/laavalamput/DSC43225-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAIXHgW9sD0YWoYFE0LWO9ha/aktivointi/laavalamput/DSC43225.jpg)
 
-[![](https://lh3.googleusercontent.com/3kRVRNnxzyTLSbC8NTz18jKwO_jtK_RZrq48N8hacsU=w800)](https://lh3.googleusercontent.com/3kRVRNnxzyTLSbC8NTz18jKwO_jtK_RZrq48N8hacsU=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAtVrBpz4O_qEOAIcqcg-B_a/aktivointi/laavalamput/DSC43293-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD-JJrBrDMbYkAT27XWj9o4a/aktivointi/laavalamput/DSC43293.jpg)
 
-[![](https://lh3.googleusercontent.com/ECpTDelCLc5WcPXYXyR5HF_81sMfgQMnnpSIKMcG8yc=w800)](https://lh3.googleusercontent.com/ECpTDelCLc5WcPXYXyR5HF_81sMfgQMnnpSIKMcG8yc=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC3rHRrx7p_8R9QSCdlQEMpa/aktivointi/laavalamput/DSC43309-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAmYL19rFbZ-imZAenjtWVja/aktivointi/laavalamput/DSC43309.jpg)
 
-[![](https://lh3.googleusercontent.com/OILTNXgwIBQO5VXSSBH9lZkEthoFiw6leu3kFfdGN_k=w800)](https://lh3.googleusercontent.com/OILTNXgwIBQO5VXSSBH9lZkEthoFiw6leu3kFfdGN_k=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABV33X7SE8obOGtMXY-JcXPa/aktivointi/laavalamput/DSC44309-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACcEPx3FK5N36ggOkqSuF4za/aktivointi/laavalamput/DSC44309.jpg)
