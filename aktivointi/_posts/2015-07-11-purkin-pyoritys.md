@@ -3,7 +3,7 @@ title: "Purkin pyöritys"
 layout: article
 image:
   feature:
-  teaser: hhttps://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAD5NoXpaHrmr2FCkpgS3Spa/aktivointi/purkin-pyoritys/DSC55886%20-%20Copy-245px.jpg
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAD5NoXpaHrmr2FCkpgS3Spa/aktivointi/purkin-pyoritys/DSC55886%20-%20Copy-245px.jpg
   thumb:
 ---
 
