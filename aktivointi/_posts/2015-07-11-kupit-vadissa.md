@@ -3,7 +3,7 @@ title: "Kupit vadissa"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/tvYMl-19Iz8Hwzz7dIgT5XgZmyrUqz6hFNu5zcG8nV0=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABgUCtKlD9VAQM6WBT1yWVua/aktivointi/kupit-vadissa/DSC40120-245px.jpg
   thumb:
 ---
 
@@ -15,16 +15,16 @@ Tätä leikkiä voi vaikeuttaa vaihtamalla jogurttipurkit johonkin vaikeammin no
 
 ---
 
-[![](https://lh3.googleusercontent.com/76CNFuISoWL0gfhANVRz_jjyhuXXms-419luH3DQvHM=w800)](https://lh3.googleusercontent.com/76CNFuISoWL0gfhANVRz_jjyhuXXms-419luH3DQvHM=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABy27U8r6Qc0mdFkTIh3xI9a/aktivointi/kupit-vadissa/DSC39827-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABUC_3oCASCyREqIluYXe6wa/aktivointi/kupit-vadissa/DSC39827.jpg)
 
-[![](https://lh3.googleusercontent.com/YG9HmvU2FiTknt_0x2bFLwFrCeBwpvFfBg6DJHMyCCU=w800)](https://lh3.googleusercontent.com/YG9HmvU2FiTknt_0x2bFLwFrCeBwpvFfBg6DJHMyCCU=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA8TiyBFUAanTyLsYfQleh3a/aktivointi/kupit-vadissa/DSC39865-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADpRbzU4eNj2blbwrngcqUWa/aktivointi/kupit-vadissa/DSC39865.jpg)
 
-[![](https://lh3.googleusercontent.com/sallz--NDOV8Xk6xzbFwKvWvtjCSrJJ-FCzkjNgxfnc=w800)](https://lh3.googleusercontent.com/sallz--NDOV8Xk6xzbFwKvWvtjCSrJJ-FCzkjNgxfnc=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAmV05-OCiAeAs3O9IWWEVja/aktivointi/kupit-vadissa/DSC39946-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD6Jq6crWwOgOxdPWptb_qda/aktivointi/kupit-vadissa/DSC39946.jpg)
 
-[![](https://lh3.googleusercontent.com/_TmhjqC9k3ljA9WweKPhiWolPDpJ7qWev6o6Y7QDL2g=w800)](https://lh3.googleusercontent.com/_TmhjqC9k3ljA9WweKPhiWolPDpJ7qWev6o6Y7QDL2g=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADsq9tlPvXIzqQwTMpf-WKaa/aktivointi/kupit-vadissa/DSC40043-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABheLfKj_TVeGQYHca5dUMva/aktivointi/kupit-vadissa/DSC40043.jpg)
 
-[![](https://lh3.googleusercontent.com/nJ34LOvT56ZI0YciIlljxVV87jUkADkG3t8Wrr4qeMw=w800)](https://lh3.googleusercontent.com/nJ34LOvT56ZI0YciIlljxVV87jUkADkG3t8Wrr4qeMw=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADW7-v9klIoctktOmwnebTza/aktivointi/kupit-vadissa/DSC40103-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA3kaZmvdkPGOc48GRELWV4a/aktivointi/kupit-vadissa/DSC40103.jpg)
 
-[![](https://lh3.googleusercontent.com/7w1rDw21RALzonUQT9-tqv7xdIc3_YOJPjnxPmf9_2A=w800)](https://lh3.googleusercontent.com/7w1rDw21RALzonUQT9-tqv7xdIc3_YOJPjnxPmf9_2A=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADTkNbR_bTi5Lvdnc_lDJJ6a/aktivointi/kupit-vadissa/DSC40177-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABUaxlNTDxIwHNvi4jA2VESa/aktivointi/kupit-vadissa/DSC40177.jpg)
 
-[![](https://lh3.googleusercontent.com/eUuzV6gGhoMfCbPZiuWn4DZcMbdIYiRBeIyz1WuqNdU=w800)](https://lh3.googleusercontent.com/eUuzV6gGhoMfCbPZiuWn4DZcMbdIYiRBeIyz1WuqNdU=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABJdDXq7v-vnZTrOMaL1sJRa/aktivointi/kupit-vadissa/DSC42477-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVceS7c0EYyE8zccm0gUena/aktivointi/kupit-vadissa/DSC42477.jpg)

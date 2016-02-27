@@ -3,7 +3,7 @@ title: "Kupit kulhoissa"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/Em-B7IdQyxCLkT7-TbkVf6kCmgZRHR22Nqw1tG3LIwI=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACknxixOrVftjWX7iFXmog5a/aktivointi/kupit-kulhoissa/DSC43090-245px.jpg
   thumb:
 ---
 
