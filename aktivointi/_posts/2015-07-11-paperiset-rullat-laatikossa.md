@@ -32,3 +32,4 @@ Mikiltä kesti ensimmäisellä kerralla yli 10 minuuttia löytää kaikki nappul
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABUPGdHSQZW5Kwv-DQYjiJ9a/aktivointi/paperiset-rullat-laatikossa/DS04453-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABsG8Uer-cCk1UvEhw6gnvoa/aktivointi/paperiset-rullat-laatikossa/DS04453.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAmvSIQLUXPWbl-xIDQp06za/aktivointi/paperiset-rullat-laatikossa/DS04457-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAL_NtJY3SgWnZlAt64d1bVa/aktivointi/paperiset-rullat-laatikossa/DS04457.jpg)
+ 
