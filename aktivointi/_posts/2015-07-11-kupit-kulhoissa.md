@@ -14,39 +14,43 @@ Alla on kuvattu monia erilaisia tapoja laittaa kuppeja, kulhoja ja purkkeja sis�
 Vaikeutin näitä kaikkia tehtäviä toisella kerralla laittamalla purkit pahvilaatikon sisään. Pahvilaatikon reunat vaikeuttivat ja hidastivat jokaista tehtävää parilla minuutilla. Tosin jossain vaiheessa Miki keksi, että namit saa nopeammin ulos, kun nostaa ensin tuon kupin pois pahvilaatikosta ja sitten irrottaa kupit toisistaan lattialla.
 
 ### Variaatio 1
+
 Laitoin mataliin jogurttipurkkeihin pari nappulaa ja sitten laitoin Kalas kulhot tähän päälle esteeksi alassuin. Lattialle kasattuna Mikiltä kesti noin 2 minuuttia saada namit ulos näistä ja pahvilaatikkoon kasattuna aikaa kului noin 4 minuuttia.
 
-[![](https://lh3.googleusercontent.com/AojT33Q9SVhrXdR-cjpZotP5RhEOqJSM_uV4Ncy54vM=w800)](https://lh3.googleusercontent.com/AojT33Q9SVhrXdR-cjpZotP5RhEOqJSM_uV4Ncy54vM=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD9y9Rx-UWzrxRa1P2KyBwDa/aktivointi/kupit-kulhoissa/DSC43157-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABF5cpoyBPAFOPNEWSK-Dg2a/aktivointi/kupit-kulhoissa/DSC43157.jpg)
 
-[![](https://lh3.googleusercontent.com/eOWoPOe3UEQ-ceFFqO_nvswjEskHs4ReLSz2X-OvOWc=w800)](https://lh3.googleusercontent.com/eOWoPOe3UEQ-ceFFqO_nvswjEskHs4ReLSz2X-OvOWc=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACpsYj7Hm0Mrok3RHCdpnsEa/aktivointi/kupit-kulhoissa/DSC43161-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACATHPHYJbuaWOyYCkSUOJMa/aktivointi/kupit-kulhoissa/DSC43161.jpg)
 
-[![](https://lh3.googleusercontent.com/xav6FdXMGR7T5hIDUVgrpZGlDimGkldAjoUk2T8bHSA=w800)](https://lh3.googleusercontent.com/xav6FdXMGR7T5hIDUVgrpZGlDimGkldAjoUk2T8bHSA=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJRhwgJAnpRj8_yC0pKYRla/aktivointi/kupit-kulhoissa/DSC43206-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACXI-DRX6EoNbzLiRuOZIQta/aktivointi/kupit-kulhoissa/DSC43206.jpg)
 
-[![](https://lh3.googleusercontent.com/WAwdKf3ViD4cnIJcbnaNwjaXp4zI3IhWivpQZlQPsR4=w800)](https://lh3.googleusercontent.com/WAwdKf3ViD4cnIJcbnaNwjaXp4zI3IhWivpQZlQPsR4=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADgZqCcEpve1090XPg8_Pjca/aktivointi/kupit-kulhoissa/DSC43208-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC-QUB4gqm-A67eOt13aELwa/aktivointi/kupit-kulhoissa/DSC43208.jpg)
 
-[![](https://lh3.googleusercontent.com/skhguHzlrs87BW6RLpPbO0QZDKXmtdO-MWId4ubMB8c=w800)](https://lh3.googleusercontent.com/skhguHzlrs87BW6RLpPbO0QZDKXmtdO-MWId4ubMB8c=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_FqlghLOoAGv2_X9nvsxza/aktivointi/kupit-kulhoissa/DSC43469-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACdPESvlRVktJj4dx6pNoMLa/aktivointi/kupit-kulhoissa/DSC43469.jpg)
 
 ### Variaatio 2
+
 Laitoin nappulat muovikulhoihin ja näiden sisälle laitoin jogurttipurkit esteeksi alassuin. Lattialle kasattuna Mikiltä kesti noin 2 minuuttia saada namit ulos näistä ja pahvilaatikkoon kasattuna aikaa kului noin 4 minuuttia.
 
-[![](https://lh3.googleusercontent.com/5Ml5pky4-4F09BB4-9W-hT5iccCreXwKpIXCoe1AAow=w800)](https://lh3.googleusercontent.com/5Ml5pky4-4F09BB4-9W-hT5iccCreXwKpIXCoe1AAow=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAIcHdmRNP992p8QlkB9EqSa/aktivointi/kupit-kulhoissa/DSC43086-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAoWBotWnzlLz9Dy4GGe60Ca/aktivointi/kupit-kulhoissa/DSC43086.jpg)
 
-[![](https://lh3.googleusercontent.com/K12pPw75mIYS3n9_6jVuHFeFEYvuM9Vyvq3lFNyS4gA=w800)](https://lh3.googleusercontent.com/K12pPw75mIYS3n9_6jVuHFeFEYvuM9Vyvq3lFNyS4gA=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAY-MYzl_mndCTkVkU0VGl3a/aktivointi/kupit-kulhoissa/DSC43090-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACVufKAID1kdFAORmYV2j_5a/aktivointi/kupit-kulhoissa/DSC43090.jpg)
 
-[![](https://lh3.googleusercontent.com/nnpJcx_iNTFTQQNVdWDltwmP5UvNzh6rAhq6Ec-yQgU=w800)](https://lh3.googleusercontent.com/nnpJcx_iNTFTQQNVdWDltwmP5UvNzh6rAhq6Ec-yQgU=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABS0901pVlm0_bfFxKFt1Qba/aktivointi/kupit-kulhoissa/DSC43133-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAILY9KsZoMcqkkHiTovyFEa/aktivointi/kupit-kulhoissa/DSC43133.jpg)
 
-[![](https://lh3.googleusercontent.com/uBRV9lMwtMXterTaT6nS3l_mPxEq5wUeA3nQu3_M5qU=w800)](https://lh3.googleusercontent.com/uBRV9lMwtMXterTaT6nS3l_mPxEq5wUeA3nQu3_M5qU=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAByCyLmiZjCtS12Fm0-uKk4a/aktivointi/kupit-kulhoissa/DSC43729-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAOUNQWpKIRuW6HyyNvL1jla/aktivointi/kupit-kulhoissa/DSC43729.jpg)
 
 ### Variaatio 3
+
 Laitoin nappulat muovikulhoihin ja näiden sisälle laitoin jogurttipurkit esteeksi niin, että molemmat kupit olivat samoin päin. Lattialle kasattuna Mikiltä meni noin minuutti saada namit ulos näistä ja pahvilaatikkoon kasattuna aikaa kului noin 3 minuuttia.
 
-[![](https://lh3.googleusercontent.com/t9mGT3xNPf1k_3ulTkvH0ZktI2Q6aikSJJ6M3bWBJ0I=w800)](https://lh3.googleusercontent.com/t9mGT3xNPf1k_3ulTkvH0ZktI2Q6aikSJJ6M3bWBJ0I=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADl47h2y6JrUYSE4AOyX1Lta/aktivointi/kupit-kulhoissa/DSC43584-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABZjbJ9WfMnttxdGZoLVfi2a/aktivointi/kupit-kulhoissa/DSC43584.jpg)
 
-[![](https://lh3.googleusercontent.com/rQpd7hpwx5FEo_10qiWj6aLZOti3tzDYsen-pYOGvN4=w800)](https://lh3.googleusercontent.com/rQpd7hpwx5FEo_10qiWj6aLZOti3tzDYsen-pYOGvN4=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABA5L4PlovgT3LyoLSX9X2Ia/aktivointi/kupit-kulhoissa/DSC43592-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACYeVe3pn26aWk1HhjmjpBSa/aktivointi/kupit-kulhoissa/DSC43592.jpg)
 
-[![](https://lh3.googleusercontent.com/0FoP2Yzv961VTWkvif460KD2kRGwJ0ZpRVtpvBRnfb8=w800)](https://lh3.googleusercontent.com/0FoP2Yzv961VTWkvif460KD2kRGwJ0ZpRVtpvBRnfb8=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5hAEbguQHOnjpn_LUpXvja/aktivointi/kupit-kulhoissa/DSC44306-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACXZEte_3BYnMfg3AP0rte4a/aktivointi/kupit-kulhoissa/DSC44306.jpg)
 
 ### Variaatio 4
+
 Laitoin nappulat muovimukeihin ja niiden sisälle laitoin kertakäyttömukit esteeksi. Lattialle kasattuna Mikiltä kesti noin 2 minuuttia saada namit ulos näistä ja pahvilaatikkoon kasattuna aikaa kului noin 4 minuuttia.
 
 [![](https://lh3.googleusercontent.com/1SjIuCewFfo1QvFBqei6kTExKbOJncSqxEqQOm4x4yY=w800)](https://lh3.googleusercontent.com/1SjIuCewFfo1QvFBqei6kTExKbOJncSqxEqQOm4x4yY=s0)
@@ -66,11 +70,13 @@ Laitoin nappulat pahvimukeihin ja niiden sisälle tungin muovikupit esteeksi. Mi
 [![](https://lh3.googleusercontent.com/Vi1NgMqwc9HSb_c-54l_kTBT6YO6qaQRfOjBKpee2aOCP4aV_GJpEjXykZFRUPOIpbUJ1tqGynTrDHxwo2XkkyrCGdo0v9Vx019sY106WHRt6A1IW3Vy0J-lrVSJcsosvHgKqbSxdtoBr8JELDOIDLkaofgXBRKAkbWlbgoR-JQmyALd4sZAg7pvwljoUOyVVFAWrFDN2Z7qMXJi8YUv7bRTRF6Hpa5n1_hl9q88mh8ar5IQcoRVfGeVpzRotjCbwiE6hKs5L71VODHv5QmyQi_JLi4vXt96b8WMEt4BKmbZ-SoFGdDYk2JEMqEXYqaCjQqsJUmF_-bqnLT6yrMo5KIcpjn0jq5PZvhdwtp6QB-5ld6-KeZCJfqcUpBXqfPtVvV-iqfmGJ1B83K-mHOfV_G7hTG3kEzmwPexbR657GIdinHEFWWwji490xnk33otKYjmRQVqd3b_anX21lpS3SpU0s2PJReL-Tm_vp_E2c0E8f5rDA1BV2QLt930xubpvxHjp8Zfg7yU8rcM3DVaTuCUn9cUnQGiCnXK0ZfT2iA=w800)](https://lh3.googleusercontent.com/Vi1NgMqwc9HSb_c-54l_kTBT6YO6qaQRfOjBKpee2aOCP4aV_GJpEjXykZFRUPOIpbUJ1tqGynTrDHxwo2XkkyrCGdo0v9Vx019sY106WHRt6A1IW3Vy0J-lrVSJcsosvHgKqbSxdtoBr8JELDOIDLkaofgXBRKAkbWlbgoR-JQmyALd4sZAg7pvwljoUOyVVFAWrFDN2Z7qMXJi8YUv7bRTRF6Hpa5n1_hl9q88mh8ar5IQcoRVfGeVpzRotjCbwiE6hKs5L71VODHv5QmyQi_JLi4vXt96b8WMEt4BKmbZ-SoFGdDYk2JEMqEXYqaCjQqsJUmF_-bqnLT6yrMo5KIcpjn0jq5PZvhdwtp6QB-5ld6-KeZCJfqcUpBXqfPtVvV-iqfmGJ1B83K-mHOfV_G7hTG3kEzmwPexbR657GIdinHEFWWwji490xnk33otKYjmRQVqd3b_anX21lpS3SpU0s2PJReL-Tm_vp_E2c0E8f5rDA1BV2QLt930xubpvxHjp8Zfg7yU8rcM3DVaTuCUn9cUnQGiCnXK0ZfT2iA=s0)
 
 ### Variaatio 6
+
 Laitoin laatikon pohjalle niin monta muovikuppia ja -kulhoa alassuin, kun sinne mahtui ja nappulan laitoin vain joka toisen kupin alle. Mikiltä kesti noin 2 minuuttia löytää kaikki nappulat.
 
 [![](https://lh3.googleusercontent.com/6h6rBYGyY6sSYp0XnqsNBYDxFcvW2uTkHlg5RqO4BW0=w800)](https://lh3.googleusercontent.com/6h6rBYGyY6sSYp0XnqsNBYDxFcvW2uTkHlg5RqO4BW0=s0)
 
 ### Variaatio 7
+
 Laitoin laatikkoon niin monta muovimukia ja -kulhoa kun sinne mahtui ja näihin laitoin joko kertakäyttömukin tai jogurttipurkin päälle esteeksi. Mikiltä kesti noin 4 minuuttia saada kaikki namit ulos.
 
 [![](https://lh3.googleusercontent.com/3SpDmsaaAOv6OA-r35uEd1TQwiOVgK9PsxaBKb4B49I=w800)](https://lh3.googleusercontent.com/3SpDmsaaAOv6OA-r35uEd1TQwiOVgK9PsxaBKb4B49I=s0)

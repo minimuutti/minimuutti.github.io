@@ -19,37 +19,37 @@ At some point Miki figured out that it’s faster to get the treats out by lifti
 
 I put some kibbles into each yoghurt cup and then I put the Kalas bowls as obstacles on top of them face down. On the floor it took Miki two minutes to get all the kibbles out and when I put them into the cardboard box it took Miki about four minutes.
 
-[![](https://lh3.googleusercontent.com/AojT33Q9SVhrXdR-cjpZotP5RhEOqJSM_uV4Ncy54vM=w800)](https://lh3.googleusercontent.com/AojT33Q9SVhrXdR-cjpZotP5RhEOqJSM_uV4Ncy54vM=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD9y9Rx-UWzrxRa1P2KyBwDa/aktivointi/kupit-kulhoissa/DSC43157-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABF5cpoyBPAFOPNEWSK-Dg2a/aktivointi/kupit-kulhoissa/DSC43157.jpg)
 
-[![](https://lh3.googleusercontent.com/eOWoPOe3UEQ-ceFFqO_nvswjEskHs4ReLSz2X-OvOWc=w800)](https://lh3.googleusercontent.com/eOWoPOe3UEQ-ceFFqO_nvswjEskHs4ReLSz2X-OvOWc=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACpsYj7Hm0Mrok3RHCdpnsEa/aktivointi/kupit-kulhoissa/DSC43161-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACATHPHYJbuaWOyYCkSUOJMa/aktivointi/kupit-kulhoissa/DSC43161.jpg)
 
-[![](https://lh3.googleusercontent.com/xav6FdXMGR7T5hIDUVgrpZGlDimGkldAjoUk2T8bHSA=w800)](https://lh3.googleusercontent.com/xav6FdXMGR7T5hIDUVgrpZGlDimGkldAjoUk2T8bHSA=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJRhwgJAnpRj8_yC0pKYRla/aktivointi/kupit-kulhoissa/DSC43206-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACXI-DRX6EoNbzLiRuOZIQta/aktivointi/kupit-kulhoissa/DSC43206.jpg)
 
-[![](https://lh3.googleusercontent.com/WAwdKf3ViD4cnIJcbnaNwjaXp4zI3IhWivpQZlQPsR4=w800)](https://lh3.googleusercontent.com/WAwdKf3ViD4cnIJcbnaNwjaXp4zI3IhWivpQZlQPsR4=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADgZqCcEpve1090XPg8_Pjca/aktivointi/kupit-kulhoissa/DSC43208-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC-QUB4gqm-A67eOt13aELwa/aktivointi/kupit-kulhoissa/DSC43208.jpg)
 
-[![](https://lh3.googleusercontent.com/skhguHzlrs87BW6RLpPbO0QZDKXmtdO-MWId4ubMB8c=w800)](https://lh3.googleusercontent.com/skhguHzlrs87BW6RLpPbO0QZDKXmtdO-MWId4ubMB8c=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_FqlghLOoAGv2_X9nvsxza/aktivointi/kupit-kulhoissa/DSC43469-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACdPESvlRVktJj4dx6pNoMLa/aktivointi/kupit-kulhoissa/DSC43469.jpg)
 
 ### Variation 2
 
 I put some kibbles into the bowls and then I put yoghurt cups as obstacles on top of them face down. On the floor it took Miki two minutes to get all the kibbles out and when I put them into the cardboard box it took Miki about four minutes.
 
-[![](https://lh3.googleusercontent.com/5Ml5pky4-4F09BB4-9W-hT5iccCreXwKpIXCoe1AAow=w800)](https://lh3.googleusercontent.com/5Ml5pky4-4F09BB4-9W-hT5iccCreXwKpIXCoe1AAow=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAIcHdmRNP992p8QlkB9EqSa/aktivointi/kupit-kulhoissa/DSC43086-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAoWBotWnzlLz9Dy4GGe60Ca/aktivointi/kupit-kulhoissa/DSC43086.jpg)
 
-[![](https://lh3.googleusercontent.com/K12pPw75mIYS3n9_6jVuHFeFEYvuM9Vyvq3lFNyS4gA=w800)](https://lh3.googleusercontent.com/K12pPw75mIYS3n9_6jVuHFeFEYvuM9Vyvq3lFNyS4gA=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAY-MYzl_mndCTkVkU0VGl3a/aktivointi/kupit-kulhoissa/DSC43090-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACVufKAID1kdFAORmYV2j_5a/aktivointi/kupit-kulhoissa/DSC43090.jpg)
 
-[![](https://lh3.googleusercontent.com/nnpJcx_iNTFTQQNVdWDltwmP5UvNzh6rAhq6Ec-yQgU=w800)](https://lh3.googleusercontent.com/nnpJcx_iNTFTQQNVdWDltwmP5UvNzh6rAhq6Ec-yQgU=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABS0901pVlm0_bfFxKFt1Qba/aktivointi/kupit-kulhoissa/DSC43133-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAILY9KsZoMcqkkHiTovyFEa/aktivointi/kupit-kulhoissa/DSC43133.jpg)
 
-[![](https://lh3.googleusercontent.com/uBRV9lMwtMXterTaT6nS3l_mPxEq5wUeA3nQu3_M5qU=w800)](https://lh3.googleusercontent.com/uBRV9lMwtMXterTaT6nS3l_mPxEq5wUeA3nQu3_M5qU=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAByCyLmiZjCtS12Fm0-uKk4a/aktivointi/kupit-kulhoissa/DSC43729-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAOUNQWpKIRuW6HyyNvL1jla/aktivointi/kupit-kulhoissa/DSC43729.jpg)
 
 ### Variation 3
 
 I put some kibbles into the plastic bowls and then I stacked the yoghurt cups as obstacles on top of them. On the floor it took Miki about a minute to get all the kibbles out and when I put them into the cardboard box it took Miki about three minutes.
 
-[![](https://lh3.googleusercontent.com/t9mGT3xNPf1k_3ulTkvH0ZktI2Q6aikSJJ6M3bWBJ0I=w800)](https://lh3.googleusercontent.com/t9mGT3xNPf1k_3ulTkvH0ZktI2Q6aikSJJ6M3bWBJ0I=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADl47h2y6JrUYSE4AOyX1Lta/aktivointi/kupit-kulhoissa/DSC43584-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABZjbJ9WfMnttxdGZoLVfi2a/aktivointi/kupit-kulhoissa/DSC43584.jpg)
 
-[![](https://lh3.googleusercontent.com/rQpd7hpwx5FEo_10qiWj6aLZOti3tzDYsen-pYOGvN4=w800)](https://lh3.googleusercontent.com/rQpd7hpwx5FEo_10qiWj6aLZOti3tzDYsen-pYOGvN4=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABA5L4PlovgT3LyoLSX9X2Ia/aktivointi/kupit-kulhoissa/DSC43592-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACYeVe3pn26aWk1HhjmjpBSa/aktivointi/kupit-kulhoissa/DSC43592.jpg)
 
-[![](https://lh3.googleusercontent.com/0FoP2Yzv961VTWkvif460KD2kRGwJ0ZpRVtpvBRnfb8=w800)](https://lh3.googleusercontent.com/0FoP2Yzv961VTWkvif460KD2kRGwJ0ZpRVtpvBRnfb8=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5hAEbguQHOnjpn_LUpXvja/aktivointi/kupit-kulhoissa/DSC44306-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACXZEte_3BYnMfg3AP0rte4a/aktivointi/kupit-kulhoissa/DSC44306.jpg)
 
 ### Variation 4
 
