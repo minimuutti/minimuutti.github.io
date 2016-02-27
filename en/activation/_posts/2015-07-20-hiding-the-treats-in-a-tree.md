@@ -3,7 +3,7 @@ title: "Hiding the treats in a tree"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/CymxCLi0SZSwbz5fIMRnZ_kl84ogBdYH957wxdsqZIA=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD2mk2WrfkGjjP7_JtU9xIta/aktivointi/namien-piilotus-puuhun/DSC29220-245px.jpg
   thumb:
 ---
 You can hide the treats under the trees bark or in the holes of the bark.
@@ -14,26 +14,22 @@ And try to make sure that your dog doesn’t fall off the tree while he is climb
 
 ---
 
-[![](https://lh3.googleusercontent.com/XOj5z58Lw2GMpcJFxuUszQ1sUcc5Dcwp3YJKC8TaOXI=w800)](https://lh3.googleusercontent.com/XOj5z58Lw2GMpcJFxuUszQ1sUcc5Dcwp3YJKC8TaOXI=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADd6sMSqH6QodNGqxNTz96qa/aktivointi/namien-piilotus-puuhun/DSC29242_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABqx3Jeu0gtZFfju4OU1Deaa/aktivointi/namien-piilotus-puuhun/DSC29242_2.jpg)
 
-[![](https://lh3.googleusercontent.com/gKKSDo4IRATu2T__-IqlI3dO2n_9GG-J9fBwRZggbrY=w800)](https://lh3.googleusercontent.com/gKKSDo4IRATu2T__-IqlI3dO2n_9GG-J9fBwRZggbrY=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA66Lbzfurk81TsQYKqmAQia/aktivointi/namien-piilotus-puuhun/DSC29249_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA2M1_6XtM3izAmaqqy5gnaa/aktivointi/namien-piilotus-puuhun/DSC29249_2.jpg)
 
-[![](https://lh3.googleusercontent.com/UZEUNJuZwYDCNLysudS8O_ytBNs65HBfq6AaT_Hc9tQ=w800)](https://lh3.googleusercontent.com/UZEUNJuZwYDCNLysudS8O_ytBNs65HBfq6AaT_Hc9tQ=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABSDMh9dZW4Kq3sd2NdRl_Xa/aktivointi/namien-piilotus-puuhun/DSC23854_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAYGzyzSPYsl9Gp89ykpxy1a/aktivointi/namien-piilotus-puuhun/DSC23854_2.jpg)
 
-[![](https://lh3.googleusercontent.com/BCI_2kFtNVe6dMB0_DQjQgM4_G4gWxIz8C2q_gEoDYg=w800)](https://lh3.googleusercontent.com/BCI_2kFtNVe6dMB0_DQjQgM4_G4gWxIz8C2q_gEoDYg=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADcO5RoTFn-EjCPTKBPsanca/aktivointi/namien-piilotus-puuhun/DSC25456_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC_tEC-twAG18MhplwgKtTaa/aktivointi/namien-piilotus-puuhun/DSC25456_2.jpg)
 
-[![](https://lh3.googleusercontent.com/AESSxWyzAb81by4ap18HYTQ65d0Bs5OnFFADPlziEYs=w800)](https://lh3.googleusercontent.com/AESSxWyzAb81by4ap18HYTQ65d0Bs5OnFFADPlziEYs=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_z6xhAkf45koCumwKAFvoa/aktivointi/namien-piilotus-puuhun/DSC25459_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAABm1NAOPhf6C5A7WROoz9ca/aktivointi/namien-piilotus-puuhun/DSC25459_2.jpg)
 
-[![](https://lh3.googleusercontent.com/piX-jbufN2EXlkUGXo5bdiM4z7Lnu00c4SxEKDb-s6A=w800)](https://lh3.googleusercontent.com/piX-jbufN2EXlkUGXo5bdiM4z7Lnu00c4SxEKDb-s6A=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAWCUYf0vCVWBpWFEGZ8sdna/aktivointi/namien-piilotus-puuhun/DSC25421_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADkb7j7YbjQmInKScE75ANGa/aktivointi/namien-piilotus-puuhun/DSC25421_2.jpg)
 
-[![](https://lh3.googleusercontent.com/K_FJoijd6GRoAmJ3BkKL5M1yvxzNGfJjWhHrKk3OnhY=w800)](https://lh3.googleusercontent.com/K_FJoijd6GRoAmJ3BkKL5M1yvxzNGfJjWhHrKk3OnhY=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC_zXjz0dwBRFvjhjtjKWzNa/aktivointi/namien-piilotus-puuhun/DSC42805-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABJDvkvVL-DMH5Dbqh7ocnLa/aktivointi/namien-piilotus-puuhun/DSC42805.jpg)
 
-[![](https://lh3.googleusercontent.com/IHLPuRA1GzobWPim0GQMuWn0CBV46JnnR3_lVTmEDjQ=w800)](https://lh3.googleusercontent.com/IHLPuRA1GzobWPim0GQMuWn0CBV46JnnR3_lVTmEDjQ=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA4IeXlVWz5VaLK0oOFFAFka/aktivointi/namien-piilotus-puuhun/DSC55047-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAd3xzFK1M2KTuxvRKBS9Zba/aktivointi/namien-piilotus-puuhun/DSC55047.jpg)
 
-[![](https://lh3.googleusercontent.com/TyU3YVIeuRiu_mbhSZBUJyIVPSIR0zo0tkpHdqEXJCc=w800)](https://lh3.googleusercontent.com/TyU3YVIeuRiu_mbhSZBUJyIVPSIR0zo0tkpHdqEXJCc=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC4N1TmSE5WmHpD9S3oAHxDa/aktivointi/namien-piilotus-puuhun/DSC29234_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAg0p9628pKCkSSXWQv3Gdoa/aktivointi/namien-piilotus-puuhun/DSC29234_2.jpg)
 
-[![](https://lh3.googleusercontent.com/MeUvlkhzk8E-0EuPi6FCqpcYp2lGQGB6VH6vpAnvG58=w800)](https://lh3.googleusercontent.com/MeUvlkhzk8E-0EuPi6FCqpcYp2lGQGB6VH6vpAnvG58=s0)
-
-[![](https://lh3.googleusercontent.com/CLSUTqbz6ova8oqns2Pr3yHbFUs5A1CNtVu7NRGZABo=w800)](https://lh3.googleusercontent.com/CLSUTqbz6ova8oqns2Pr3yHbFUs5A1CNtVu7NRGZABo=s0)
-
-[![](https://lh3.googleusercontent.com/ANdrNeRezLMSuqNHLXcUgrnbEzEO9v8consRpRrG6VWfOAdiHDbeyAgyeiQ0tOjUAsiGf2e6bsVrWOpN5Sndn0yZThWuru3cCJWcF9Ln2ejkKSkNqcjFoKKNY0qQaTBrW4iBH7scw83GUwAKBBtf375ckoy4Px8rLtSudf3gOpI388yINahPePKPUCOIwIKJvl9PcgR-sPfK3Z-NwnYImgE6QpNxSRJYYGdImsqMOb5FOZOVoSi3ZfihTCNiVxI5-pTMPsQn9grSPvHl5IYbnO5rDBYbt_AO80W5XjjGq-0T-RdghbaiRoFmaZyXZKdiVAWYFbFTDwxXZF83PNSkWVMbj-rFsfEdI7XlhhH2Xrlu6VSsNI9oEXddxz_NSF8ovyrjXZDV8AjaPSl8WusnLUv855yvkW2CSBikk_0hJbxRVsG3ny__j1z2P2Q94jYQ95ZPvQsyE_4EyqsCxI0RCvzWkMFAkAXaLnmeDUZ9XDNmYr2HpFp__teiMfw_8L9rQxaCQ1hTUT8nsS1hjqHvlO9H1i195n7LO-eV6QqdoIo=w800)](https://lh3.googleusercontent.com/ANdrNeRezLMSuqNHLXcUgrnbEzEO9v8consRpRrG6VWfOAdiHDbeyAgyeiQ0tOjUAsiGf2e6bsVrWOpN5Sndn0yZThWuru3cCJWcF9Ln2ejkKSkNqcjFoKKNY0qQaTBrW4iBH7scw83GUwAKBBtf375ckoy4Px8rLtSudf3gOpI388yINahPePKPUCOIwIKJvl9PcgR-sPfK3Z-NwnYImgE6QpNxSRJYYGdImsqMOb5FOZOVoSi3ZfihTCNiVxI5-pTMPsQn9grSPvHl5IYbnO5rDBYbt_AO80W5XjjGq-0T-RdghbaiRoFmaZyXZKdiVAWYFbFTDwxXZF83PNSkWVMbj-rFsfEdI7XlhhH2Xrlu6VSsNI9oEXddxz_NSF8ovyrjXZDV8AjaPSl8WusnLUv855yvkW2CSBikk_0hJbxRVsG3ny__j1z2P2Q94jYQ95ZPvQsyE_4EyqsCxI0RCvzWkMFAkAXaLnmeDUZ9XDNmYr2HpFp__teiMfw_8L9rQxaCQ1hTUT8nsS1hjqHvlO9H1i195n7LO-eV6QqdoIo=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAh5Y9qAps5LEjqW_G-qKcUa/aktivointi/namien-piilotus-puuhun/DSC29236_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQhQkg8tCdJCgkxGBKD7NHa/aktivointi/namien-piilotus-puuhun/DSC29236_2.jpg)

@@ -3,7 +3,7 @@ title: "Namien etsintä kippojen alta"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/_e-gB54gMrFDEnQ2C1xlKkZ6OCA660pnM3EFUKOir3U=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC8BfEiawbfjrKKJBtVtj3la/aktivointi/namien-etsinta-kippojen-alta/DSC42562-245px.jpg
   thumb:
 ---
 
@@ -17,14 +17,14 @@ Mikäli purkkeja laittaa lattialle enemmän kuin kymmenen, niin namejakin ehkä 
 
 ---
 
-[![](https://lh3.googleusercontent.com/ke-f2cvLPNfsHJOfUP1z32LCWFibyB2uuZWEdsIvX9s=w800)](https://lh3.googleusercontent.com/ke-f2cvLPNfsHJOfUP1z32LCWFibyB2uuZWEdsIvX9s=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABl72YZ1iheaAtQdvvL1JJ5a/aktivointi/namien-etsinta-kippojen-alta/DSC30657_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABGyOryXCllKGn1oedSzWPBa/aktivointi/namien-etsinta-kippojen-alta/DSC30657_2.jpg)
 
-[![](https://lh3.googleusercontent.com/FY4qHYCusHlhsZNEISNwhPTV9nhtsEdPTtS4on2WAT4=w800)](https://lh3.googleusercontent.com/FY4qHYCusHlhsZNEISNwhPTV9nhtsEdPTtS4on2WAT4=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_InxEcf26mBJ6xJaEIzZha/aktivointi/namien-etsinta-kippojen-alta/DSC30665_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAfO9-C-HuCtXrVYg_sBT19a/aktivointi/namien-etsinta-kippojen-alta/DSC30665_2.jpg)
 
-[![](https://lh3.googleusercontent.com/4IPG3Y0AHVGAKxbYUItYdv1FgVn4QmFmheOErm8oCf4=w800)](https://lh3.googleusercontent.com/4IPG3Y0AHVGAKxbYUItYdv1FgVn4QmFmheOErm8oCf4=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADCVnsX6X4RuUUKIjKk5gMka/aktivointi/namien-etsinta-kippojen-alta/DSC30666_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABHcW43bnpBm2aa8GuP8R5Ya/aktivointi/namien-etsinta-kippojen-alta/DSC30666_2.jpg)
 
-[![](https://lh3.googleusercontent.com/1r_72jm1aAKUj1BXDIrqX837alPADMgP2sU0UwkW3G8=w800)](https://lh3.googleusercontent.com/1r_72jm1aAKUj1BXDIrqX837alPADMgP2sU0UwkW3G8=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADxU-JhJxSlJ9NC7J6qBHnja/aktivointi/namien-etsinta-kippojen-alta/DSC42557-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD1DMYuXQRnw20qu3lKlgk0a/aktivointi/namien-etsinta-kippojen-alta/DSC42557.jpg)
 
-[![](https://lh3.googleusercontent.com/mzcIzcS_bXWRC8QIUGDGUG8-KdwYO382FpdTF3rLUjg=w800)](https://lh3.googleusercontent.com/mzcIzcS_bXWRC8QIUGDGUG8-KdwYO382FpdTF3rLUjg=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADp2jH2k1ZfI81ZC6LL-4Zoa/aktivointi/namien-etsinta-kippojen-alta/DSC42562-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA6LVhgT-xqpkHRKG-2x8Vqa/aktivointi/namien-etsinta-kippojen-alta/DSC42562.jpg)
 
-[![](https://lh3.googleusercontent.com/ef3CghXShP4B31AugEu_MQW3BxufmH5yoKs9UVS_owA=w800)](https://lh3.googleusercontent.com/ef3CghXShP4B31AugEu_MQW3BxufmH5yoKs9UVS_owA=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAq4D9N1zB77uYEOElQGksNa/aktivointi/namien-etsinta-kippojen-alta/DSC42614-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-6tvM5aPlVC6lNRCKxyaMa/aktivointi/namien-etsinta-kippojen-alta/DSC42614.jpg)
