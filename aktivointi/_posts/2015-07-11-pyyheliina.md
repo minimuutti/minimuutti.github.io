@@ -3,7 +3,7 @@ title: "Pyyheliina"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/QTh2OepLQ6lFfkdEKkBwWy72H5U1ONRfWMckGoWC5EE=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-4vfiN5Pd7kRAslmJ8e--a/aktivointi/pyyheliina/DSC43068-245px.jpg
   thumb:
 ---
 
@@ -23,30 +23,30 @@ Kokeilin myös rullata herkkuja sisältävän kylpypyyhkeen kierteelle. Ensin ru
 
 ---
 
-[![](https://lh3.googleusercontent.com/EUGEMklxbux158kHddEHOsDAixgJ8wfKUzdZzNDo2Cg=w800)](https://lh3.googleusercontent.com/EUGEMklxbux158kHddEHOsDAixgJ8wfKUzdZzNDo2Cg=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAcOSXRAfdO1emM_gCxa-Fea/aktivointi/pyyheliina/DSC32624-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD_664I8Yos8Yni6WSms-VGa/aktivointi/pyyheliina/DSC32624.jpg)
 
-[![](https://lh3.googleusercontent.com/7CEeY3kQJs7cJveh2z2qGvMfWSxdP3w_K1kVwdKKpTM=w800)](https://lh3.googleusercontent.com/7CEeY3kQJs7cJveh2z2qGvMfWSxdP3w_K1kVwdKKpTM=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAjU7m4msfQtz4yuRvYWHdSa/aktivointi/pyyheliina/DSC32664-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD9F73TI94ZApeBxk5iH_Uka/aktivointi/pyyheliina/DSC32664.jpg)
 
-[![](https://lh3.googleusercontent.com/w5xff25n2Z5fEhBVV3Aqgpn3ZdjKKKGdvlERNpUs93E=w800)](https://lh3.googleusercontent.com/w5xff25n2Z5fEhBVV3Aqgpn3ZdjKKKGdvlERNpUs93E=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACsVn2jHjMDj5R7iId0t24ca/aktivointi/pyyheliina/DSC32727-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADSrGsBLu7Bwx6vJG-1KglIa/aktivointi/pyyheliina/DSC32727.jpg)
 
-[![](https://lh3.googleusercontent.com/EIUowJnFzROpWme2aqztpsmWjmPzB_kjyxE2gmmu4yo=w800)](https://lh3.googleusercontent.com/EIUowJnFzROpWme2aqztpsmWjmPzB_kjyxE2gmmu4yo=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACLmXTbuY6a0fqh788J8QExa/aktivointi/pyyheliina/DSC293991_-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAAr4nUUp0srlZ_WH382-pKa/aktivointi/pyyheliina/DSC293991_.jpg)
 
-[![](https://lh3.googleusercontent.com/i89khDJ-eN2d2FbF5t1xjMfWx8KZrIrFyl9u_LUhrCU=w800)](https://lh3.googleusercontent.com/i89khDJ-eN2d2FbF5t1xjMfWx8KZrIrFyl9u_LUhrCU=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAANYraAXfN7NivFnMHlZew4a/aktivointi/pyyheliina/DSC29414_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAMdAyJrW-CTLJ4LpNj_Kaqa/aktivointi/pyyheliina/DSC29414_2.jpg)
 
-[![](https://lh3.googleusercontent.com/5INXkR8MPsvUOAUdsUe5zoFlY2UtnR-TAv8aYH8Y2FE=w800)](https://lh3.googleusercontent.com/5INXkR8MPsvUOAUdsUe5zoFlY2UtnR-TAv8aYH8Y2FE=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAP-VWaRoVz10K5F2BihsR7a/aktivointi/pyyheliina/DSC42941-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADqF9yNg7qjJxeG5rBlGu9Ka/aktivointi/pyyheliina/DSC42941.jpg)
 
-[![](https://lh3.googleusercontent.com/D5IAqsXZz44y7ZymZ-ktFRU8g-FSYLzb-pK0EuZAtdQ=w800)](https://lh3.googleusercontent.com/D5IAqsXZz44y7ZymZ-ktFRU8g-FSYLzb-pK0EuZAtdQ=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADSLKmm-MI8GaZp890a0VZRa/aktivointi/pyyheliina/DSC42947-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACSUFGy7AJLnL2FrL_z9sqTa/aktivointi/pyyheliina/DSC42947.jpg)
 
-[![](https://lh3.googleusercontent.com/fzZb3_GoY0BztcEnN4Kp1-qBlbvI_Ar6pSxf28xIiPQ=w800)](https://lh3.googleusercontent.com/fzZb3_GoY0BztcEnN4Kp1-qBlbvI_Ar6pSxf28xIiPQ=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAn6pRuSSD-_X9yHeDwb-Sra/aktivointi/pyyheliina/DSC42973-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACZmg9JFtgMOvzutuEU_B0Ca/aktivointi/pyyheliina/DSC42973.jpg)
 
-[![](https://lh3.googleusercontent.com/yD-6KYJS0pRp3eI6TGMpxkpUIG1RpANQx27IEuzs6RY=w800)](https://lh3.googleusercontent.com/yD-6KYJS0pRp3eI6TGMpxkpUIG1RpANQx27IEuzs6RY=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB509OEAYbv8ZrjaX3rIjA9a/aktivointi/pyyhelaatikko/DSC43952-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAvf9Tb3xkweGrpPlSN04fYa/aktivointi/pyyhelaatikko/DSC43952.jpg)
 
-[![](https://lh3.googleusercontent.com/BS6Bjp5OMILH4QZvz_I8XCYPS3ykWok4wqRuiVEr3Jc=w800)](https://lh3.googleusercontent.com/BS6Bjp5OMILH4QZvz_I8XCYPS3ykWok4wqRuiVEr3Jc=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC0oewrPbJH31QalXWAtFWGa/aktivointi/pyyhelaatikko/DSC43961-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADvxgfDWAbAveNhnYtKaXUUa/aktivointi/pyyhelaatikko/DSC43961.jpg)
 
-[![](https://lh3.googleusercontent.com/GXd86JE4TvfJtSepxErppCEhuFj7ddUbhQZpwWdDFLg=w800)](https://lh3.googleusercontent.com/GXd86JE4TvfJtSepxErppCEhuFj7ddUbhQZpwWdDFLg=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB0hyuIKk4JECRQtGTeuYj2a/aktivointi/pyyheliina/DSC43068-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADo_Fkg9xV3g4YB3tv95GpVa/aktivointi/pyyheliina/DSC43068.jpg)
 
-[![](https://lh3.googleusercontent.com/m5t3s0rO-AKfij9fJUjMA5FU-2tN03LDX4uSByrGDtz2eWdIcoTspsXdsGJN4MEn727FEp7_p9CDH_43w8RbdXw-TWA9P13V3okb75_DgFbzuq8XLyOq_62qyCTsty6OvSwMOWId30efxjeUzN_peGsPkwKUAo5ygBCDkXv3KJOf6EWCe0Ku29nTtGTmxWxY2sd7iiuSilphw8d9uJH-pIDz3E3Jfn-1GbQ_sKTl5n_I9vtv0jvJDQ156LFMb-kxuWXd9cXTuVjGmK4up_0E1Rs_nEDc_1YLXWMYBZVohwZ_KWxO6wXUbxHVm25dtgrzK6Ro8JfuB9m-rTh5g2hSdI8dSqSNcoSokyqK8fGNZ9Imbmg1e3Ecmd-YGm638kNCybtW9J5Gnvm2Fkam1b-o1ZQKOdEAJIPhz4eHSWlbKQmKzmbn-Mjv3PSgkCcrLBDtWVlOC0GQ2lU9e_2In4Rijt3R8sP4EpV3DkH9iqaZTvJ4IF8-KqW4qxR6v5zkkb6yKkSmi4ue6R22Qi9PLC1Svpu5SIsFMdE0E3n07hxTJQs=w800)](https://lh3.googleusercontent.com/m5t3s0rO-AKfij9fJUjMA5FU-2tN03LDX4uSByrGDtz2eWdIcoTspsXdsGJN4MEn727FEp7_p9CDH_43w8RbdXw-TWA9P13V3okb75_DgFbzuq8XLyOq_62qyCTsty6OvSwMOWId30efxjeUzN_peGsPkwKUAo5ygBCDkXv3KJOf6EWCe0Ku29nTtGTmxWxY2sd7iiuSilphw8d9uJH-pIDz3E3Jfn-1GbQ_sKTl5n_I9vtv0jvJDQ156LFMb-kxuWXd9cXTuVjGmK4up_0E1Rs_nEDc_1YLXWMYBZVohwZ_KWxO6wXUbxHVm25dtgrzK6Ro8JfuB9m-rTh5g2hSdI8dSqSNcoSokyqK8fGNZ9Imbmg1e3Ecmd-YGm638kNCybtW9J5Gnvm2Fkam1b-o1ZQKOdEAJIPhz4eHSWlbKQmKzmbn-Mjv3PSgkCcrLBDtWVlOC0GQ2lU9e_2In4Rijt3R8sP4EpV3DkH9iqaZTvJ4IF8-KqW4qxR6v5zkkb6yKkSmi4ue6R22Qi9PLC1Svpu5SIsFMdE0E3n07hxTJQs=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABEgMOBjRMYVn83UAOKuTNIa/aktivointi/pyyheliina/DSC52029-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABM6sfhSdGP5uBET0W43dbPa/aktivointi/pyyheliina/DSC52029.jpg)
 
-[![](https://lh3.googleusercontent.com/eA7IaqJqkZhE2_f0Ih0KCiP8eXgrjIdJcKv6ic4MB5P65FzXUTOkKf40pXEHkOP0bruRGS9Jr7_xRaUy-zefDfEBQFSfOhmneKIgDU6pz0468xDrMiMnWEu0--a_PZY4aCJzLlbxJWxpOrk7xioTvPPXFXT1cw3jaV18WY_bqwF86aPcywq5HzzHBD8WAa_lJG3a0DWlhF9AwXI0-f2PRgNv9ZhqTTb9yqTxKs6J24uD0PCeLQ-Vazi5X-IQCUwg83hPnxt9AtkKpp5SbWIXBIn1gM4QOZt2KurxNQlFxv1SbqYyT-mnv4ln_2ecUY0g7_rUTAoDAIRzbOFf7ZoHqwAUIfighMiP28AGHl448GwkP_5rpFwJgaNJK_cEl5mXRaQzniBQRanunwF7G4K8Q-AAgTygDVaoDp0WfBKW7nRkAw8HDHw2vP3JqDAlRzIAxLO-GN3GYFW4dm3V2QGkqncmstZY5KAgTiv3ibBCG5eDZ6MHNkjZZ8T8SzZgfRn65XdpX9_IrvrElkPvM6yym18vK6SRM0gWCgWFLv2wYgA=w800)](https://lh3.googleusercontent.com/eA7IaqJqkZhE2_f0Ih0KCiP8eXgrjIdJcKv6ic4MB5P65FzXUTOkKf40pXEHkOP0bruRGS9Jr7_xRaUy-zefDfEBQFSfOhmneKIgDU6pz0468xDrMiMnWEu0--a_PZY4aCJzLlbxJWxpOrk7xioTvPPXFXT1cw3jaV18WY_bqwF86aPcywq5HzzHBD8WAa_lJG3a0DWlhF9AwXI0-f2PRgNv9ZhqTTb9yqTxKs6J24uD0PCeLQ-Vazi5X-IQCUwg83hPnxt9AtkKpp5SbWIXBIn1gM4QOZt2KurxNQlFxv1SbqYyT-mnv4ln_2ecUY0g7_rUTAoDAIRzbOFf7ZoHqwAUIfighMiP28AGHl448GwkP_5rpFwJgaNJK_cEl5mXRaQzniBQRanunwF7G4K8Q-AAgTygDVaoDp0WfBKW7nRkAw8HDHw2vP3JqDAlRzIAxLO-GN3GYFW4dm3V2QGkqncmstZY5KAgTiv3ibBCG5eDZ6MHNkjZZ8T8SzZgfRn65XdpX9_IrvrElkPvM6yym18vK6SRM0gWCgWFLv2wYgA=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-6RsJpK8MI0ThZz1mCN9Da/aktivointi/pyyheliina/DSC52033-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD-_5RKPzsMLMpWzDsCG8b7a/aktivointi/pyyheliina/DSC52033.jpg)
 
-[![](https://lh3.googleusercontent.com/F820vl32PJrizFa92lEe3XTpd8Q6cCGI53bDmtQyLl6wW_nJC-hkZnlY8cLCsmUJ7hkv3rzCa4rCoHlmCcp_Bk70QuKcYOhzRUH62wrpSk93RhOrS5gMxkm45Dm_O-lHSMFREkd4lSyDqyblw3gPCPcVD0noSQukhR2tOiiRDVAWNm3S0m5HOf5GQMdBTemm03RseyEET5KIEG_nspOsmJ6mbVVApu8TyIqk34yuHFNlCUxIl7REj6HFS4e-Op-oJfyhjyNVp6hZ5ovlMJSkWRKzvNRsY-AZwRIdcAysSnv1Sjuk6FgGpVvezeh7j8bA2siX11Bwb7y75JQIgbPi9me8KiUv2UNH7MVZK40aKIrLCx1ug2u656x21n3NpLtUb0LmfhcX_A8-D7yA6BKKjaeRlfkp67FQfyghkaBTMTGEIpgT-diOMuS9U7xmNPbsV1ApuvR6wpzY-rja1yJ7CxNAcb92-RL8-JW71S9mFVKSK2B9mTcLEwBfWGKrXb48LG7t4KTpB_-k1RREUNoCZxv7cEA-MUohntSuPn6TYxo=w800)](https://lh3.googleusercontent.com/F820vl32PJrizFa92lEe3XTpd8Q6cCGI53bDmtQyLl6wW_nJC-hkZnlY8cLCsmUJ7hkv3rzCa4rCoHlmCcp_Bk70QuKcYOhzRUH62wrpSk93RhOrS5gMxkm45Dm_O-lHSMFREkd4lSyDqyblw3gPCPcVD0noSQukhR2tOiiRDVAWNm3S0m5HOf5GQMdBTemm03RseyEET5KIEG_nspOsmJ6mbVVApu8TyIqk34yuHFNlCUxIl7REj6HFS4e-Op-oJfyhjyNVp6hZ5ovlMJSkWRKzvNRsY-AZwRIdcAysSnv1Sjuk6FgGpVvezeh7j8bA2siX11Bwb7y75JQIgbPi9me8KiUv2UNH7MVZK40aKIrLCx1ug2u656x21n3NpLtUb0LmfhcX_A8-D7yA6BKKjaeRlfkp67FQfyghkaBTMTGEIpgT-diOMuS9U7xmNPbsV1ApuvR6wpzY-rja1yJ7CxNAcb92-RL8-JW71S9mFVKSK2B9mTcLEwBfWGKrXb48LG7t4KTpB_-k1RREUNoCZxv7cEA-MUohntSuPn6TYxo=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADLZHY_xwDg2DXaIP849Rvaa/aktivointi/pyyheliina/DSC52036-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACf1hoBOwLp8m6A7oHXcuaYa/aktivointi/pyyheliina/DSC52036.jpg)

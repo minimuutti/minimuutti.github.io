@@ -3,7 +3,7 @@ title: "Pyyhelasagne"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/FWVFXs_1ajSOI9zxSECNpiTb10WFxX65ITxz8Hl0jb0=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAM-YGgrgMxuDMMRRet23M8a/aktivointi/pyyhelasagne/DSC38738-245px.jpg
   thumb:
 ---
 
@@ -11,14 +11,14 @@ Tähän ei kannata valita parhaimpia pyyhkeitä, vaan esimerkiksi tassupyyhkeit�
 
 Mikiltä meni noin 5 minuuttia kaikkien namien löytämiseen.
 
-[![](https://lh3.googleusercontent.com/k3C70P2i0LY8pUwVUnRlVx8ABUpeyJs_6bf1msryGB8=w800)](https://lh3.googleusercontent.com/k3C70P2i0LY8pUwVUnRlVx8ABUpeyJs_6bf1msryGB8=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADb410uwZEyIHOpH2kpmMSaa/aktivointi/pyyhelasagne/DSC38738-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACnWQLkFJHjCckwVcs8dB_ia/aktivointi/pyyhelasagne/DSC38738.jpg)
 
-[![](https://lh3.googleusercontent.com/gpfcAjGoSh_5qgz8JMdUO6R6peziSdB6xXgW_toQBSo=w800)](https://lh3.googleusercontent.com/gpfcAjGoSh_5qgz8JMdUO6R6peziSdB6xXgW_toQBSo=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAPqrTfupe8ZqfvED3iHqrIa/aktivointi/pyyhelasagne/DSC38753-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC0Lha7uO2GIRF9nLMel-zSa/aktivointi/pyyhelasagne/DSC38753.jpg)
 
-[![](https://lh3.googleusercontent.com/3FVg2D4Uy9ZwcMm9EoPHsIunsU_4s3r4pBD76UM-bhM=w800)](https://lh3.googleusercontent.com/3FVg2D4Uy9ZwcMm9EoPHsIunsU_4s3r4pBD76UM-bhM=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACRj9IXxdz8Vv-rZogb3H3na/aktivointi/pyyhelasagne/DSC38789-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABeh2ZomTwry3w4uB6NLNGIa/aktivointi/pyyhelasagne/DSC38789.jpg)
 
-[![](https://lh3.googleusercontent.com/ad_zy9C3dFzczbij4XUITdj2XHnjhF24VcrgtOWRSH0=w800)](https://lh3.googleusercontent.com/ad_zy9C3dFzczbij4XUITdj2XHnjhF24VcrgtOWRSH0=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABYOdGI2YM_Z3Yt7IFQ1kQ8a/aktivointi/pyyhelasagne/DSC38797-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABgFYlfKvWvkXFZrlzU4smWa/aktivointi/pyyhelasagne/DSC38797.jpg)
 
-[![](https://lh3.googleusercontent.com/CXdNRAcBuLocxo7o0LWpvVtPB2ng4zXb0KUFOuvzyvU=w800)](https://lh3.googleusercontent.com/CXdNRAcBuLocxo7o0LWpvVtPB2ng4zXb0KUFOuvzyvU=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA64xfHc8SK_veTv8yKch9xa/aktivointi/pyyhelasagne/DSC38802-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACzfB4NCzZjs53dgDmhCOfYa/aktivointi/pyyhelasagne/DSC38802.jpg)
 
-[![](https://lh3.googleusercontent.com/qBDJVg0njYZ4isvP4CcXdPSup71rtMxgQk021ZmAJ30=w800)](https://lh3.googleusercontent.com/qBDJVg0njYZ4isvP4CcXdPSup71rtMxgQk021ZmAJ30=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC83Q7e4appJzzUuOppzXJoa/aktivointi/pyyhelasagne/DSC38813-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABGry_eOTf32b8vzpSMoeMma/aktivointi/pyyhelasagne/DSC38813.jpg)

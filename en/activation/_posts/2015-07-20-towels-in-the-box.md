@@ -3,7 +3,7 @@ title: "Towels in the box"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/lZKuiF7R7EAG4OEMkTlDrgFycuNdcBmW97eMcOVfjr8=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA1HlBAl9i5O3dYnTm5fHZna/aktivointi/pyyhelaatikko/DSC44367-245px.jpg
   thumb:
 ---
 
@@ -13,46 +13,45 @@ You can make lots of fun games with just a towel and a box. You can put some tre
 
 I put some treats on the bottom of the box and then I just laid the towel on top of the box. It took Miki about 30 seconds to find all the treats.
 
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABkH8wbjpe1BCr1Zue0PaAaa/aktivointi/pyyhelaatikko/DSC44347-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAc0S0bYi2DNENI0U2HhfD-a/aktivointi/pyyhelaatikko/DSC44347.jpg)
 
-[![](https://lh3.googleusercontent.com/OaBVhKq3_D_vqIHmE0mcbjHC5te3pFm-KFv9sE7HJ5g=w1489-h989-no)](https://lh3.googleusercontent.com/OaBVhKq3_D_vqIHmE0mcbjHC5te3pFm-KFv9sE7HJ5g=w1489-h989-no)
-
-[![](https://lh3.googleusercontent.com/IvhyRr-fl3bK4Vsed54cNwHX456_gd8XNR3LwmL7KrE=w1489-h989-no)](https://lh3.googleusercontent.com/IvhyRr-fl3bK4Vsed54cNwHX456_gd8XNR3LwmL7KrE=w1489-h989-no)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAVEacVKNVXEjJR4Aa5PF8Wa/aktivointi/pyyhelaatikko/DSC44334-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADbHoRlWdLEx_AikCJeFleVa/aktivointi/pyyhelaatikko/DSC44334.jpg)
 
 ### Variation 2
 
 I put some treats on the bottom of the box. After this I laid the towel on top of the box and then I folded the edges under the box. It took Miki under a minute to find all the treats.
 
-[![](https://lh3.googleusercontent.com/b53aR3BYxzn2H-euOnuBUtpuhVNC_REtXOOviZPuaO4=w1489-h989-no)](https://lh3.googleusercontent.com/b53aR3BYxzn2H-euOnuBUtpuhVNC_REtXOOviZPuaO4=w1489-h989-no)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACnoCGI9p3NLln9FwGnPJmGa/aktivointi/pyyhelaatikko/DSC44425-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABFoFnu6lEvRYs5THi7Yp2Ya/aktivointi/pyyhelaatikko/DSC44425.jpg)
 
-[![](https://lh3.googleusercontent.com/N-S-x7wAUSeSloX1SKjoxeHCOw74YNxi3YbKk7tTjGY=w1489-h989-no)](https://lh3.googleusercontent.com/N-S-x7wAUSeSloX1SKjoxeHCOw74YNxi3YbKk7tTjGY=w1489-h989-no)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABH1sKWkdV0SJtXq1QvYRcua/aktivointi/pyyhelaatikko/DSC44440-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAi8eEL02PDxOHQ6j5RAvdDa/aktivointi/pyyhelaatikko/DSC44440.jpg)
 
 ### Variation 3
 
 I made this game similar to variation 2, but I folded the towel tight under the box. It took miki just over a minute to find all the treats.
 
-[![](https://lh3.googleusercontent.com/9DE4BSADUHPZ5CN3YRSaiJPuJ89EB6AtVlsOLIAk2Ok=w1489-h989-no)](https://lh3.googleusercontent.com/9DE4BSADUHPZ5CN3YRSaiJPuJ89EB6AtVlsOLIAk2Ok=w1489-h989-no)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVdjQJiXDLxPhtPHdYaUJca/aktivointi/pyyhelaatikko/DSC44452-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA7ronJQWN4wWcql-cSyGDca/aktivointi/pyyhelaatikko/DSC44452.jpg)
 
-[![](https://lh3.googleusercontent.com/39s09hbBtJMZl_HG_bK41eJAgP1UxBijoKAbI00wuc0=w1489-h989-no)](https://lh3.googleusercontent.com/39s09hbBtJMZl_HG_bK41eJAgP1UxBijoKAbI00wuc0=w1489-h989-no)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC8S0jD-2bCBbTspFuinbNoa/aktivointi/pyyhelaatikko/DSC44456-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAANCIf9Hngf2GcFz97_2-ICa/aktivointi/pyyhelaatikko/DSC44456.jpg)
 
-[![](https://lh3.googleusercontent.com/e2TPs0oL7VBYNr1ncVbXfEovApVk-1i8wpf4a5Orbkk=w1489-h989-no)](https://lh3.googleusercontent.com/e2TPs0oL7VBYNr1ncVbXfEovApVk-1i8wpf4a5Orbkk=w1489-h989-no)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-x6hx9eEOQoWMnbgADFRZa/aktivointi/pyyhelaatikko/DSC44476-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADpLkLUGTMHxTSJm0WXBXvqa/aktivointi/pyyhelaatikko/DSC44476.jpg)
 
 ### Variation 4
 
 I put some treats on the bottom of the box and then I folded the towel and put it into the box. It took Miki about a minute to find all the treats.
 
-[![](https://lh3.googleusercontent.com/I2kD_7Q7WrTKANvUhZK__rBEglS0u1LU-HSZL0zZ94A=w1489-h989-no)](https://lh3.googleusercontent.com/I2kD_7Q7WrTKANvUhZK__rBEglS0u1LU-HSZL0zZ94A=w1489-h989-no)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADy8a8tdOunjMyabJCfZl35a/aktivointi/pyyhelaatikko/DSC44355-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADq1JLpcQbcq4tcFDD3FdRIa/aktivointi/pyyhelaatikko/DSC44355.jpg)
 
-[![](https://lh3.googleusercontent.com/jIOZZnfUPQPz_KXehnIrOyaRMzNAIJh_O4m7Rq9PNdM=w1489-h989-no)](https://lh3.googleusercontent.com/jIOZZnfUPQPz_KXehnIrOyaRMzNAIJh_O4m7Rq9PNdM=w1489-h989-no)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAApBhxLhlnJYf0ZbJyK2Z66a/aktivointi/pyyhelaatikko/DSC44393-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB94nBiltZA1E4zCmLcc61ya/aktivointi/pyyhelaatikko/DSC44393.jpg)
 
 ### Variation 5
 
 I put some treats on the bottom of the box. Then I folded the towel and I put some treats in foldings as well and then I placed the towel in the box. It took Miki about two minutes to find all the treats.
 
-[![](https://lh3.googleusercontent.com/t_cj6t3nf1WWCYTeEXpGKVsNMrKisTSE6DCgtgJbKYw=w1489-h989-no)](https://lh3.googleusercontent.com/t_cj6t3nf1WWCYTeEXpGKVsNMrKisTSE6DCgtgJbKYw=w1489-h989-no)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADlS_6LUS6FgnVZ7ISlrmo6a/aktivointi/pyyhelaatikko/DSC44485-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADZrqqD9cpZmgDDfuqQzhxja/aktivointi/pyyhelaatikko/DSC44485.jpg)
 
-[![](https://lh3.googleusercontent.com/19Pkd3q6rVjDuAATELxDmDKQNg83KV92T_fDjTXZxgs=w1490-h990-no)](https://lh3.googleusercontent.com/19Pkd3q6rVjDuAATELxDmDKQNg83KV92T_fDjTXZxgs=w1490-h990-no)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABMsbUo5xLN9Ty5-f8kbyB_a/aktivointi/pyyhelaatikko/DSC44523-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC0787xx5UXo8s1FljCtmaya/aktivointi/pyyhelaatikko/DSC44523.jpg)
 
-[![](https://lh3.googleusercontent.com/ApjMU7qyInCga9gvLj5t1t6At923s71W_wWEwyPUyaw=w1489-h989-no)](https://lh3.googleusercontent.com/ApjMU7qyInCga9gvLj5t1t6At923s71W_wWEwyPUyaw=w1489-h989-no)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABYLVT339HSGOj58uRLCYzGa/aktivointi/pyyhelaatikko/DSC44548-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABkYhsQuz2hN1sFK2cna78qa/aktivointi/pyyhelaatikko/DSC44548.jpg)
 
 ### Variation 6
 
@@ -60,6 +59,6 @@ I put four small towels and one big towel in to the box. I folded or scrunched t
 
 Miki found all the treats in two minutes.
 
-[![](https://lh3.googleusercontent.com/h5ef5-wRRo7lSzqB1pWXBogXeq_7nVcMkY__CyrWCrI=w800)](https://lh3.googleusercontent.com/h5ef5-wRRo7lSzqB1pWXBogXeq_7nVcMkY__CyrWCrI=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABv-xYHtz2rAYW0_UE1dMo-a/aktivointi/pyyhelaatikko/DSC32957-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADX23SgYiX-2PSJGBoQN_a3a/aktivointi/pyyhelaatikko/DSC32957.jpg)
 
-[![](https://lh3.googleusercontent.com/osU95ndZ_HbS9-XGA8sprrJeyS6s2NLR15I3SZPgcck=w800)](https://lh3.googleusercontent.com/osU95ndZ_HbS9-XGA8sprrJeyS6s2NLR15I3SZPgcck=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJzFf-PFNfHG8IMD2FZ32Va/aktivointi/pyyhelaatikko/DSC32953-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADgW6DjKTl-sTsoyNHPiRTHa/aktivointi/pyyhelaatikko/DSC32953.jpg)
