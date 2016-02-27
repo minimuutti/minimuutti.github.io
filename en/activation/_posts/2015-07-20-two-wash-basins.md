@@ -3,7 +3,7 @@ title: "Two wash basins"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/bZxIlaMdvJkvVzlmIfZbI3GF5C4lyxBA7MU_l567k8s=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACi9eZjtMVNw0CltCftNuvna/aktivointi/pesuvadit-paallekkain/DSC32458-245px.jpg
   thumb:
 ---
 
@@ -13,12 +13,12 @@ It took Miki about a minute and half to get the wash basins separated.
 
 ---
 
-[![](https://lh3.googleusercontent.com/84vERjRGqZQ9SH1nwJbJ3gWH3JqHY48C1K7mPqTOTa4=w800)](https://lh3.googleusercontent.com/84vERjRGqZQ9SH1nwJbJ3gWH3JqHY48C1K7mPqTOTa4=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADzIw0Y10hohhzKOFNP1MPya/aktivointi/pesuvadit-paallekkain/DSC32401-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAE41xBGOmZycvvT5WKo4qOa/aktivointi/pesuvadit-paallekkain/DSC32401.jpg)
 
-[![](https://lh3.googleusercontent.com/LOQcIaxTGAOC0mGbuOJhlS8NpAz8yUbblEmEsZ7R4gA=w800)](https://lh3.googleusercontent.com/LOQcIaxTGAOC0mGbuOJhlS8NpAz8yUbblEmEsZ7R4gA=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADczG0en-eTjC8ERVpE_v3Za/aktivointi/pesuvadit-paallekkain/DSC32419-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC1HRvJV4ATJyw3JEtJedETa/aktivointi/pesuvadit-paallekkain/DSC32419.jpg)
 
-[![](https://lh3.googleusercontent.com/RtXo18XP5pt-rwv7r36iTADHz5XT_eQidtrKWbmHZSlFr2lypWpUO8Mpmjy7hsTGoTQ49_Fe9_l__bMXLe2ncZ5t_YctTRXdQzM9yrVIqttxs1tphGXpCggb5S1UC-uuP7h2NU_RrW4CY-Kc4Qj83OYUrsz6aLnCQRAYSf1g9ch7bUYvfPedBlj8-ZjS-hmalWpGdFKQZh-KC1OmX1t4QX8shz0A6aq3QAle-Ivib0FXZrApz51BZvHMS2D8iVznb5swyWxsmOumZ24G4SVAoVTeBfeUmDNWDna5gUS0IvuzXuh37mH-LxpKXI2I8TV2tzY2Oe3IJe2bGGQR0GXLZ0GDUU0ivs75Y6xohPl7Lm7Jn6HtA-Rj64_4llB7E01G50yrIFHKsEWuJYXjpT8CJkp8QH0KgDqb-rJGU_KQdVa0vgSqdonsJVmRgbdRy5z0tX79JDqXu-FtzAj8vW0dxS_YNIR2-vw-j92kdG1kmz1yubDm6wmiT3E5Jb3igXrwl3xCjybRLoEpNZfLLOb2hQCoQxG2jS5ekBid-j4TjIB82emCCWxtyOZPMIEcd2pKZRP2=w800)](https://lh3.googleusercontent.com/RtXo18XP5pt-rwv7r36iTADHz5XT_eQidtrKWbmHZSlFr2lypWpUO8Mpmjy7hsTGoTQ49_Fe9_l__bMXLe2ncZ5t_YctTRXdQzM9yrVIqttxs1tphGXpCggb5S1UC-uuP7h2NU_RrW4CY-Kc4Qj83OYUrsz6aLnCQRAYSf1g9ch7bUYvfPedBlj8-ZjS-hmalWpGdFKQZh-KC1OmX1t4QX8shz0A6aq3QAle-Ivib0FXZrApz51BZvHMS2D8iVznb5swyWxsmOumZ24G4SVAoVTeBfeUmDNWDna5gUS0IvuzXuh37mH-LxpKXI2I8TV2tzY2Oe3IJe2bGGQR0GXLZ0GDUU0ivs75Y6xohPl7Lm7Jn6HtA-Rj64_4llB7E01G50yrIFHKsEWuJYXjpT8CJkp8QH0KgDqb-rJGU_KQdVa0vgSqdonsJVmRgbdRy5z0tX79JDqXu-FtzAj8vW0dxS_YNIR2-vw-j92kdG1kmz1yubDm6wmiT3E5Jb3igXrwl3xCjybRLoEpNZfLLOb2hQCoQxG2jS5ekBid-j4TjIB82emCCWxtyOZPMIEcd2pKZRP2=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC9C3kwuylCMJ_8h7Ldreifa/aktivointi/pesuvadit-paallekkain/DSC32458-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAynPtgPFEKjNV2u2FIdWm2a/aktivointi/pesuvadit-paallekkain/DSC32458.jpg)
 
-[![](https://lh3.googleusercontent.com/oimkTRcJTKMsNPulb3ZkYuj4Dmm7TnBAekWQ8Af3ii0=w800)](https://lh3.googleusercontent.com/oimkTRcJTKMsNPulb3ZkYuj4Dmm7TnBAekWQ8Af3ii0=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAh3YN8z-et8K8i9Zf4Zvnda/aktivointi/pesuvadit-paallekkain/DSC32465-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABR_HkpXhL-xdLGg5M-Wtuya/aktivointi/pesuvadit-paallekkain/DSC32465.jpg)
 
-[![](https://lh3.googleusercontent.com/nZ-o_m-8pFZz6eeG0FXFPJbwxugkmBscjywIAOGvdtM=w800)](https://lh3.googleusercontent.com/nZ-o_m-8pFZz6eeG0FXFPJbwxugkmBscjywIAOGvdtM=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAaHzNNUmL0W8RgU-wwKdXka/aktivointi/pesuvadit-paallekkain/DSC32466-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACvlFmyXxN0geFUEcpymcgia/aktivointi/pesuvadit-paallekkain/DSC32466.jpg)

@@ -3,7 +3,7 @@ title: "Hide and seek"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/NipB-DOvuTtzXDqoq7kuZUW6mY1FaJmL8ehzWKd4qUYh2Clg79fwmujnzUAHI8cmYpKnKS7gPfTMuSE77-BcjqJ38U7DuRDqYlWu9NtFpZk_Xz_v5UfCctPXSmbb9X39SgvTP0msH6u9C0ZlfFr3TeVee_xnutx3Rjzcn7OSnL3lCPxszKQpd68bM0SZiKBI0kWGU_iRepR6JlDkbXCQ_AgYkRVVFoestt2Pzo_5v3w5pmH83GO0v6Ro3F0H0707MgAI2DHDjI51MAU7oZrBMbNrglNoKQRT2AMkOVnRh53uazM5GtLagGaVMInnQbgh2RAjeYoUXeh-bSVteZNPEVEnKf0UIJn_qpbXUDAGg3piiU03UK5vtwN2DstOcOBTHNbVtaOx-NPV0bC32O61_SmXHlpKN4-jBnWyHXWX3dITzP_BKIbZ-h3ne_rwvpK3Mjh9pmE59RPN-RWFMYsNFAXHrLzyHRjq48ElscYsC2WlIIQcSa7mpS-_y-Kh8-uXFNAS2wzH6op-wFqe-J8wV9cSQvB9v2WGS7ITso9S5L0=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACa8Tg4Ea6XmT_EJp3dL8S-a/muut/Picture%20coming%20soon.jpg
   thumb:
 ---
 
