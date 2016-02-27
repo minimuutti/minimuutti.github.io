@@ -3,7 +3,7 @@ title: "Hiding the treats in the grass or in the snowdrift"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/G2O0H22zVGDqRpIFB-b1FDfaZ52LIMK2JRfbnCBsX2A=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADzADjYVBu4GwblsYeD-Naea/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956-245px.jpg
   thumb:
 ---
 
@@ -14,8 +14,8 @@ Searching in the dusk or in the dark is always harder for your dog than searchin
 
 ---
 
-[![](https://lh3.googleusercontent.com/KNMOWAwRF4NV1dPEtHi3bfl7qJwYKGLnynW94fvU4Zk=w800)](https://lh3.googleusercontent.com/KNMOWAwRF4NV1dPEtHi3bfl7qJwYKGLnynW94fvU4Zk=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABcF9gc4u3K5zs7qJG6QIBza/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_tRoRrBfDq7I7AdEb4w_xa/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956_2.jpg)
 
-[![](https://lh3.googleusercontent.com/-q0Yktk_agZt_avoAsgIabya1b3dTa1MerSPpDM_oX0=w800)](https://lh3.googleusercontent.com/-q0Yktk_agZt_avoAsgIabya1b3dTa1MerSPpDM_oX0=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACKf7iup5KJhSiam4tvJFtaa/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23983_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACtTCK3wRxoCR43oUP6PTcPa/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23983_2.jpg)
 
-[![](https://lh3.googleusercontent.com/XWmS04aaoSx8OFRP2yUz7MN4_wB80-7zoqk4Vfgocw=w800)](https://lh3.googleusercontent.com/XWmS04aaoSx8OFRP2yUz7MN4_wB80-7zoqk4Vfgocw=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABc6oHq584I_mkNOtI4UClta/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC27428_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAfYJUIihNkK9Ks3Xao1TtLa/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC27428_2.jpg)

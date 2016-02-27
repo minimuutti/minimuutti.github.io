@@ -3,7 +3,7 @@ title: "Cardboard box lasagna"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/JNUb6iEI2hlGPsM6lrmnlt8YItMbJWppCrZE4Fk-aV4=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVjaVRxrJdzoeX1QjWyvZha/aktivointi/pahvilaatikkolasagne/DSC36849-245px.jpg
   thumb:
 ---
 
@@ -15,14 +15,14 @@ As you can see in last the picture, Miki once took a shortcut and knocked the bo
 
 ---
 
-[![](https://lh3.googleusercontent.com/Zu459pwbiBqXltCeBOvWcCmOLo6Y07nGbiJeWpXPeYA=w800)](https://lh3.googleusercontent.com/Zu459pwbiBqXltCeBOvWcCmOLo6Y07nGbiJeWpXPeYA=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABLx7rqwYxe-67O5T01idOKa/aktivointi/pahvilaatikkolasagne/DSC36736-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA5CDmltdzOvnf-nrEY_dUra/aktivointi/pahvilaatikkolasagne/DSC36736.jpg)
 
-[![](https://lh3.googleusercontent.com/nI6bY2axhT5WPIPGpWvx-8VqzOgHQQjho6s0UBvFDvk=w800)](https://lh3.googleusercontent.com/nI6bY2axhT5WPIPGpWvx-8VqzOgHQQjho6s0UBvFDvk=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB15QFbMJJ8k04_bW2C82Toa/aktivointi/pahvilaatikkolasagne/DSC36849-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADq7b2kfNROdmdm-QSGXBuia/aktivointi/pahvilaatikkolasagne/DSC36849.jpg)
 
-[![](https://lh3.googleusercontent.com/C_8PdjS0kxr0S8QgYAS734wLbKsKkbncysATw1Pv1lM=w800)](https://lh3.googleusercontent.com/C_8PdjS0kxr0S8QgYAS734wLbKsKkbncysATw1Pv1lM=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACP21-9LQL8HKDSNF37AmBWa/aktivointi/pahvilaatikkolasagne/DSC36852-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB2WJt_RQ3Z-wlHa-u43GSja/aktivointi/pahvilaatikkolasagne/DSC36852.jpg)
 
-[![](https://lh3.googleusercontent.com/7_R6IJHnKVngMOlrf747dDl6USMgYUyk_Z8UYZRyQ0s=w800)](https://lh3.googleusercontent.com/7_R6IJHnKVngMOlrf747dDl6USMgYUyk_Z8UYZRyQ0s=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACDp70W_5mfvB7aaPV8OvUCa/aktivointi/pahvilaatikkolasagne/DSC36870-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB19GmIWyWyCX6ixc_G-hZpa/aktivointi/pahvilaatikkolasagne/DSC36870.jpg)
 
-[![](https://lh3.googleusercontent.com/Mmh-6YFP0M2qVEHSdV1f2KD003jKtwCm7_ty-ZqWqGE=w800)](https://lh3.googleusercontent.com/Mmh-6YFP0M2qVEHSdV1f2KD003jKtwCm7_ty-ZqWqGE=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADPJkY8FBIwtWnDkMrNZRe-a/aktivointi/pahvilaatikkolasagne/DSC36725-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA1La0s1Zml4Jjnb2GfHdQNa/aktivointi/pahvilaatikkolasagne/DSC36725.jpg)
 
-[![](https://lh3.googleusercontent.com/YVxQ9l_7_xSNSD1DlioNcgFFFoVJNCYV99YyFhp4dGM=w800)](https://lh3.googleusercontent.com/YVxQ9l_7_xSNSD1DlioNcgFFFoVJNCYV99YyFhp4dGM=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAVTodb8z4NXbmpGqqLK7u0a/aktivointi/pahvilaatikkolasagne/DSC25633_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAALBz3DP1MI1ZfWe1ODL4DRa/aktivointi/pahvilaatikkolasagne/DSC25633_2.jpg)

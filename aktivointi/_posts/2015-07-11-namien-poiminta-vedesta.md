@@ -3,7 +3,7 @@ title: "Namien poiminta vedestä"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/MWSrS04dn0ssfZZczTtHKHYNxCmkGD8Ln-1gaWkWXqA=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACm5bXzVo6-EH55syBfrDZWa/aktivointi/namien-poiminta-vedesta/DSC39375-245px.jpg
   thumb:
 ---
 
@@ -17,14 +17,14 @@ Tehtävää voi myös vaikeuttaa laittamalla vatiin tennispalloja tai muita este
 
 ---
 
-[![](https://lh3.googleusercontent.com/QKip0qSSaKbph7gkNUh8mWvovqX6-D9P8aRWAd6z3-Y=w800)](https://lh3.googleusercontent.com/QKip0qSSaKbph7gkNUh8mWvovqX6-D9P8aRWAd6z3-Y=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADMwLr2-niqBjOlW9wCc3OYa/aktivointi/namien-poiminta-vedesta/DSC30685_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADfl4LtSC6scWGXSwcMd6dBa/aktivointi/namien-poiminta-vedesta/DSC30685_2.jpg)
 
-[![](https://lh3.googleusercontent.com/DJGwG4onTXIghaz1Y1qfGrHf6L5bMAm92AA0dbEgkk0=w800)](https://lh3.googleusercontent.com/DJGwG4onTXIghaz1Y1qfGrHf6L5bMAm92AA0dbEgkk0=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACb5pqCHByDtYNKBzCPJvt4a/aktivointi/namien-poiminta-vedesta/DSC30702_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACwA8n-S8616aOy-8nFpO1ba/aktivointi/namien-poiminta-vedesta/DSC30702_2.jpg)
 
-[![](https://lh3.googleusercontent.com/Ur2BV9LlqcjOfBdTPplG89InX9cL2Dg8ijp7gcRLUcc=w800)](https://lh3.googleusercontent.com/Ur2BV9LlqcjOfBdTPplG89InX9cL2Dg8ijp7gcRLUcc=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADRIv5hIr8R1NY80FXtNMkBa/aktivointi/namien-poiminta-vedesta/DSC39375-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABdJXFB6uSwJnfDB0Dlena4a/aktivointi/namien-poiminta-vedesta/DSC39375.jpg)
 
-[![](https://lh3.googleusercontent.com/U_XHLrv-Hma_RMNWNLzQ4ofGA6AvXZ9xUWjnUR_ektA=w800)](https://lh3.googleusercontent.com/U_XHLrv-Hma_RMNWNLzQ4ofGA6AvXZ9xUWjnUR_ektA=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABpk8qKUrNopV9lmPdtI87Va/aktivointi/namien-poiminta-vedesta/DSC39414-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC-yNCUDNddfJGGRGsiVwcLa/aktivointi/namien-poiminta-vedesta/DSC39414.jpg)
 
-[![](https://lh3.googleusercontent.com/wni0P2ky0X89471E2AeUKd-DRCTLtpN41yAs31bDPtU=w800)](https://lh3.googleusercontent.com/wni0P2ky0X89471E2AeUKd-DRCTLtpN41yAs31bDPtU=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADLWWx3uN5Xgc8f7mlmprsMa/aktivointi/namien-poiminta-vedesta/DSC39418-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADvTWwEVb-XOalQvpr70tFYa/aktivointi/namien-poiminta-vedesta/DSC39418.jpg)
 
-[![](https://lh3.googleusercontent.com/Tk5BiCQGl9AXCmtpm_JMHGSod78F7C1U98rh9NCN_0Q=w800)](https://lh3.googleusercontent.com/Tk5BiCQGl9AXCmtpm_JMHGSod78F7C1U98rh9NCN_0Q=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADjXsq-x96AG5ToAzKh73o9a/aktivointi/namien-poiminta-vedesta/DSC39402-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACIM4ut88xLRxZqpBvLZXO_a/aktivointi/namien-poiminta-vedesta/DSC39402.jpg)
