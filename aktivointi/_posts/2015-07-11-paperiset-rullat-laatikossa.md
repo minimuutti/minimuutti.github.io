@@ -3,7 +3,7 @@ title: "Paperiset rullat laatikossa"
 layout: article
 image:
   feature:
-  teaser:https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADNhOLo77gBj0AdhaTNQgVBa/aktivointi/paperiset-rullat-laatikossa/DS04457-245px.jpg
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADNhOLo77gBj0AdhaTNQgVBa/aktivointi/paperiset-rullat-laatikossa/DS04457-245px.jpg
   thumb:
 ---
 
