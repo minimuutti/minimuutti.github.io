@@ -19,7 +19,7 @@ On the first time it took Miki over 10 minutes to find all the kibbles.
 
 ---
 
-laatikossa/DS04462-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABX-8C7DqKSY68uFkFXfMB9a/aktivointi/paperiset-rullat-laatikossa/DS04462.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADrftn0zo3nmUF8Bj-wFojva/aktivointi/paperiset-rullat-laatikossa/DS04462-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABX-8C7DqKSY68uFkFXfMB9a/aktivointi/paperiset-rullat-laatikossa/DS04462.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADyklE8dqsZ75kdxlLFl0Jpa/aktivointi/paperiset-rullat-laatikossa/DS04490-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAhn6MonZk8pncR6RogTydga/aktivointi/paperiset-rullat-laatikossa/DS04490.jpg)
 
