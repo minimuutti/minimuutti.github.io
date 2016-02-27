@@ -3,7 +3,7 @@ title: "Cup doughnut"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/iCHLJSXfB_dxPdqTEvG7FhNm-hQIHs9-lt95hg_SMw4=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAyy0-IboH57RQIhdypoPtLa/aktivointi/mukidonitsi/DSC38826-245px.jpg
   thumb:
 ---
 
@@ -15,22 +15,22 @@ I made this game as cup tower too. I took 6 of these cups and wired them with a 
 
 ---
 
-[![](https://lh3.googleusercontent.com/FcHiSga_H3WOs6vMRjGuXQQYNX4VeRsSAVi6ala2UQE=w800)](https://lh3.googleusercontent.com/FcHiSga_H3WOs6vMRjGuXQQYNX4VeRsSAVi6ala2UQE=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAnAJxbNwuWMp5buprXMAEFa/aktivointi/mukidonitsi/DSC38826-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADkw4xySqkflNTUPlVhO4coa/aktivointi/mukidonitsi/DSC38826.jpg)
 
-[![](https://lh3.googleusercontent.com/7MD9JBytigU6wQRmGWroIAJzHdTsScuF7kgktXfwn_8=w800)](https://lh3.googleusercontent.com/7MD9JBytigU6wQRmGWroIAJzHdTsScuF7kgktXfwn_8=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABgPsA9Enl33EQgtHKuvZOIa/aktivointi/mukidonitsi/DSC38828-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAX0d2p5rotULtHYwC27Ifoa/aktivointi/mukidonitsi/DSC38828.jpg)
 
-[![](https://lh3.googleusercontent.com/ZSq_O3J26zRv8ntX_pnAFDIyTjFDJ51s_Uk-_ROK3hM=w800)](https://lh3.googleusercontent.com/ZSq_O3J26zRv8ntX_pnAFDIyTjFDJ51s_Uk-_ROK3hM=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADHqE2nJqcjNyKMOY1Jml5xa/aktivointi/mukidonitsi/DSC38847-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJfP9BSmsGiv0liXSmr982a/aktivointi/mukidonitsi/DSC38847.jpg)
 
-[![](https://lh3.googleusercontent.com/6oHtdyfe8Pz0XtzJVVZw7Ieqah1_eL3iBt_is6to-NU=w800)](https://lh3.googleusercontent.com/6oHtdyfe8Pz0XtzJVVZw7Ieqah1_eL3iBt_is6to-NU=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABZsCVRRmrgFQb_YnLvgShPa/aktivointi/mukidonitsi/DSC38923-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABpuKZXcaqCKILZGlRLMS2ma/aktivointi/mukidonitsi/DSC38923.jpg)
 
-[![](https://lh3.googleusercontent.com/kv3FK9ZmfBqjMygSAFXLtKn-qZE-z6G4UvlpEYrcMPw=w800)](https://lh3.googleusercontent.com/kv3FK9ZmfBqjMygSAFXLtKn-qZE-z6G4UvlpEYrcMPw=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABnFonhbwrAUTm5RX1LmNmIa/aktivointi/mukidonitsi/DSC38964-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA15K1MrbXYN81QKrGOo0PWa/aktivointi/mukidonitsi/DSC38964.jpg)
 
-[![](https://lh3.googleusercontent.com/e11NxH4tPYFNfFJyInhKTv0n7ryNWtnxVKjdO-QjvUg=w800)](https://lh3.googleusercontent.com/e11NxH4tPYFNfFJyInhKTv0n7ryNWtnxVKjdO-QjvUg=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACsKyV_HsQ1LQxCIGjBNaD1a/aktivointi/mukidonitsi/DSC39079-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAbvu0Lf5OYZ-3W6dhlVTv8a/aktivointi/mukidonitsi/DSC39079.jpg)
 
-[![](https://lh3.googleusercontent.com/cTAaWa87J_OGbrE_AkbsF-S6X1TTNustssSuhB3HaCs=w800)](https://lh3.googleusercontent.com/cTAaWa87J_OGbrE_AkbsF-S6X1TTNustssSuhB3HaCs=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADyv5xEO-99XWRaSO9LVw3Oa/aktivointi/mukidonitsi/DSC39125-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABUIjyL0JzTQ3DVLZbKeO9Ea/aktivointi/mukidonitsi/DSC39125.jpg)
 
-[![](https://lh3.googleusercontent.com/qANSGvHAQboYxaxeVlt_JvBrlt9FRYhM6HACLuaKO9I=w800)](https://lh3.googleusercontent.com/qANSGvHAQboYxaxeVlt_JvBrlt9FRYhM6HACLuaKO9I=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACp-b82XqSVKk-0-qvOzSYCa/aktivointi/mukidonitsi/DSC40762-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAACTrG7BxWip5YvhzW9bDPSa/aktivointi/mukidonitsi/DSC40762.jpg)
 
-[![](https://lh3.googleusercontent.com/4EP3Z4XTFuKt3u_UONtwu3sgzK9zCf9c4o85K5n7zs0=w800)](https://lh3.googleusercontent.com/4EP3Z4XTFuKt3u_UONtwu3sgzK9zCf9c4o85K5n7zs0=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABb6WEz9jPXjxZd-EXBaHHla/aktivointi/mukidonitsi/DSC40773-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAF-64RSgH90ib19vGEfOjga/aktivointi/mukidonitsi/DSC40773.jpg)
 
-[![](https://lh3.googleusercontent.com/RgV43T1HPJjCRD_CqJUZbpeJuws-XamgUFGonDwRO_s=w800)](https://lh3.googleusercontent.com/RgV43T1HPJjCRD_CqJUZbpeJuws-XamgUFGonDwRO_s=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACIWr5UH31vyEP7egkK3asja/aktivointi/mukidonitsi/DSC40815-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACwsFlXIjl1-BfpZiaWET5Ia/aktivointi/mukidonitsi/DSC40815.jpg)
