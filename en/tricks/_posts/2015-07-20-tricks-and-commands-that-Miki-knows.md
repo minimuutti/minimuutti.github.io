@@ -11,24 +11,24 @@ image:
 
 * istu / sit (gets up only with permission)
 
-![](https://lh3.googleusercontent.com/l77cdyZg61vDEDKe99Tb0-VmuW0Ch4o7OrB6lMBRpIg=w245)
-![](https://lh3.googleusercontent.com/GTOz_VG-Dwb4nF348VQLZc1yuGyRRtv-MEk15el2Q1U=w245)
-![](https://lh3.googleusercontent.com/AzkUHM7LzsKgXUjOcNP442wZ_NIcdWIehTH2D_arnGs=w245)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACMq10bmbWT94wRGJQGxUBca/aktivointi/etsinta-useista-laatikoista/DSC29381-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAZS41Om0VssIC0L2CTx5uxa/aktivointi/puhelinluetteloviuhka/DSC25474-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD9OCFb2cM0EQ6ohIOULAY1a/mikin-kuvat/2/IMG23238-245px.jpg)
 
 * maahan / lay down (gets up only with permission)
 
-![](https://lh3.googleusercontent.com/tafJQSVZGMTY8XI-EG0RCjFuCwvYArk4leD-gPRdVvg=w245)
-![](https://lh3.googleusercontent.com/Si8eYmER7LukuQMbzqzaxoZnLGy408aG03PBwvwtsGg=w245)
-![](https://lh3.googleusercontent.com/NRIRHEFQbBDoI-Cu1u7qUnflZH6yt7m7-U_v0abxP6I=w245)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVbkrETT0lhCM3haowH0M_a/temput/1/DSC34514-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADwrfH9aHb5LWz9HDClr3Q-a/temput/2/DSC26604-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACouxq0nJpOyWY8OoSSrI6Ua/temput/1/DSC32616-245px.jpg)
 
 * relaa / relax (lays on his side)
 
-![](https://lh3.googleusercontent.com/80Dpnsu4A45acUuIOXFgCRUZuKt2CSBiR6CJ6RZAXp8=w245)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADO0p0fXlrXLiDCos5Q8r2qa/temput/1/DSC32330-245px.jpg)
 
 * rengas puhkee / lays down with his belly up (like in "flat tire in alaska" –meme)
 
-![](https://lh3.googleusercontent.com/3o272aBNRpW-kZsIKtrosnme7B2ByV8WxYSWn8vv--w=w245)
-![](https://lh3.googleusercontent.com/oq1tKwhGcch9q2Fhc-vjVukxgVhYnX-v3f-dEEpc5wA=w245)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABdnryJR7OctPYroljtuBS6a/temput/1/DSC19462-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAqn9VVQFQ7QgsHOUXpSsZLa/mikin-kuvat/1/DSC22266-245px.jpg)
 
 * nouse / get up (gets up to his feet)
 
