@@ -3,7 +3,7 @@ title: "Tricks and commands that Miki knows"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/teG4-zh9kAK1t7PGxMfbDKzgOdZQtthVxFIwewGa5Gk=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADY5Zrt__Y1oa3ZfRnSbxjea/temput/1/DSC29513-245px.jpg
   thumb:
 ---
 
@@ -69,7 +69,7 @@ image:
 ![](https://lh3.googleusercontent.com/V0byZAkne8I_OPPix1OibOw17jcbSNgKt4uConJmhHw=w245)
 ![](https://lh3.googleusercontent.com/ondAo46IzTo6I3RFE_7Vf7lHyZVgj9pqOCsZ2YTKO1Q=w245)
 ![](https://lh3.googleusercontent.com/gXHxbKCyeYj6Dxu8AUMVEFK8R9VirI8yRXJAFeUHmro=w245)
-[![](https://lh3.googleusercontent.com/T3tMkxkwXkSkbAbvgayHNcqH_h5S0nxRxocFrqN7phmE7Jkt7cOIhp4zTf48kHf2MgkktoRuxcwztojASPBzTZdfiz_hcz4AonjyVGABuHBJ7JuwUuQCnCQhPlTx6kLLH4dxreKMusImCBU6VObdF_lV53tMJSOwK37lP5b4EsD-RB3TJEkZPUhA0t2A6ALXUVhg_7aQBQ_oa7S8LDcOgKtAqeIjhF39DIyv_dUpUz58mMz8DNfHyS2ngzbomIj9bhbbYOerxuglFGdkJ88x_ykCLix-8G8bHIHzoKDyfFKTlH7joxOtE5jvX-rj5WgCsFTEjYieJRqziz9fLt16y6EkJ4xwti2XzTKZDgM04IVQ9u0fCv2gNm5Gk1sw91t06HQMk_BC7TC_Od-EoXqggNWFZgMP6HSkpvyHcQ2X9jp_OyGK_71-KGR837EK3LFPLmwNtwd-yhRsnOotJqAfeNra1WtIHUxx_tKDtl-WUwoJn5-Ei4CH1B8ofTwIn32X2QDqCHRUsriUfjPzJd9CADUqCB3nJZStQLhN7D6ZGCU=w245)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADLRrYrtKiI7q07cKKQ5Lhea/temput/1/DSC41885%20%282%29-245px.jpg)
 ![](https://lh3.googleusercontent.com/8B9vXzYb9Okt-fZm62ts_cQStSbpS3wqoleUio4bXlw=w245)
 
 * etsi /search
@@ -122,8 +122,8 @@ image:
 * väistä / give way
 * ohi / leave it
 
-![](https://lh3.googleusercontent.com/NHioSWfnQItgXj_CfnHSurOI4gXDB7SWYEeGg5FQPCVh6Kr4tGox1ci3CW0ICNVDOXP4zi-WydCHnrVwnlKzD4QlJ7UI5mh_OsDe9n5yuk2tPmWNnTf9SkvPG9AFMWjUP91vvwSIIAw3IxDllxXO6JCfATnGEK9MRB_TfXDQbG-JPitgcuz-_KnON3tizyIHRDDv3mc1wmfp04YOcy5I7NIUsVVEPwlEesGu5C9OCCwvI7rSRs8KS4-64AN65bnvXoag9A_YBib6QgNpi7Md7O2KxF2T-44hc1mi3RU0-Ip2vJCxy49iHt9NjUj4Gcw1qxsPwLP2w0QhKiISdF_l4S9ahExiKuycpBd4ZxnoYMFAYsi2JU2_2UfnDuU9KIipE6HKXJi33YdQBPcmRVikGCcZ9EJnIDCfo8X7t4ZAtHEzImPhFXKhJ_RjMDvkDe33nI84ep6uCTYVZ-adFUAmkV6G2pIw5K8rlGdJlCSZVzEtBltTLMAiX6ko68Mw3tX5lhkRlC5nRzy12TplnK2kV3f-agXSekmg2PF9M-slA9U=w245)
-![](https://lh3.googleusercontent.com/GSgsJ6GD6AhvaC2Zl9CXbUf6yToU_XIoqmObJZLmoEVjiF52MskX4gDzr43RtNidkSOUCpr_XE7avjQaQVvqB0XF3qdcuQn2bnESPVZBqMC5hA4IUyFsfp8JU3-LyYs4mKvk4CidMo0V4E2zWOnmuczs-k-GiX7wEzftNzse0l1JyF7cvDJUR8RRrThh2X5lovqvMR_chlS7t_iPpfilJrPaYxMQMWWUxGkBYADVFvq1hE-_HOmtdlmR9YZuLqwgJcHcX-73WN13OLRo-y68rllxvESdmPAETwS4oBi7KvtTFqX0ZY1bEkQoQBHnAoc1rvHbs9L6w8T7lyVqV_WXkE84KrY7zjGQAC5a7Fa11fQ-CjDzaEWxhqtbrg9Y10RdPPZzhHpfD8oHEPHetB6VT53c3guMt2o-D55puniIiEOK8tDIKFEy2R-rpqIbhSxuxvLbMIunj1tNJVCTzi7wvVoyYnUWYifROl7bNMdnYJlUrrM2ncWMm5d9i0mmZrxY9CJ1BvoAJ0oilmD5qH066v7UUk2K3olcOE56wSx7fJ4=w245)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAtUGLgrOLVwc8Any7eX48ua/temput/1/DSC53568-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAH6lWEbgIQ42a0pMuHeLY-a/temput/1/DSC53562-245px.jpg)
 
 * sivulle / come to the right side
 * seis / stop
@@ -148,7 +148,7 @@ image:
 
 * Leo / bring Kong Leo
 
-![](https://lh3.googleusercontent.com/sqAZ7K7SajO0wgQaLXi3hdtSilE1PYod0Wkz5ZXgWXPjRScK9HwjOCJR-nEImfD5u9by5HztsxZNn6NrSuYl8uQN1P3Rzm78ag0lbltzY1bYGN_Ez8eBYN2Yes3mnHeGHlGeOiD91OzohvcghAY9pdCbwiQpEKacXXzMpd-r1qVPPAuTB-Lpl51oTpgFJO8vBy70NFX9wAFUWqqnnu4__dKwHNqg1jHvzHLXaO9baKkafZqR2MrBr37kEzwgf83n6qKcvLrrZsZ7f5O9fryf7LlEFMEflShP3CGxuKtMrpm7FwgMv4wEsOE7XehXlX1yeV5Eej-lnQjnjP9T-XV-LxmWfgEGnqyoJY-H2E71pLPNbG4zp8dHpjxSHlGLZxL9Gk-xwBGq23Q4MmTXbUBgRxVu9DQuse4W8v_uMvfNBPCtl08G2B_HaopdnFzwEK8uD-SFXsWbo0h0gQ0sM7g2oDicGA4DeTx8bQSiJOFHEu5UX-JfjUxzYyL4TgkIORb1E-IIKW9HY6YfAzbgmNlllkPsR8-aRRli_WWWo2nCR2wSElmmwtXQsH6R9wRu0ospIIe-=w245)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAZwZmM8bWKdtJMTVkiWjaca/temput/1/DSC59046-245px.jpg)
 
 * Kongi / bring the Kong
 
