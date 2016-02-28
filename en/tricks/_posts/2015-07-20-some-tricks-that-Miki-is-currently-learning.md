@@ -3,7 +3,7 @@ title: "Some tricks that Miki is currently learning"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/z1BOBLkemOnUHyPPTwhZiidJJsLEJ6XOOltCZjV1toU=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAfZ1Hipii2wuEd4Tr7JdAla/temput/1/DSC27270-245px.jpg
   thumb:
 ---
 
@@ -11,36 +11,36 @@ image:
 
 * seiso / stand
 
-![](https://lh3.googleusercontent.com/83GXrS90Xpz1VkNpW5X0XaxpiK4KKSsN6SpT5uZj5AA=w245)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADr7HDUDT_BYer91-Lo95Hra/temput/2/DSC32837-245px.jpg)
 
 * nami nenällä / balance treat on the nose
 
-![](https://lh3.googleusercontent.com/1ag025tJip4yM6pieZJ5Lltmemz3-jd3SJlvUy6ccWc=w245)
-![](https://lh3.googleusercontent.com/LD0JKrXYSPCQ5DlbrUBeKRPqjkstFIbi_jJ5L3ZWWpg=w245)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAm03dan5nJ3b23nSyKeeGCa/temput/1/DSC32591-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADC5UyPF6A_bkUIH5FGQXG9a/temput/1/DSC29359-245px.jpg)
 
 * sheikkaa / shakes his fur
 
-![](https://lh3.googleusercontent.com/0rYhiplcnHz_8Kyn9ixUlibz3TVvKr6wFn6UTOCeZAs=w245)
-![](https://lh3.googleusercontent.com/5MH7mRDFbu9Pibh8d6PDYXFvtMDgYtXmvbGTKA-jI8o=w245)
-![](https://lh3.googleusercontent.com/u4dWPmxHLe2R33_VEYt0cJMEnXZM0YJMLFTFgHxDlBU=w245)
-![](https://lh3.googleusercontent.com/W4cOFyviw5Hxr66sdHlRmNn2M_w4WswxqaAiy12PuRY=w245)
-![](https://lh3.googleusercontent.com/Ut4J4Iu6zb4hTKOkB8bC77slQfONhviEwEFP6QORAxE=w245)
-![](https://lh3.googleusercontent.com/pCHmPk47hBz_tatTG6v26BJKWccnUqBhUuTQl5rsJLw=w245)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACRCdhHZue8vIoArkTpirrUa/temput/2/IMG26067-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADUdInNPhecSxJxMj3eYUYBa/temput/2/IMG_1432-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABBE9xtJU2SjtAh91tDxkcua/temput/2/IMG22497-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADHdGTIR4SjjzPxS3QtPp7Oa/temput/2/DSC12608-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC1CQ1NHMw3l76jf8Wu9bLHa/temput/2/IMG24175-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAArRHKImrCZAJkZUvve5OHaa/temput/2/DSC05677-245px.jpg)
 
 * luuppi / jump through a hulahoop
 * vilkuta / wave with left paw
 * suoraan / go straight (don't turn)
 * kärppä / weasel (licks his lips)
 
-![](https://lh3.googleusercontent.com/QRB_ahmg6cvtiIJHyuU3wEJfM0aDHIy4Xl6RidYoi94=w245)
-![](https://lh3.googleusercontent.com/Vfi-fczhsv2WwImBNzidi_iGTzoqjTNOybl3gM7PYd0=w222)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACUaB0PB3hbl_VnLdwgJGrVa/temput/1/DSC26703-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWazN5N-fOxzsR4KcAi943a/temput/1/karppa-245px.jpg)
 
 * siivoa / clean up (cleans up his toys into a basket or a basin)
 
-![](https://lh3.googleusercontent.com/LRjutbpFokXv1T4ta4gyuwharS25cfZCdM0DbuM4IbI=w245)
-![](https://lh3.googleusercontent.com/TBSo3LQvM9hLKqn21RtZ7Lbw4_2hj1CcPjW9PI5BtD4=w245)
-![](https://lh3.googleusercontent.com/o7MlqVfKG0J-Q3g0GynC1OqoeDL7AIwKSNkrTulcS8E=w245)
-![](https://lh3.googleusercontent.com/CW6fv19NFWYpPmZ9iP-ngcE5_IZWciL1Miy6VDvUJO8=w245)
-![](https://lh3.googleusercontent.com/VusyIIDvJuBYvpf1ClXuJQzFDVtKSpnZBCqWQWn1QsU=w245)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACHGJwvQ99r6xW9KElk7kdra/temput/1/DSC41729-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACY3ubMeDsBZKQDgD3vL6nTa/temput/1/DSC41730-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAHOy252upeUWvtIu2Nxlcua/temput/1/DSC41731-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAMV6r7XPachx0yzEYy8wEJa/temput/1/DSC41823-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_naHPy5jVIyH9fEmT5QDqa/temput/1/DSC41849-245px.jpg)
 
 * takatassut kosketusalustalle / back paws on touchpad

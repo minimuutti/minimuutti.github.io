@@ -3,7 +3,7 @@ title: "Some of the tricks that I’ll teach to Miki in the future"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/mKdR6-U0Ob5ocDNMG6cFi4bRocYUQ41a3jjkxVlfgFo=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC_aYqP5lbGWgpXIFjjVozQa/temput/1/DSC30147-245px.jpg
   thumb:
 ---
 
@@ -12,9 +12,9 @@ image:
 * stack the rings in the pole
 * roll over
 
-![](https://lh3.googleusercontent.com/34tHDBuSTZ6WlATCZ9guw6scml_T2HVCecvvfU7bIEE=w245)
-![](https://lh3.googleusercontent.com/lEPxTC6wS760DhZWT_RBVQBaS0CJOk3oYygxenFnbp8=w245)
-![](https://lh3.googleusercontent.com/MA9ohq_SKEBIbe31t-sKsH9ARirr7I-XOL2Xq8sjgao=w245)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACBVGu3AeNXt6gO5RWMLSHEa/temput/2/DSC08428-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABsX-LsaoLpbfbd-56ndAHya/temput/2/DSC08426-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC7yYt5QRyP9rJlG9UtP7Oda/temput/2/DSC08424-245px.jpg)
 
 * spin counterclockwise
 * stay on the mat or in his bed
@@ -39,9 +39,9 @@ image:
 * shakes his head like "no"
 * dive into snow or water
 
-![](https://lh3.googleusercontent.com/jq57m6qJQgh7BaT9kQPL8r5jRvm_926kREZZ_JWQT5c=w245)
-![](https://lh3.googleusercontent.com/dblPUtR8DrhRCyJYr-c22yh80ZNVgYyecrcGjNm-WSk=w245)
-![](https://lh3.googleusercontent.com/T2CKAtYE29ttdZG0BO7zvCqLAFI5XhlsuT2XYpl5hC4=w245)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABC_DqwqBF13eQrQLq4fYc1a/temput/2/IMG19686-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD-bVLh4ZLu7Srui7o3b-cca/temput/2/DSC22512-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAByzw4ZtSeBEWKOkG9OsMBAa/temput/2/IMG14954-245px.jpg)
 
 * skateboarding
 * slalom between the sticks in agility
