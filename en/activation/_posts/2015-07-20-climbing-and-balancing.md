@@ -3,7 +3,7 @@ title: "Climbing and balancing"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/pMINujXvW11_sAJiaYsyd-6QsgEXe6H_S8Q9VbOeYCo=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACybMg6tPJ9ywdWPl5L18_Na/aktivointi/kiipeaminen-ja-tasapainoilu/DSC29281-245px.jpg
   thumb:
 ---
 
@@ -15,16 +15,16 @@ You always need to make sure that the thing you require your dog to jump on or t
 
 ---
 
-[![](https://lh3.googleusercontent.com/JWc2OryEYaIpA6Z11Qp4CWgXIQ8725T6ZMayOsjw4D4=w800)](https://lh3.googleusercontent.com/JWc2OryEYaIpA6Z11Qp4CWgXIQ8725T6ZMayOsjw4D4=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADkthpuEgZpRJQew7UJJsLNa/aktivointi/kiipeaminen-ja-tasapainoilu/DSC29281_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJOWHqAInkj0r1KvIwbzZba/aktivointi/kiipeaminen-ja-tasapainoilu/DSC29281_2.jpg)
 
-[![](https://lh3.googleusercontent.com/HYsHImNancgMEwdMBClEGmxiEAE6SE-BPKmhR9MjNkk=w800)](https://lh3.googleusercontent.com/HYsHImNancgMEwdMBClEGmxiEAE6SE-BPKmhR9MjNkk=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACD83nQgqlfRBCD19ZQ-0YHa/aktivointi/kiipeaminen-ja-tasapainoilu/DSC29291_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC0zBAKvflBEcZ-1IRMaOPGa/aktivointi/kiipeaminen-ja-tasapainoilu/DSC29291_2.jpg)
 
-[![](https://lh3.googleusercontent.com/RFA7b304T1131j_VmTc3u92Osk8WBoFMg9KmgFTA7EI=w800)](https://lh3.googleusercontent.com/RFA7b304T1131j_VmTc3u92Osk8WBoFMg9KmgFTA7EI=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACHCdjhzUZioTDTaTGnBRCta/aktivointi/kiipeaminen-ja-tasapainoilu/DSC07458_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAGCvC6dA6BVnYL2zFDmewYa/aktivointi/kiipeaminen-ja-tasapainoilu/DSC07458_2.jpg)
 
-[![](https://lh3.googleusercontent.com/QurtI7EcQdqAf3Qene95pfPjYRkhGdZTSiMZoRVRZXI=w800)](https://lh3.googleusercontent.com/QurtI7EcQdqAf3Qene95pfPjYRkhGdZTSiMZoRVRZXI=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACIi6kVjNmAxE3yThPBuMYea/aktivointi/kiipeaminen-ja-tasapainoilu/DSC02974_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC5irjS85m6Iwotr2vcMt73a/aktivointi/kiipeaminen-ja-tasapainoilu/DSC02974_2.jpg)
 
-[![](https://lh3.googleusercontent.com/3Hfeq8QZhxqF4jSEYBsAxutzMPfxKX9LSPXpXOoXLGQ=w800)](https://lh3.googleusercontent.com/3Hfeq8QZhxqF4jSEYBsAxutzMPfxKX9LSPXpXOoXLGQ=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADnEQ3zYc4-O8ZH5u4C5XM7a/aktivointi/kiipeaminen-ja-tasapainoilu/DSC13827_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADl2i0B6NNvUSqWXqP6s62ha/aktivointi/kiipeaminen-ja-tasapainoilu/DSC13827_2.jpg)
 
-[![](https://lh3.googleusercontent.com/TIb2ANG8of9tMAmXYc7hb0z-DeR5_EJiErl0t3bKDLs=w800)](https://lh3.googleusercontent.com/TIb2ANG8of9tMAmXYc7hb0z-DeR5_EJiErl0t3bKDLs=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACfvEAcSStlYaoDcrAsc16ja/aktivointi/kiipeaminen-ja-tasapainoilu/DSC25473_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADMCIZ4JomFnTnLfZuIzL9ma/aktivointi/kiipeaminen-ja-tasapainoilu/DSC25473_2.jpg)
 
-[![](https://lh3.googleusercontent.com/k3YMLzEuum1LEXfRmjIMi1uDHj3ebumQsSkBdMbl-xA=w800)](https://lh3.googleusercontent.com/k3YMLzEuum1LEXfRmjIMi1uDHj3ebumQsSkBdMbl-xA=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABH7UNVkVusBDuiaK7ehlCca/aktivointi/kiipeaminen-ja-tasapainoilu/DSC23866_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAm7vwB6oO3CouzQSUIog_Wa/aktivointi/kiipeaminen-ja-tasapainoilu/DSC23866_2.jpg)

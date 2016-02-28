@@ -3,7 +3,7 @@ title: "Walking on different surfaces"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/ejiLLUSQtdFtI0ZF98UqDxnjckW_S9NNvXx-P3ixS7I=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABZVuXpWCHVzqnsLPVrBHWxa/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29607-245px.jpg
   thumb:
 ---
 
@@ -15,14 +15,14 @@ And we did use this box as a fun tunnel as well.
 
 ---
 
-[![](https://lh3.googleusercontent.com/DueoSBiRiYBZf4xdr-9DsoFgADDRoX94crD3HMUkvN4=w800)](https://lh3.googleusercontent.com/DueoSBiRiYBZf4xdr-9DsoFgADDRoX94crD3HMUkvN4=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADxrObUSelcm5YAR1YtzuGga/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29605_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-zP_R9hiP6cTwbzCRmA_la/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29605_2.jpg)
 
-[![](https://lh3.googleusercontent.com/lcAJtvf5sZYtGS334JYy847L6GAIlHiUcjGlAAvwWV0=w800)](https://lh3.googleusercontent.com/lcAJtvf5sZYtGS334JYy847L6GAIlHiUcjGlAAvwWV0=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACvlErR9ZY84StRxTvJ8rfya/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29601_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABFUF4repjCwKH6eH_BQTbaa/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29601_2.jpg)
 
-[![](https://lh3.googleusercontent.com/iExK21utT1CbsKD72UCR0dHtHRdTV4BgdvOSNirKy5Y=w800)](https://lh3.googleusercontent.com/iExK21utT1CbsKD72UCR0dHtHRdTV4BgdvOSNirKy5Y=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABV8Qk54QN3am92jf7U5o9Sa/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29607_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAASE8CKJNNkBhkfUWBLDhhsa/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29607_2.jpg)
 
-[![](https://lh3.googleusercontent.com/91xcIdhdRgsAGlxitocmDf_AVfE0Q20xkNdSIlGGG6M=w800)](https://lh3.googleusercontent.com/91xcIdhdRgsAGlxitocmDf_AVfE0Q20xkNdSIlGGG6M=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABoxyfKvHrMCBGhFp2sCRZ4a/temput/1/IMG29506_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA8OnPGVk6yyMip4y4bRqE2a/temput/1/IMG29506_2.jpg)
 
-[![](https://lh3.googleusercontent.com/B_8bMXU9O6VHqkyZKiF1_2yit4Cgd5ECTJlwL9b2kW8=w800)](https://lh3.googleusercontent.com/B_8bMXU9O6VHqkyZKiF1_2yit4Cgd5ECTJlwL9b2kW8=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADC1td8ArqWxTFWIUdLVop3a/aktivointi/kaveleminen-uusilla-pinnoilla/DSC32295-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD-8fhwFgCgtF7xwQTWgrAva/aktivointi/kaveleminen-uusilla-pinnoilla/DSC32295.jpg)
 
-[![](https://lh3.googleusercontent.com/EM6_uXPdi0fHfF2qSRZTnVjq72HG8lIeLmT1FiuWpt4=w800)](https://lh3.googleusercontent.com/EM6_uXPdi0fHfF2qSRZTnVjq72HG8lIeLmT1FiuWpt4=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADvlftgMUjJfq9bHyIqaaVPa/aktivointi/kaveleminen-uusilla-pinnoilla/DSC38680-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACkoAucd31xPUabxh9mG-tra/aktivointi/kaveleminen-uusilla-pinnoilla/DSC38680.jpg)

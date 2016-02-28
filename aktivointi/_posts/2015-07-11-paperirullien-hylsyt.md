@@ -132,3 +132,15 @@ Mikiltä kesti noin 6 minuuttia saada kaikki namit ulos.
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAOGnCqQFWHirzaZOMWV4vma/aktivointi/paperirullien-hylsyt/DS03565-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADlo6fr4273UsszEvjaClW6a/aktivointi/paperirullien-hylsyt/DS03565.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADlm2FNW02ORI6kfjtTOD70a/aktivointi/paperirullien-hylsyt/DS03609-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAhHRQN7X47ba5u-PAUjoxUa/aktivointi/paperirullien-hylsyt/DS03609.jpg)
+
+#### Foliorullan hylsy
+
+Leikkasin foliorullan hylsystä noin 15 sentin mittaisen pätkän. Taitoin yhden ankkafileen ja yhden kanafileen keskeltä puoliksi, V kirjaimen malliseksi. Sitten laitoin nämä päällekkäin niin, että tahmea ankkafile jäi päälimmäiseksi ja kanafile meni sisimmäiseksi ja tungin nämä tuonne hylsyn keskelle.
+
+Mikiltä kesti noin 5 minuuttia saada ne herkut ulos sieltä.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAEueF5SzAwqh4ELDWrQ56ba/aktivointi/paperirullien-hylsyt/DSC41076-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAsqjrZNyZa0sLMzwIz8168a/aktivointi/paperirullien-hylsyt/DSC41076.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD6vVo893tHBY0ktTUrPxFCa/aktivointi/paperirullien-hylsyt/DSC41122-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACCL9UET4ZyQpuMQmbS4J6sa/aktivointi/paperirullien-hylsyt/DSC41122.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABH2wdIRJrgTyFmGyvSbqKUa/aktivointi/paperirullien-hylsyt/DSC41270-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC5GOLE6I5YMz9QefRuKOgna/aktivointi/paperirullien-hylsyt/DSC41270.jpg)

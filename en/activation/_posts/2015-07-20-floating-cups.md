@@ -3,7 +3,7 @@ title: "Floating cups"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/pHnHjTLQyTh2wwc12k4HpGO47JARCpFHHEwvFq2L8fs=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACNx1tlu1OmiSHesLi-PbiHa/aktivointi/kelluvat-kupit/DSC39318-245px.jpg
   thumb:
 ---
 
@@ -15,12 +15,12 @@ It took Miki about two minutes to complete this task.
 
 ---
 
-[![](https://lh3.googleusercontent.com/ViBzK0EOn_cHhoAPHyj-z9nqsCB-suxB6_1QOCgoZ84=w800)](https://lh3.googleusercontent.com/ViBzK0EOn_cHhoAPHyj-z9nqsCB-suxB6_1QOCgoZ84=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAgDW_B_GQIwufrotBMDcQMa/aktivointi/kelluvat-kupit/DSC39307-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABmgbC-tys5eo3J4BzX00I8a/aktivointi/kelluvat-kupit/DSC39307.jpg)
 
-[![](https://lh3.googleusercontent.com/6V5lSkCMy8F97S76u0hKez-SYuwyPoFP4L0Rh3EeIQI=w800)](https://lh3.googleusercontent.com/6V5lSkCMy8F97S76u0hKez-SYuwyPoFP4L0Rh3EeIQI=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADiqYAd2LWZhDcI7O3SxyBla/aktivointi/kelluvat-kupit/DSC39318-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABBYUkFkXpxbBigGsS_FV1Va/aktivointi/kelluvat-kupit/DSC39318.jpg)
 
-[![](https://lh3.googleusercontent.com/MTx7uJeoya5NaHX4Mtrw0JtqCyYb1Ub3zbpWKiuoX4Q=w800)](https://lh3.googleusercontent.com/MTx7uJeoya5NaHX4Mtrw0JtqCyYb1Ub3zbpWKiuoX4Q=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADOELghst8O_lyN_pNbqYida/aktivointi/kelluvat-kupit/DSC39312-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC38-4woSw0x47MuU6GXY7Ha/aktivointi/kelluvat-kupit/DSC39312.jpg)
 
-[![](https://lh3.googleusercontent.com/aWyeOqe0L5qp1jVXvWN93XdrEqKbKEy8kMEKK0SsGKI=w800)](https://lh3.googleusercontent.com/aWyeOqe0L5qp1jVXvWN93XdrEqKbKEy8kMEKK0SsGKI=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADX2sxFa05ZQCav3VgNtf3va/aktivointi/kelluvat-kupit/DSC39344-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADapIrrD14CLxw_LWtXl0fPa/aktivointi/kelluvat-kupit/DSC39344.jpg)
 
-[![](https://lh3.googleusercontent.com/AB3TLll0T8ewXpoZ13wtGuDvJxWVuy-eYy-VlWL_h-4=w800)](https://lh3.googleusercontent.com/AB3TLll0T8ewXpoZ13wtGuDvJxWVuy-eYy-VlWL_h-4=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADL5x0xvAOb88reMbzyHUIXa/aktivointi/kelluvat-kupit/DSC39357-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADjF252HrM26Fj-3vaNTEBLa/aktivointi/kelluvat-kupit/DSC39357.jpg)
