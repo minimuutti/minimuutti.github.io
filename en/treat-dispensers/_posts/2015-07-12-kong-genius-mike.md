@@ -3,7 +3,7 @@ title: "Kong Genius Mike"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/-4vfLKxKrP7bY36Pf9MoyrKtQjCOgByHxnhKYlQYTfM=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABYDpq6qxyQVi4Fr45BnXjba/aktivointilelut/kongit/DSC17019-245px.jpg
   thumb:
 ---
 
@@ -13,10 +13,10 @@ I have also tried some soft treats with this toy, like a slice of ham or a slice
 
 ---
 
-[![](https://lh3.googleusercontent.com/buaH2nn9lMyKVXClKwgaIwRHm5UEAjqLF5hgHWJofW4=w800)](https://lh3.googleusercontent.com/buaH2nn9lMyKVXClKwgaIwRHm5UEAjqLF5hgHWJofW4=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAgQuzdM9hISljyyDxFx3Rza/aktivointilelut/kongit/DSC35180-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABLv_onqxIrO719METLV2pva/aktivointilelut/kongit/DSC35180.jpg)
 
-[![](https://lh3.googleusercontent.com/Y-Op228VSQQ_BTvy3W3Au0nPLKPqyPCOreA4Zr2qWTA=w800)](https://lh3.googleusercontent.com/Y-Op228VSQQ_BTvy3W3Au0nPLKPqyPCOreA4Zr2qWTA=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADonWyepiCHsvLzcOJLtt0Va/aktivointilelut/kongit/DSC35135-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADd6_BaeRi-ApnB1TEYPbOia/aktivointilelut/kongit/DSC35135.jpg)
 
-[![](https://lh3.googleusercontent.com/Em6hdqtMIyRK29YwtZjaMcjXBQyknQ4_SAuMRN-6bF8=w800)](https://lh3.googleusercontent.com/Em6hdqtMIyRK29YwtZjaMcjXBQyknQ4_SAuMRN-6bF8=ws0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABYkwpjR3_OxLGTwhkXVqiUa/aktivointilelut/kongit/DSC35158-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABPGNIDfAEhypqQotYIzhola/aktivointilelut/kongit/DSC35158.jpg)
 
-[![](https://lh3.googleusercontent.com/7zj0FX1wjk-z_LckN4LPwfI9aG-h3sVwjpgZlYanpHo=w800)](https://lh3.googleusercontent.com/7zj0FX1wjk-z_LckN4LPwfI9aG-h3sVwjpgZlYanpHo=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABTRctrOoOMlNbHFwmlqe6Ea/aktivointilelut/kongit/DSC17019_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAVpU2ixWHP_vn-RDRzr-FFa/aktivointilelut/kongit/DSC17019_2.jpg)

@@ -3,7 +3,7 @@ title: "Kong Quest Wishbone"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/eryX1t_DKIoxWPtDuhfc9GcAIltMIWHma794_vtKffg=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADFxsogjVVx51lOyzFsG9XQa/aktivointilelut/kongit/DSC35072-245px.jpg
   thumb:
 ---
 
@@ -13,12 +13,12 @@ Ensimmäisellä kerralla laitoin tähän leluun keitetyn kivipiiran paloja, kun 
 
 ---
 
-[![](https://lh3.googleusercontent.com/PtLStwzAlpZvhJ2gIo7nYj_dN0OwExS7RexW6j2IOoU=w800)](https://lh3.googleusercontent.com/PtLStwzAlpZvhJ2gIo7nYj_dN0OwExS7RexW6j2IOoU=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACFOIXF2rxtor8hynw1WWwNa/aktivointilelut/kongit/DSC34912-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACUo0NUZHIeoB3CoIk1xqLLa/aktivointilelut/kongit/DSC34912.jpg)
 
-[![](https://lh3.googleusercontent.com/gIQKriU9SDQMBoDuXVHSz_nbP4HLErx8y__xGVwItBA=w800)](https://lh3.googleusercontent.com/gIQKriU9SDQMBoDuXVHSz_nbP4HLErx8y__xGVwItBA=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWoLYmpldKCzoKFmr5iKgKa/aktivointilelut/kongit/DSC34977-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACFZb9OyLPoghu2EwpgFerDa/aktivointilelut/kongit/DSC34977.jpg)
 
-[![](https://lh3.googleusercontent.com/1-UGwTuGg7Ei_cIEwXCu0iItfDkS5Z_UAOPg00ESa-8=w800)](https://lh3.googleusercontent.com/1-UGwTuGg7Ei_cIEwXCu0iItfDkS5Z_UAOPg00ESa-8=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAO3-OS-l1pQQVs4S6O-Fbma/aktivointilelut/kongit/DSC35072-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADcGPCASU_m-TT6NQ0vqOa0a/aktivointilelut/kongit/DSC35072.jpg)
 
-[![](https://lh3.googleusercontent.com/TsRh1mLPIOKtPdanByNeLR22YiXkHS38ifU10IXL8NI=w800)](https://lh3.googleusercontent.com/TsRh1mLPIOKtPdanByNeLR22YiXkHS38ifU10IXL8NI=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAg0jMwxjIu71aSfyVb7Gasa/aktivointilelut/kongit/DSC35101-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5JX1Z7Ovz6N3tASJpRtCXa/aktivointilelut/kongit/DSC35101.jpg)
 
-[![](https://lh3.googleusercontent.com/NxrV3EnDb4ZaODiH0FIe4lDJF4Gcm_Cjp6ukOhDzMNg=w800)](https://lh3.googleusercontent.com/NxrV3EnDb4ZaODiH0FIe4lDJF4Gcm_Cjp6ukOhDzMNg=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAvJrBLyE3cWGQr9pmam4M3a/aktivointilelut/kongit/DSC25949_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC3mAwfCOGqcQXJbKJ79lf3a/aktivointilelut/kongit/DSC25949_2.jpg)

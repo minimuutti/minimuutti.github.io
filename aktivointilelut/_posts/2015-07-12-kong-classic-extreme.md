@@ -3,7 +3,7 @@ title: "Kong Classic Extreme"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/O3vOyNbURU_tl5eE_jF723I1eGBo0h1Fff3_Pqquwhs=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACzvrSVdYBnDKj7SFfTyfA7a/aktivointilelut/kongit/DSC16731-245px.jpg
   thumb:
 ---
 Klassiseen lumiukko [Kongiin](http://clk.tradedoubler.com/click?p(240480)a(2526211)g(21401374)url(https://www.mustijamirri.fi/kong-extreme-c69057-1)) (L kokoinen) laitan yleensä keskeltä puoliksi taitetun (V –kirjaimen mallisen) kuivatun [kanafileesiivun](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/puruliuskat/rocco/171756)) tai samalla lailla taitetun [hevosen vatsalaukkuliuskan](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/hevosenliha/214068)). Kun filee "aukeaa" Kongin sisällä, niin se on yllättävän vaikea saada ulos, kun fileen kummatkin päädyt tunkee Kongin reunan alle piiloon. Tälläisen Kongin tyhjentäminen kestää Mikiltä vaihdellen 2 minuutista 20 minuuttiin. Kerran Kongiin tungetun kanafileen ulossaaminen kesti Mikiltä 4 h 45 min (hih, kerrankin onnistuin runttaamaan sen sinne oikein kunnolla :D ) eikä Mikin into loppunut missään vaiheessa. Mut hei, siellähän oli kanaa!
@@ -18,12 +18,12 @@ Lisäksi kesäisin olen tehnyt Mikille omia koiranjäätelöitä. Laitan joko la
 
 ---
 
-[![](https://lh3.googleusercontent.com/WAdUFGwOhM0n0hwdJjgv3WIcSNQSktjxL1QLBAxkyAk=w800)](https://lh3.googleusercontent.com/WAdUFGwOhM0n0hwdJjgv3WIcSNQSktjxL1QLBAxkyAk=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD177-tPP7Bv2zCFS91_1_da/aktivointilelut/kongit/DSC16731_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADF6PI-JLkAoONYtFslr74da/aktivointilelut/kongit/DSC16731_2.jpg)
 
-[![](https://lh3.googleusercontent.com/FENStIVxez2NGPwup1iEHTN-cSlZNrB4ZcQzjicaAZc=w800)](https://lh3.googleusercontent.com/FENStIVxez2NGPwup1iEHTN-cSlZNrB4ZcQzjicaAZc=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACijOdVL8Lw6PdxutHyU6DZa/aktivointilelut/kongit/DSC19223_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADbkl3kfuZhs-pmx8aq4jxfa/aktivointilelut/kongit/DSC19223_2.jpg)
 
-[![](https://lh3.googleusercontent.com/dxx29RtpzYIbTuyM2l6nBsfZKXRwr06lmdI8HVZnNh4=w800)](https://lh3.googleusercontent.com/dxx29RtpzYIbTuyM2l6nBsfZKXRwr06lmdI8HVZnNh4=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADjXqaP1o2ICuCeiAtCprWca/aktivointilelut/kongit/DSC19253_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAwMQWFwdPu0YMLjEqwmVC6a/aktivointilelut/kongit/DSC19253_2.jpg)
 
-[![](https://lh3.googleusercontent.com/WkluwSZ8mj0tIbXvkw8NLGNFUFqT4aSH2U5j5LT9x7M=w800)](https://lh3.googleusercontent.com/WkluwSZ8mj0tIbXvkw8NLGNFUFqT4aSH2U5j5LT9x7M=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACpnTsdiwZCyQ6ZzHdtR-wRa/aktivointilelut/kongit/DSC14116_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC3IwQozsDOm3fS-BjNzfLWa/aktivointilelut/kongit/DSC14116_2.jpg)
 
-[![](https://lh3.googleusercontent.com/aXGNS1es1WmHKzr_RTwW6NZma5tPH-2f5Oak4ai8a4Q=w800)](https://lh3.googleusercontent.com/aXGNS1es1WmHKzr_RTwW6NZma5tPH-2f5Oak4ai8a4Q=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACSvU-T9N-EddwzX3dEGK6ma/aktivointilelut/kongit/DSC30350_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQslRdrUkVJ7i3JiKyihMxa/aktivointilelut/kongit/DSC30350_2.jpg)

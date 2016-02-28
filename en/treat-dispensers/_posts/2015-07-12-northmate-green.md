@@ -3,7 +3,7 @@ title: "Northmate Green"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/4IL6rJOYjZZvA-3SLYlq9gBQsIyen5Dz75Syk1k0ubs=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABhZj-o5bCfyGgX9QMU3uQBa/aktivointilelut/muut/DSC02615-245px.jpg
   thumb:
 ---
 
@@ -13,4 +13,4 @@ It’s very seldom that we give any food to Miki in a bowl, Miki normally gets h
 
 ---
 
-[![](https://lh3.googleusercontent.com/S-Gqb3q4tuQTlByRkKYfpwBBzaDwC3D5DVM257IFSVE=w800)](https://lh3.googleusercontent.com/S-Gqb3q4tuQTlByRkKYfpwBBzaDwC3D5DVM257IFSVE=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABMS3d5spoJOcwk75Bnr9PAa/aktivointilelut/muut/DSC02615_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABtu2SAFs53uJPRiiPq7gwra/aktivointilelut/muut/DSC02615_2.jpg)

@@ -3,7 +3,7 @@ title: "Interactive games"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/KA65tYTnLE0E7VmkFaX8TxNggiPDyo0gI0m6Z1kLXRY=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACa8Tg4Ea6XmT_EJp3dL8S-a/muut/Picture%20coming%20soon.jpg
   thumb:
 ---
 

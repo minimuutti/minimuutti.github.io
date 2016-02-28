@@ -3,7 +3,7 @@ title: "Kong Genius Leo"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/r--8dOC6RNmRkg88P0QhD3Wa3h_uXeNV4JhelwOqXWQ=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABmDYZKVmaEfMKU9SG6qbkMa/aktivointilelut/kongit/DSC22961-245px.jpg
   thumb:
 ---
 
@@ -15,14 +15,14 @@ Nappuloiden tyhjentäminen tästä Kongista kestää Mikiltä noin 1-2 minuuttia
 
 ---
 
-[![](https://lh3.googleusercontent.com/DGSgHXcysGRVkzoV8mhMIIbV96QHcrw2TB1vk66RBVo=w800)](https://lh3.googleusercontent.com/DGSgHXcysGRVkzoV8mhMIIbV96QHcrw2TB1vk66RBVo=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAa7S3m43JGcxN6nmS2nWQaa/aktivointilelut/kongit/DSC22957_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADxaonYo6dkAx2KSqaVut28a/aktivointilelut/kongit/DSC22957_2.jpg)
 
-[![](https://lh3.googleusercontent.com/PrkrUntADSe-tKMCQSBcpvekE7ihjuzmiX0OaNbDWBc=w800)](https://lh3.googleusercontent.com/PrkrUntADSe-tKMCQSBcpvekE7ihjuzmiX0OaNbDWBc=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABVbtux0Y_ijfYsy_oWlO8Da/aktivointilelut/kongit/DSC22961_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACyGY1AIFjYwJ2qbpyvHGgma/aktivointilelut/kongit/DSC22961_2.jpg)
 
-[![](https://lh3.googleusercontent.com/z_LbhXD9ma-l-i9ZQ0juQlrFsKsNaIGw6-2ee8bQO3E=w800)](https://lh3.googleusercontent.com/z_LbhXD9ma-l-i9ZQ0juQlrFsKsNaIGw6-2ee8bQO3E=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACsmYI-PtY9qgP3XohrALwGa/aktivointilelut/kongit/DSC22980_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACQNRctcFoMACmI8rfyHfoya/aktivointilelut/kongit/DSC22980_2.jpg)
 
-[![](https://lh3.googleusercontent.com/WTyMFjDGpgq-XjtSgWyZUT74yB9Hmo3EeOXuht-p994=w800)](https://lh3.googleusercontent.com/WTyMFjDGpgq-XjtSgWyZUT74yB9Hmo3EeOXuht-p994=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADnVuyZMwD46-V86F3a1SYXa/aktivointilelut/kongit/DSC23031_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADq5OKCOyuH2MiI2GJHBfTQa/aktivointilelut/kongit/DSC23031_2.jpg)
 
-[![](https://lh3.googleusercontent.com/wccYYyDWMvJQP2_Q1RjmlmuzwUJfUecTbwkXR0DMvXM=w800)](https://lh3.googleusercontent.com/wccYYyDWMvJQP2_Q1RjmlmuzwUJfUecTbwkXR0DMvXM=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABj6FgTrj2qIOR19crEXRaIa/aktivointilelut/kongit/DSC23034_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC-k1JtLRjHJwQV9jdI0C75a/aktivointilelut/kongit/DSC23034_2.jpg)
 
-[![](https://lh3.googleusercontent.com/3t9Pdljq-ZPaQtWFsM6-NGDjZCFAvoX6YPJm3CdQG4A=w800)](https://lh3.googleusercontent.com/3t9Pdljq-ZPaQtWFsM6-NGDjZCFAvoX6YPJm3CdQG4A=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABSHcIOn1kTdiMk_80NgRqza/aktivointilelut/kongit/DSC23081_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACjVhC8ATG80COwXylhjXpda/aktivointilelut/kongit/DSC23081_2.jpg)

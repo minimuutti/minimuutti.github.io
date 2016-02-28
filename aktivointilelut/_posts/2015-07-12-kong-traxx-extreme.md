@@ -3,7 +3,7 @@ title: "Kong Traxx Extreme"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/nG4rFt1yt2a8gWm_Ksu7Utp8tHt6aEDX9cV6sSoFhfI=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABJDaO4VjgjMBqWRpm6A28ka/aktivointilelut/kongit/DSC34392-245px.jpg
   thumb:
 ---
 
@@ -15,14 +15,14 @@ Tätä rengasta voi helposti vaikeuttaa, mikäli omistat myös klassisen lumiukk
 
 ---
 
-[![](https://lh3.googleusercontent.com/h_I8lUpNFkzDzBWdTBxXXZhuOKNseHPhq5Xs-5OosNA=w800)](https://lh3.googleusercontent.com/h_I8lUpNFkzDzBWdTBxXXZhuOKNseHPhq5Xs-5OosNA=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADym-qigc0vB8CcuTkeEz06a/aktivointilelut/kongit/DSC34392-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADf3DjnWn5JwEkNIy1s7KUia/aktivointilelut/kongit/DSC34392.jpg)
 
-[![](https://lh3.googleusercontent.com/RRq7x1RTWHr0oo4EDEf3Z_8jEN_mIRQo_3Jp9r-jt_0=w800)](/https://lh3.googleusercontent.com/RRq7x1RTWHr0oo4EDEf3Z_8jEN_mIRQo_3Jp9r-jt_0=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACu9FxxeKLPrfaUIIPVBTZFa/aktivointilelut/kongit/DSC34394-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOs-TRZwKjnHUkKThzCiuka/aktivointilelut/kongit/DSC34394.jpg)
 
-[![](https://lh3.googleusercontent.com/lkpUhNcZ50Gvnsvwv9-R4Fj8gc6toD5L_kmJO7x9-Xk=w800)](https://lh3.googleusercontent.com/lkpUhNcZ50Gvnsvwv9-R4Fj8gc6toD5L_kmJO7x9-Xk=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA53fq1Xi0Wukp89UhjvsDua/aktivointilelut/kongit/DSC30218_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB1yEeD9Z8lP6cGA_qPR7qca/aktivointilelut/kongit/DSC30218_2.jpg)
 
-[![](https://lh3.googleusercontent.com/6LGnIFcmdzzcB6pEOO3w29oBJoNCNEUUJSVV29ultT0=w800)](https://lh3.googleusercontent.com/6LGnIFcmdzzcB6pEOO3w29oBJoNCNEUUJSVV29ultT0=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACXKJbIOzcxCzUeql_oJRPUa/aktivointilelut/kongit/DSC30333_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABxQFEkq5WrR6OSbk85RW29a/aktivointilelut/kongit/DSC30333_2.jpg)
 
-[![](https://lh3.googleusercontent.com/4PoB_Q-I7yOj6U4LFXaFw1ndpAi7EUIY8AL8p1wXwN0=w800)](https://lh3.googleusercontent.com/4PoB_Q-I7yOj6U4LFXaFw1ndpAi7EUIY8AL8p1wXwN0=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAZu5CvIwOmnItS7Oq06GSsa/aktivointilelut/kongit/DSC30289_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAByNdpd7W-hif_rBh5vJJkca/aktivointilelut/kongit/DSC30289_2.jpg)
 
-[![](https://lh3.googleusercontent.com/bQl_GyxIRrTxrELNNNkjubF8d22P07TXs_W7_AwVHAg=w800)](https://lh3.googleusercontent.com/bQl_GyxIRrTxrELNNNkjubF8d22P07TXs_W7_AwVHAg=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD1AqtwTdgvQpZ9Y3RBjyoja/aktivointilelut/kongit/DSC30282_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABkMPCxlCH1A7rb2fV2yobDa/aktivointilelut/kongit/DSC30282_2.jpg)

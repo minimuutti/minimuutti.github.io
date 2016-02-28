@@ -3,7 +3,7 @@ title: "Aktivointipelit"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/KA65tYTnLE0E7VmkFaX8TxNggiPDyo0gI0m6Z1kLXRY=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABPKGUtzGzXAZg45Ayh-U7za/muut/Kuva%20tulossa%20pian.jpg
   thumb:
 ---
 

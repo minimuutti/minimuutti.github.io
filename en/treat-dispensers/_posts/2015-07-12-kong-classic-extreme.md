@@ -3,7 +3,7 @@ title: "Kong Classic Extreme"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/O3vOyNbURU_tl5eE_jF723I1eGBo0h1Fff3_Pqquwhs=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACzvrSVdYBnDKj7SFfTyfA7a/aktivointilelut/kongit/DSC16731-245px.jpg
   thumb:
 ---
 In the Classic Kong I usually put a dried chicken fillet, which I have folded in half (shaped like a letter V). When the chicken fillet opens up inside the Kong, it is relatively hard to get it out especially when I tuck the ends under the edge of the Kong.
@@ -19,12 +19,12 @@ This classic toy is one of my favourite toys and it certainly is a versatile bor
 
 ---
 
-[![](https://lh3.googleusercontent.com/WAdUFGwOhM0n0hwdJjgv3WIcSNQSktjxL1QLBAxkyAk=w800)](https://lh3.googleusercontent.com/WAdUFGwOhM0n0hwdJjgv3WIcSNQSktjxL1QLBAxkyAk=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD177-tPP7Bv2zCFS91_1_da/aktivointilelut/kongit/DSC16731_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADF6PI-JLkAoONYtFslr74da/aktivointilelut/kongit/DSC16731_2.jpg)
 
-[![](https://lh3.googleusercontent.com/FENStIVxez2NGPwup1iEHTN-cSlZNrB4ZcQzjicaAZc=w800)](https://lh3.googleusercontent.com/FENStIVxez2NGPwup1iEHTN-cSlZNrB4ZcQzjicaAZc=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACijOdVL8Lw6PdxutHyU6DZa/aktivointilelut/kongit/DSC19223_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADbkl3kfuZhs-pmx8aq4jxfa/aktivointilelut/kongit/DSC19223_2.jpg)
 
-[![](https://lh3.googleusercontent.com/dxx29RtpzYIbTuyM2l6nBsfZKXRwr06lmdI8HVZnNh4=w800)](https://lh3.googleusercontent.com/dxx29RtpzYIbTuyM2l6nBsfZKXRwr06lmdI8HVZnNh4=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADjXqaP1o2ICuCeiAtCprWca/aktivointilelut/kongit/DSC19253_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAwMQWFwdPu0YMLjEqwmVC6a/aktivointilelut/kongit/DSC19253_2.jpg)
 
-[![](https://lh3.googleusercontent.com/WkluwSZ8mj0tIbXvkw8NLGNFUFqT4aSH2U5j5LT9x7M=w800)](https://lh3.googleusercontent.com/WkluwSZ8mj0tIbXvkw8NLGNFUFqT4aSH2U5j5LT9x7M=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACpnTsdiwZCyQ6ZzHdtR-wRa/aktivointilelut/kongit/DSC14116_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC3IwQozsDOm3fS-BjNzfLWa/aktivointilelut/kongit/DSC14116_2.jpg)
 
-[![](https://lh3.googleusercontent.com/aXGNS1es1WmHKzr_RTwW6NZma5tPH-2f5Oak4ai8a4Q=w800)](https://lh3.googleusercontent.com/aXGNS1es1WmHKzr_RTwW6NZma5tPH-2f5Oak4ai8a4Q=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACSvU-T9N-EddwzX3dEGK6ma/aktivointilelut/kongit/DSC30350_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQslRdrUkVJ7i3JiKyihMxa/aktivointilelut/kongit/DSC30350_2.jpg)

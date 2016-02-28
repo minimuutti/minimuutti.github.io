@@ -3,7 +3,7 @@ title: "Kong Quest Star Pod"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/ONdeEH9YjoHK-GyifuH7KZsHPEKUO63-Ecw0WgcSHKMNhJLCs7P731JdMjOvTCdqNvAg1GWGDRC0friuR0X1b86m77pPHHPiLW4u5jpJ3lTRRlhQbbFQxNYAZJXHJ6d40hYyCdQYhRLmWJENPZ-YQt9f39LRfSS1WLiZCjNJNVk4WcXwp09UwjMWp1dFiYMtfgJtzRveVpB-NNKugpM0NMXZ7aBzaYboiskzR-ykRTcjFbk44IcyEUnkAj4eyPiv3jSyvnpJ_uOEhvvZQeWN_zr1AxLLdYmCbB-VmCD-7_UrJkqbxVJv8NxXI_XdUqDIa--SfS-6jP-iyqZcjFVsiZfMqHkVnS707Zxk4zIojT4vFQcQ-2L4HfUp8GhvCkm_wYGfCrvSClfuwOT6XV-cmeODdwhcZxOvxoudfM0mZDKcL6DLbKED7crQ5KNrVbColP8HdNoAFHLt0s8IGqRo0rDsLd9OTUMtzFEgvy9Gp6RtUgvV20916jop-8CY-6j8XQ_E0FBOAlE8kZ2nc3N-OMHDYq314vDvL6It1Z3fnm0=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA3Ba_uoiG6TBevNPjF1v_Ua/aktivointilelut/kongit/DSC33990-245px.jpg
   thumb:
 ---
 
@@ -15,8 +15,10 @@ Tämä lelu on tyhjä yleensä noin 2–5 minuutissa tai kanafileiden kanssa men
 
 ---
 
-[![](https://lh3.googleusercontent.com/io8Mbgk1-tOhdlHQ0UiIVxBqb7fh8_mbkxVsXNEL5hE=w800)](https://lh3.googleusercontent.com/io8Mbgk1-tOhdlHQ0UiIVxBqb7fh8_mbkxVsXNEL5hE=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACBWBGsWJIBmuH_ZLM3sC1za/aktivointilelut/kongit/DSC33990-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB90bVe5HY45o1jZnjJllr1a/aktivointilelut/kongit/DSC33990.jpg)
 
-[![](https://lh3.googleusercontent.com/vvLlVhLe-pqU9878saZo0ruzKcEiic_MiYDb79rmusg=w800)](https://lh3.googleusercontent.com/vvLlVhLe-pqU9878saZo0ruzKcEiic_MiYDb79rmusg=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAABaES-TqmZAWR5UMepL2Gba/aktivointilelut/kongit/DSC34029-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_DP-IabAv0mB1Ck3-Cdb5a/aktivointilelut/kongit/DSC34029.jpg)
 
-[![](https://lh3.googleusercontent.com/bEG31Ym7OFEak-bAmay1NEd3p5dUtRLSGenBWRWN2Rs=w800)](https://lh3.googleusercontent.com/bEG31Ym7OFEak-bAmay1NEd3p5dUtRLSGenBWRWN2Rs=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAvrj8DwPXVZWRsQDOx5jYpa/aktivointilelut/kongit/DSC34066-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACA-lCQODug-66cy47vZ46La/aktivointilelut/kongit/DSC34066.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC7djJhzVwYxGZpYmh7iGm-a/aktivointilelut/kongit/DSC34032-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACtrWHoLbvvyjlGcJIFjOqFa/aktivointilelut/kongit/DSC34032.jpg)

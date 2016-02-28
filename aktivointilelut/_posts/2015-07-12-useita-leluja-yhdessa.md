@@ -3,7 +3,7 @@ title: "Useita leluja yhdessä"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/IfQl4BOrKaLHAVG4Wu9UG_YeNEhibRf5DUNAEpK2m8Q=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAYvCkdRfD1xyAiQcGC8fnEa/aktivointilelut/muut/DSC30824-245px.jpg
   thumb:
 ---
 
@@ -15,8 +15,8 @@ Kong Companyn mukaan Myös Kong Genius lelut pystyy yhdistämään toisiinsa. Ko
 
 ---
 
-[![](https://lh3.googleusercontent.com/AIindugwO-k_oro2QZGgHwLG3KTPO9m8GE8vngpItQs=w800)](https://lh3.googleusercontent.com/AIindugwO-k_oro2QZGgHwLG3KTPO9m8GE8vngpItQs=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADmrIEaGwe6joip2hVhSSlOa/aktivointilelut/muut/DSC30824-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA25ka2bBsG7Fe4tS1ZiHsWa/aktivointilelut/muut/DSC30824.jpg)
 
-[![](https://lh3.googleusercontent.com/lkpUhNcZ50Gvnsvwv9-R4Fj8gc6toD5L_kmJO7x9-Xk=w800)](https://lh3.googleusercontent.com/lkpUhNcZ50Gvnsvwv9-R4Fj8gc6toD5L_kmJO7x9-Xk=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA53fq1Xi0Wukp89UhjvsDua/aktivointilelut/kongit/DSC30218_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB1yEeD9Z8lP6cGA_qPR7qca/aktivointilelut/kongit/DSC30218_2.jpg)
 
-[![](https://lh3.googleusercontent.com/bQl_GyxIRrTxrELNNNkjubF8d22P07TXs_W7_AwVHAg=w800)](https://lh3.googleusercontent.com/bQl_GyxIRrTxrELNNNkjubF8d22P07TXs_W7_AwVHAg=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD1AqtwTdgvQpZ9Y3RBjyoja/aktivointilelut/kongit/DSC30282_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABkMPCxlCH1A7rb2fV2yobDa/aktivointilelut/kongit/DSC30282_2.jpg)

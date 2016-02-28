@@ -3,7 +3,7 @@ title: "Kong Wobbler"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/xv6Anfh77_aF5TXMpjEB5MyWCqD5RfUq33n1PrsfU7U=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAzEzD6QvL2GbZMGS6FuLhOa/aktivointilelut/kongit/DSC12971-245px.jpg
   thumb:
 ---
 
@@ -21,8 +21,8 @@ Kerran vaikeutin tätä niin, että laitoin lelun sisälle pesupallon, johon nap
 
 ---
 
-[![](https://lh3.googleusercontent.com/xDyU1bdgi9uohEdw0ilZRfAC287y6ROZcoF6RIDpqF0=w800)](https://lh3.googleusercontent.com/xDyU1bdgi9uohEdw0ilZRfAC287y6ROZcoF6RIDpqF0=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5ph3fDeq_8Ar94AOpWDpLa/aktivointilelut/kongit/DSC12846_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABMwR0FbwtSutSjC1GCUBKga/aktivointilelut/kongit/DSC12846_2.jpg)
 
-[![](https://lh3.googleusercontent.com/N6nv6Ydzw_dMGZbyKHqiccn-4PE0P-FV-iUmhAboT08=w800)](https://lh3.googleusercontent.com/N6nv6Ydzw_dMGZbyKHqiccn-4PE0P-FV-iUmhAboT08=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABCq_leStxg7FJntAHtbV1-a/aktivointilelut/kongit/DSC12971_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAASXZ8I472p_GdZYPwcAVlBa/aktivointilelut/kongit/DSC12971_2.jpg)
 
-[![](https://lh3.googleusercontent.com/qrSqp6W3HTpBkusEz1sJsOzRy1yAzLjmVSG-bZNC8AfNfYP8aWuyQHxopu5Dlz5l4ar_b34xsDinIA8hd5eYwsZ54q9UWGvWvzkwQh5N-6m7PWIO45gqU98Bu_lJm-X81O8aZVOW2Xj1-ligY7FoRuMRT5rQNXHl94S80i2OtOgaSEyR47HyIz9nZoLHb3HtJlrX5WhcFGgjBkTegneWdXN7eOGQt_czPN5puDRubLNX1CnGNbNePDEkFtBJuSCkuWLC9BjP3Ax3gY6wAgsatpGn2jrKrAuXyShlScrOWNyPklBdgYu0aOdCmDv2FnExKy0vGOc-j4lnBmL67ncFjYGwjHyvKmb1C_kroEMA-CHsXfpV2hOU2KLr5iev7hsziASJTtwzEqdyH8ERzu2wJcjwGkTlpa1KjBgzzx7Fs55QQKHwakDFX4A2_k3gkVly_k-lvKX1lMfBC-jnoUdMJTL8LW5W45grh7k-SJF8YtyvFcBzM6aKii2aCbdjNl3JeI4jPcXOUvc8bHrllj2tnDVnedaZl0v-d_2pPRG1_sU=w800)](https://lh3.googleusercontent.com/qrSqp6W3HTpBkusEz1sJsOzRy1yAzLjmVSG-bZNC8AfNfYP8aWuyQHxopu5Dlz5l4ar_b34xsDinIA8hd5eYwsZ54q9UWGvWvzkwQh5N-6m7PWIO45gqU98Bu_lJm-X81O8aZVOW2Xj1-ligY7FoRuMRT5rQNXHl94S80i2OtOgaSEyR47HyIz9nZoLHb3HtJlrX5WhcFGgjBkTegneWdXN7eOGQt_czPN5puDRubLNX1CnGNbNePDEkFtBJuSCkuWLC9BjP3Ax3gY6wAgsatpGn2jrKrAuXyShlScrOWNyPklBdgYu0aOdCmDv2FnExKy0vGOc-j4lnBmL67ncFjYGwjHyvKmb1C_kroEMA-CHsXfpV2hOU2KLr5iev7hsziASJTtwzEqdyH8ERzu2wJcjwGkTlpa1KjBgzzx7Fs55QQKHwakDFX4A2_k3gkVly_k-lvKX1lMfBC-jnoUdMJTL8LW5W45grh7k-SJF8YtyvFcBzM6aKii2aCbdjNl3JeI4jPcXOUvc8bHrllj2tnDVnedaZl0v-d_2pPRG1_sU=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAad4vrs3JRQdqfsgFN1-nPa/aktivointilelut/kongit/DSC57921-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWzOtLflO4PwsHr64rEbdYa/aktivointilelut/kongit/DSC57921.jpg)

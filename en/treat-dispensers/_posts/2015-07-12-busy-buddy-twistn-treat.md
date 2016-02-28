@@ -3,7 +3,7 @@ title: "Busy Buddy Twist'n Treat"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/TbT6y3NfI-kNb7pkRBesOtJDzCuBeK5tHihyaFLJoPo=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAo2NfL30K98q9NXz92eC-_a/aktivointilelut/muut/DSC13183-245px.jpg
   thumb:
 ---
 
@@ -15,10 +15,10 @@ I recommend this toy anyway, because it's one of the cheapest toys we've bought 
 
 ---
 
-[![](https://lh3.googleusercontent.com/TFrnTAG1C13DJuvX-nt0LHF6x7IC_pMc4kukjdRHzDY=w800)](https://lh3.googleusercontent.com/TFrnTAG1C13DJuvX-nt0LHF6x7IC_pMc4kukjdRHzDY=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABEwAyqGuS5o4W9gKvQpllpa/aktivointilelut/muut/DSC13183_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAANTkb6xJ8fwTgJwGtsdfia/aktivointilelut/muut/DSC13183_2.jpg)
 
-[![](https://lh3.googleusercontent.com/z69hPz8zHZfFJRqDHp2m8CJH00iJYebdkpwMpazQwN0=w800)](https://lh3.googleusercontent.com/z69hPz8zHZfFJRqDHp2m8CJH00iJYebdkpwMpazQwN0=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABSEu7R8nno-5zHsz7qadpCa/aktivointilelut/muut/DSC13229_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADbj8iQaD2QgNvR2P0dIIbfa/aktivointilelut/muut/DSC13229_2.jpg)
 
-[![](https://lh3.googleusercontent.com/Uv6S12OAFvTY3CKMhCwZUvYlA0L7dOc7itleNxgOaWU=w800)](https://lh3.googleusercontent.com/Uv6S12OAFvTY3CKMhCwZUvYlA0L7dOc7itleNxgOaWU=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAy9-62QJhdDVAP87JW8Vkha/aktivointilelut/muut/DSC13236_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJgXPuOKhtsPx7AS-Nr0d1a/aktivointilelut/muut/DSC13236_2.jpg)
 
-[![](https://lh3.googleusercontent.com/sntAQum-7KYri2pXl01VKnThwGsqC80MFT_nKF4_Rpg=w800)](https://lh3.googleusercontent.com/sntAQum-7KYri2pXl01VKnThwGsqC80MFT_nKF4_Rpg=s0)
+[![](hhttps://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACHzaq5lq4BzzNQF-ov43s5a/aktivointilelut/muut/DSC13226_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAJ0v5TQkI8pTcSxpOtZynpa/aktivointilelut/muut/DSC13226_2.jpg)
