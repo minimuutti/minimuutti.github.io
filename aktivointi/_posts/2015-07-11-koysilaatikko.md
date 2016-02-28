@@ -3,7 +3,7 @@ title: "Köysilaatikko"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/5Eeq50Q1NtvCKtksCrCKhjLKVyMdprCBQrbnaIMo4Zg=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADxolDHPexBFWptKsvbN-O6a/aktivointi/koysilaatikko/DSC30102-245px.jpg
   thumb:
 ---
 
@@ -15,10 +15,10 @@ Eli meillä on sen kokoinen pahvilaatikko, joka täyttyy noin puoliväliin kun k
 
 ---
 
-[![](https://lh3.googleusercontent.com/yCArB6roQ68dNPvo19fCThgEnb5nLwwmzblY1K6jmfw=w800)](https://lh3.googleusercontent.com/yCArB6roQ68dNPvo19fCThgEnb5nLwwmzblY1K6jmfw=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACrDePcSd1M83tJ1b1IWzzma/aktivointi/koysilaatikko/DSC30098_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABk_1YmCySuM16smJPZKpkNa/aktivointi/koysilaatikko/DSC30098_2.jpg)
 
-[![](https://lh3.googleusercontent.com/GsFjWLV5p4Iu2UYFK7FFPaCGgxugMA6jSoS_3o4S3bw=w800)](https://lh3.googleusercontent.com/GsFjWLV5p4Iu2UYFK7FFPaCGgxugMA6jSoS_3o4S3bw=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACjZTuYEvSDwrnbCRw9z0-Ja/aktivointi/koysilaatikko/DSC30102_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADhFF3NIdIoLdrb5VPs_CRSa/aktivointi/koysilaatikko/DSC30102_2.jpg)
 
-[![](https://lh3.googleusercontent.com/9iREG1lw6tUAWvtZMfNPEGMu94it41t68BSyohPJBxM=w800)](https://lh3.googleusercontent.com/9iREG1lw6tUAWvtZMfNPEGMu94it41t68BSyohPJBxM=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABAoa8CVbSInmgbGTrJPsSYa/aktivointi/koysilaatikko/DSC26678_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACmWqIHuZkHHGemydBKW55Ka/aktivointi/koysilaatikko/DSC26678_2.jpg)
 
-[![](https://lh3.googleusercontent.com/YswVQDHTxbO6j50fhvStUI0Fb13ICsGV8ug4XbfBZg=w800)](https://lh3.googleusercontent.com/YswVQDHTxbO6j50fhvStUI0Fb13ICsGV8ug4XbfBZg=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB15EBLgIuFf4D7KjJtfi4Ja/aktivointi/koysilaatikko/DSC26701_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACX51D73LVU08BIEh5fP7HYa/aktivointi/koysilaatikko/DSC26701_2.jpg)
