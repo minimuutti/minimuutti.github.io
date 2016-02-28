@@ -3,7 +3,7 @@ title: "Two boxes, one inside another"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/nr4VMFx1Vxz9gXeA9xBHWl1ncgJI6ZLpotnlSlMAzss=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACdJfCbzqMKQuUC2HaoqNAFa/aktivointi/kaksi-laatikkoa-sisakkain/DSC42890-245px.jpg
   thumb:
 
 ---
@@ -20,14 +20,14 @@ We also did a similar game with Ikea's Mula wagon and a big cardboard box. I att
 
 ---
 
-[![](https://lh3.googleusercontent.com/iwLvZH3ZwNqRChgwKbBKG7qoYLj9hSCxcALjUma0Jlo=w800)](https://lh3.googleusercontent.com/iwLvZH3ZwNqRChgwKbBKG7qoYLj9hSCxcALjUma0Jlo=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACisW4Z1VyfZbH__XSQT3d3a/aktivointi/kaksi-laatikkoa-sisakkain/DSC29067_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAkYuLT92C42WM5GqPKFknZa/aktivointi/kaksi-laatikkoa-sisakkain/DSC29067_2.jpg)
 
-[![](https://lh3.googleusercontent.com/j9ZgV5DmNXBmsfAk-tGgaOUThBOSuMbEpZJgb8uCE7Y=w800)](https://lh3.googleusercontent.com/j9ZgV5DmNXBmsfAk-tGgaOUThBOSuMbEpZJgb8uCE7Y=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADLmV89Bs9silYQ_DTeK7Aea/aktivointi/kaksi-laatikkoa-sisakkain/DSC29055_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABD_P-wMPku4OQzraluL5F0a/aktivointi/kaksi-laatikkoa-sisakkain/DSC29055_2.jpg)
 
-[![](https://lh3.googleusercontent.com/8spx4a3vZUMDaldt3LElCgoeEzrdr-h65ztyceWJqg4=w800)](https://lh3.googleusercontent.com/8spx4a3vZUMDaldt3LElCgoeEzrdr-h65ztyceWJqg4=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADroqmjRQyxvjdZAzAlXQP_a/aktivointi/kaksi-laatikkoa-sisakkain/DSC42862-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA9UEUB8WKrEtQ27d9uYx_Xa/aktivointi/kaksi-laatikkoa-sisakkain/DSC42862.jpg)
 
-[![](https://lh3.googleusercontent.com/Q8kPip_9swawkC9nQgOFppdW0i7nA_yQwao0pBTrMSk=w800)](https://lh3.googleusercontent.com/Q8kPip_9swawkC9nQgOFppdW0i7nA_yQwao0pBTrMSk=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABk0Vm3csjPa7cThUfDG8zga/aktivointi/kaksi-laatikkoa-sisakkain/DSC42890-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADTiSosq-S8D1yHzpObt8bEa/aktivointi/kaksi-laatikkoa-sisakkain/DSC42890.jpg)
 
-[![](https://lh3.googleusercontent.com/5HowpgAU23x6DWoiWxJm4fCD8IGKaRnHtL79XUlaVE8=w800)](https://lh3.googleusercontent.com/5HowpgAU23x6DWoiWxJm4fCD8IGKaRnHtL79XUlaVE8=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACToOmzZx3FcO5Unh4mM_Vba/aktivointi/kaksi-laatikkoa-sisakkain/DSC42919-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABDDBlg8MWPyS1lgl0kojmTa/aktivointi/kaksi-laatikkoa-sisakkain/DSC42919.jpg)
 
-[![](https://lh3.googleusercontent.com/9PgS_A_A7dRSnJ5N1yHmujxj8FgmWWyr8bxpnmhPMSo=w800)](https://lh3.googleusercontent.com/9PgS_A_A7dRSnJ5N1yHmujxj8FgmWWyr8bxpnmhPMSo=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACqX_zQ5FbqJOCxa5c8RmAua/aktivointi/kaksi-laatikkoa-sisakkain/DSC42929-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_pIEJrz7TKqNTI-cZU7t1a/aktivointi/kaksi-laatikkoa-sisakkain/DSC42929.jpg)
