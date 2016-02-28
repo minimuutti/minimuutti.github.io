@@ -3,7 +3,7 @@ title: "Herkkuhelmet"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/ZEQmc9E69UoRe_sXfQYRquzs7KVf18LccuXCCFRduVY=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAXzeiRFfnPq3IiZVOFTSdya/aktivointi/herkkuhelmet/DSC41292-245px.jpg
   thumb:
 ---
 
@@ -14,18 +14,18 @@ Solmin helminauhat yksitellen puun oksaan ja annoin Mikille luvan syödä. Mikil
 
 ---
 
-[![](https://lh3.googleusercontent.com/_PH5O7RY0R7n0UaJ_Mqig0OS7MQYTsSlExyHcgmdwZo=w800)](https://lh3.googleusercontent.com/_PH5O7RY0R7n0UaJ_Mqig0OS7MQYTsSlExyHcgmdwZo=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD3So36bXzcdk21L1EBe8uBa/aktivointi/herkkuhelmet/DSC41330-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACVH7IhQS5cwm37FPqtT10ka/aktivointi/herkkuhelmet/DSC41330.jpg)
 
-[![](https://lh3.googleusercontent.com/NmbZkOHx5mhxM6WNcc1fyHYY-ZV39vtNR5nRvuDUQeo=w800)](https://lh3.googleusercontent.com/NmbZkOHx5mhxM6WNcc1fyHYY-ZV39vtNR5nRvuDUQeo=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC7pWkGydHf7NOiPes8yYBca/aktivointi/herkkuhelmet/DSC41337-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB7ysDt4FaPIXxhoUoVNDFRa/aktivointi/herkkuhelmet/DSC41337.jpg)
 
-[![](https://lh3.googleusercontent.com/RV7imaHlEzqItp0aZWm9DiLE3UMPSq_33uRxdu6zpM8=w800)](https://lh3.googleusercontent.com/RV7imaHlEzqItp0aZWm9DiLE3UMPSq_33uRxdu6zpM8=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC30tjtV1sc92vKwwLH5bM4a/aktivointi/herkkuhelmet/DSC41307-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD1odUjP-sFP_kNwlXAGWi7a/aktivointi/herkkuhelmet/DSC41307.jpg)
 
-[![](https://lh3.googleusercontent.com/OmqaT6TTyXEgvfzWnfrGsa5_dy8BWWaoO-27WqJiIgo=w800)](https://lh3.googleusercontent.com/OmqaT6TTyXEgvfzWnfrGsa5_dy8BWWaoO-27WqJiIgo=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACb-KiJBhXN2xRTdAh0ArxPa/aktivointi/herkkuhelmet/DSC41304-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACMqnnZE0EMKTwnADAlxlvMa/aktivointi/herkkuhelmet/DSC41304.jpg)
 
-[![](https://lh3.googleusercontent.com/bx8Fucs7otDDaEfyicFpP4Qb3JKs0U-nsRKMbMSOH28=w800)](https://lh3.googleusercontent.com/bx8Fucs7otDDaEfyicFpP4Qb3JKs0U-nsRKMbMSOH28=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAARVsdgoA2qDDR_xUsL4Z28a/aktivointi/herkkuhelmet/DSC41300-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC5MC0s8LjtLbhgzWOwuZYZa/aktivointi/herkkuhelmet/DSC41300.jpg)
 
-[![](https://lh3.googleusercontent.com/nr7PFCaKhKh-ZhSn0TQvGkeQ1RM3X__BnVRYtMzA5HE=w800)](https://lh3.googleusercontent.com/nr7PFCaKhKh-ZhSn0TQvGkeQ1RM3X__BnVRYtMzA5HE=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABBb4dQ35kR_5PF3FbejD9Ua/aktivointi/herkkuhelmet/DSC41328-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACXv1ji3hg9F2yeU07petIYa/aktivointi/herkkuhelmet/DSC41328.jpg)
 
-[![](https://lh3.googleusercontent.com/idn9MKJGGTDtrE_d8QFxM7J1jU1Mn_OPXcoY-2Rb1to=w800)](https://lh3.googleusercontent.com/idn9MKJGGTDtrE_d8QFxM7J1jU1Mn_OPXcoY-2Rb1to=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABqBmdySP0mm10CB-DHsXkua/aktivointi/herkkuhelmet/DSC41292-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABohBSgqLBt_QSw5OrNUFIYa/aktivointi/herkkuhelmet/DSC41292.jpg)
 
-[![](https://lh3.googleusercontent.com/el_GKzVIULvHBNncmo3hlny9d7Ry5YgLl2E7DcfzyLs=w800)](https://lh3.googleusercontent.com/el_GKzVIULvHBNncmo3hlny9d7Ry5YgLl2E7DcfzyLs=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABv4K41qWdd2NxEcVymIj55a/aktivointi/herkkuhelmet/DSC41280-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAz6nSa3dAnq4Pam7CJR-QKa/aktivointi/herkkuhelmet/DSC41280.jpg)

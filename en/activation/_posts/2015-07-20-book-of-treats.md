@@ -3,7 +3,7 @@ title: "Book of treats"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/XsbDStgSBLzLW1S-PFNbFMvwtVcKxKyEvxyMLUDZnmU=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABfiLxlr7uuUbDpELIwI2Sja/aktivointi/herkkukirja/DSC34289-245px.jpg
   thumb:
 ---
 
@@ -25,12 +25,14 @@ This game is really convenient, because you can make it semifinished in the week
 
 ---
 
-[![](https://lh3.googleusercontent.com/Wmir94u_snVxlkIy3pGNlzCgWSUkOis1yUxCYt378S8=w800)](https://lh3.googleusercontent.com/Wmir94u_snVxlkIy3pGNlzCgWSUkOis1yUxCYt378S8=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACHBov1EC3b2Ry8x6ROwQlya/aktivointi/herkkukirja/DSC34109-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAni7qJdRRNTCi-_koAi88fa/aktivointi/herkkukirja/DSC34109.jpg)
 
-[![](https://lh3.googleusercontent.com/0_1y2x3d7RMJ_ql8Ju-xwOls8TJW68LM8A9hgSOyTZo=w800)](https://lh3.googleusercontent.com/0_1y2x3d7RMJ_ql8Ju-xwOls8TJW68LM8A9hgSOyTZo=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACDc7VRYNNKZyez4paB9PRaa/aktivointi/herkkukirja/DSC34137-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABq9POXOHR0kwTrkxqV3gjka/aktivointi/herkkukirja/DSC34137.jpg)
 
-[![](https://lh3.googleusercontent.com/bM5w8TscdDQVDzhdGlAiUZqoEEY6zX6NYpakv8DVAu0=w800)](https://lh3.googleusercontent.com/bM5w8TscdDQVDzhdGlAiUZqoEEY6zX6NYpakv8DVAu0=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACKjGpsQhbNtUmvACMrxInCa/aktivointi/herkkukirja/DSC34199-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACXjM1JrfkuiPOwdkPGe4K7a/aktivointi/herkkukirja/DSC34199.jpg)
 
-[![](https://lh3.googleusercontent.com/xJDI2pSWgpne1q4pAXVEuBk2MoPq2DBw2OtYxp7zr40=w800)](https://lh3.googleusercontent.com/xJDI2pSWgpne1q4pAXVEuBk2MoPq2DBw2OtYxp7zr40=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAI6aiNerHMc93vwrUMnNvla/aktivointi/herkkukirja/DSC34235-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABm-he3Solllsf5itFVPSFYa/aktivointi/herkkukirja/DSC34235.jpg)
 
-[![](https://lh3.googleusercontent.com/W7fmB87KqwAiHQ-japZRDZoaL8xB_bDfyys9g7knttw=w800)](https://lh3.googleusercontent.com/W7fmB87KqwAiHQ-japZRDZoaL8xB_bDfyys9g7knttw=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADgC-kijXRpC4MTWcz6688Va/aktivointi/herkkukirja/DSC34255-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5fZhSAEwVNcFv4ebPjYPra/aktivointi/herkkukirja/DSC34255.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAApGt_ubm10zXh6D8y4Goyaa/aktivointi/herkkukirja/DSC34272-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABjYKftmzCkjiMbxuV41i2fa/aktivointi/herkkukirja/DSC34272.jpg)

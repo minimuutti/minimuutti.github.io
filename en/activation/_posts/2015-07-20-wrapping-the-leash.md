@@ -3,7 +3,7 @@ title: "Wrapping the leash"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/fAqZavbHzGUH6eHDjRhtiho7obRzr1gULVXOu8uDKDo=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACVFSroqeLOgkx4WaPnhhbRa/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32210-245px.jpg
   thumb:
 ---
 
@@ -15,10 +15,10 @@ You should start this game in a quiet place without any distractions and in the 
 
 ---
 
-[![](https://lh3.googleusercontent.com/SKpxRvpZePPScS-zxUKLznGo70S5LHprt4IEMSqRv8A=w800)](https://lh3.googleusercontent.com/SKpxRvpZePPScS-zxUKLznGo70S5LHprt4IEMSqRv8A=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC1e0r4Tqd_VDfw1w9dMiEra/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32210-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC2MmXDiF8cVYsbglxkEGZTa/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32210.jpg)
 
-[![](https://lh3.googleusercontent.com/FtKHcJgaPBtres639PizNA9hREyQCy55WwfXH8GDMCc=w800)](https://lh3.googleusercontent.com/FtKHcJgaPBtres639PizNA9hREyQCy55WwfXH8GDMCc=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_jb6BDkkUS3jMs4nQnEbka/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32196-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAASBfLYoXFM0nEp4mG23unMa/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32196.jpg)
 
-[![](https://lh3.googleusercontent.com/MGByvt7t530J426ISlzy8Egf4mk5DOe8VGB6On2HKkw=w800)](https://lh3.googleusercontent.com/MGByvt7t530J426ISlzy8Egf4mk5DOe8VGB6On2HKkw=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACqTZe3kjgtG0kAqAWJ9grva/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32197-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA7_3SLMFAa9i5RA-5AHGvna/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32197.jpg)
 
-[![](https://lh3.googleusercontent.com/4UqSFEaqPVOCWLooz4f8kfSAIIMfZizL2ZmQ_jYOUI8=w800)](https://lh3.googleusercontent.com/4UqSFEaqPVOCWLooz4f8kfSAIIMfZizL2ZmQ_jYOUI8=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADoDK62lOELeKVm79SVLLFUa/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32198-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABVVnkuWsSlPGfdcsFKU4F8a/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32198.jpg)

@@ -3,7 +3,7 @@ title: "Ikean Mula vaunu"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/s9KDQz7veH6NJxEeUb_4xpxLfrY2vafD9J3acoavd0c=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACrTZNb0cPUzJAeMv54eu07a/aktivointi/ikean-mula-vaunu/DSC42292-245px.jpg
   thumb:
 
 ---
@@ -20,26 +20,30 @@ Kokeilin piilottaa herkkuja myös vaunun alle, jossa Mikin oli tarkoitus työnt�
 
 Tästä Mula vaunusta saimme myös hauskan kelkan. Ensiksi sidoin tuohon narun päähän yhden pyöreän palikan. Sitten laitoin tyhjän vaunun perälle muutaman namin ja laitoin vaunun pahvilaatikon sisään jättäen vain tuon palikan näkyviin. Mikiltä ei mennyt montaa sekuntia, kun se tajusi vetää tuosta palikasta saadakseen vaunun ulos laatikosta. Pahvilaatikoksi kannattaa valita niin matala laatikko, ettei koira pääse kaivelemaan tuota vaunua sieltä sisältä muuten, kuin vetämällä tuosta palikasta.
 
+Samaa voi kokeilla niin, että namit ovat vaunussa palikoiden väleissä.
+
 ---
 
-[![](https://lh3.googleusercontent.com/PngxDH6BDT8VDtZsZ4I6F4rDiSq-qzco_7NqmShxc4E=w800)](https://lh3.googleusercontent.com/PngxDH6BDT8VDtZsZ4I6F4rDiSq-qzco_7NqmShxc4E=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAFI7TAF3oj2KGQy1hOFJlLa/aktivointi/ikean-mula-vaunu/DSC42292-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACSZtlKolHL8pqRc0DnQl_Ma/aktivointi/ikean-mula-vaunu/DSC42292.jpg)
 
-[![](https://lh3.googleusercontent.com/tC4JKQzsiXrMRS8BPCIt-6K-RbUkSp2p3ef5OGGbtbA=w800)](https://lh3.googleusercontent.com/tC4JKQzsiXrMRS8BPCIt-6K-RbUkSp2p3ef5OGGbtbA=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABA4AdTHbIZDjhSVzx8-7vQa/aktivointi/ikean-mula-vaunu/DSC42352-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADe0XtbnkKizT09Iq22ghMRa/aktivointi/ikean-mula-vaunu/DSC42352.jpg)
 
-[![](https://lh3.googleusercontent.com/swkcvm__rN6zE0lBF_SiPtko3l24y1tuzoTClygkw5Y=w800)](https://lh3.googleusercontent.com/swkcvm__rN6zE0lBF_SiPtko3l24y1tuzoTClygkw5Y=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABEZgMMKerJrqakjiEARz9Fa/aktivointi/ikean-mula-vaunu/DSC44287-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAirFTjhVmkYCvfP_ZS1Xipa/aktivointi/ikean-mula-vaunu/DSC44287.jpg)
 
-[![](https://lh3.googleusercontent.com/NV9CNlIdHJCimA69kdypr7VH8yZB1HeF5cNHpNb3Xng=w800)](https://lh3.googleusercontent.com/NV9CNlIdHJCimA69kdypr7VH8yZB1HeF5cNHpNb3Xng=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADEjT1VfuRbijxA97SI7A2oa/aktivointi/ikean-mula-vaunu/DSC42852-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADcEC3E5laTWH1YPFxDR2RDa/aktivointi/ikean-mula-vaunu/DSC42852.jpg)
 
-[![](https://lh3.googleusercontent.com/IvMDzJoBeOnQ7L0CYYjBO0Dak289yeNlgZwhsgOdkMg=w800)](https://lh3.googleusercontent.com/IvMDzJoBeOnQ7L0CYYjBO0Dak289yeNlgZwhsgOdkMg=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABiC_aujC2ZnhbTH0jaVY5Ha/aktivointi/kaksi-laatikkoa-sisakkain/DSC42855-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABxZXR9AaPC7V2U7WNY5bWxa/aktivointi/kaksi-laatikkoa-sisakkain/DSC42855.jpg)
 
-[![](https://lh3.googleusercontent.com/8spx4a3vZUMDaldt3LElCgoeEzrdr-h65ztyceWJqg4=w800)](https://lh3.googleusercontent.com/8spx4a3vZUMDaldt3LElCgoeEzrdr-h65ztyceWJqg4=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADroqmjRQyxvjdZAzAlXQP_a/aktivointi/kaksi-laatikkoa-sisakkain/DSC42862-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA9UEUB8WKrEtQ27d9uYx_Xa/aktivointi/kaksi-laatikkoa-sisakkain/DSC42862.jpg)
 
-[![](https://lh3.googleusercontent.com/Q8kPip_9swawkC9nQgOFppdW0i7nA_yQwao0pBTrMSk=w800)](https://lh3.googleusercontent.com/Q8kPip_9swawkC9nQgOFppdW0i7nA_yQwao0pBTrMSk=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABk0Vm3csjPa7cThUfDG8zga/aktivointi/kaksi-laatikkoa-sisakkain/DSC42890-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADTiSosq-S8D1yHzpObt8bEa/aktivointi/kaksi-laatikkoa-sisakkain/DSC42890.jpg)
 
-[![](https://lh3.googleusercontent.com/5HowpgAU23x6DWoiWxJm4fCD8IGKaRnHtL79XUlaVE8=w800)](https://lh3.googleusercontent.com/5HowpgAU23x6DWoiWxJm4fCD8IGKaRnHtL79XUlaVE8=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACToOmzZx3FcO5Unh4mM_Vba/aktivointi/kaksi-laatikkoa-sisakkain/DSC42919-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABDDBlg8MWPyS1lgl0kojmTa/aktivointi/kaksi-laatikkoa-sisakkain/DSC42919.jpg)
 
-[![](https://lh3.googleusercontent.com/9PgS_A_A7dRSnJ5N1yHmujxj8FgmWWyr8bxpnmhPMSo=w800)](https://lh3.googleusercontent.com/9PgS_A_A7dRSnJ5N1yHmujxj8FgmWWyr8bxpnmhPMSo=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACqX_zQ5FbqJOCxa5c8RmAua/aktivointi/kaksi-laatikkoa-sisakkain/DSC42929-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_pIEJrz7TKqNTI-cZU7t1a/aktivointi/kaksi-laatikkoa-sisakkain/DSC42929.jpg)
 
-[![](https://lh3.googleusercontent.com/463xvcdDvQyvzVFwFY0i-GxrKSnE0X26g1KyfPv7QUM=w800)](https://lh3.googleusercontent.com/463xvcdDvQyvzVFwFY0i-GxrKSnE0X26g1KyfPv7QUM=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADceMO0zwwKBcsG5nkTDn9-a/aktivointi/kaksi-laatikkoa-sisakkain/DSC54173-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADh0BKEZlI012Xox7GGG8mXa/aktivointi/kaksi-laatikkoa-sisakkain/DSC54173.jpg)
 
-[![](https://lh3.googleusercontent.com/p-f9BtteBCB7YMuZyP2W4Sbaa-jFcbHzt1FSrCpzDRA=w800)](https://lh3.googleusercontent.com/p-f9BtteBCB7YMuZyP2W4Sbaa-jFcbHzt1FSrCpzDRA=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB2GRkUHIIHr9nHBWg1DU7ja/aktivointi/ikean-mula-vaunu/DSC42357-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACpexnz988ntJdF--vwLw4ya/aktivointi/ikean-mula-vaunu/DSC42357.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-qU3ETJn7M3Nemq3yhquoa/aktivointi/ritila/DSC42191-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAArYe7fdXZgQrDkGW1GbphVa/aktivointi/ritila/DSC42191.jpg)

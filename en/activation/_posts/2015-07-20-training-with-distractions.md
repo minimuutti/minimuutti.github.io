@@ -3,7 +3,7 @@ title: "Training with distractions"
 layout: article
 image:
   feature:
-  teaser: https://lh3.googleusercontent.com/f_sQm9QrShhGONKxRLQIY-iZIITI7jggauYSb68Ra1E=w245
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJjxiK5go8V_mZi3K-oVTga/aktivointi/hairioharjoitukset/DSC41355-245px.jpg
   thumb:
 ---
 
@@ -17,6 +17,6 @@ Different sounds are good distractions too. Open the the drawer where you store 
 
 ---
 
-[![](https://lh3.googleusercontent.com/ZZKz4exjdiReLCN_HUHBmTxRmes7ixaCcKZpsdgrGfE=w800)](https://lh3.googleusercontent.com/ZZKz4exjdiReLCN_HUHBmTxRmes7ixaCcKZpsdgrGfE=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB9Km4cidbRsNk95wS0qKS6a/aktivointi/hairioharjoitukset/DSC41354-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACZiIaBZ6bxkXSf-2U0Ij1Fa/aktivointi/hairioharjoitukset/DSC41354.jpg)
 
-[![](https://lh3.googleusercontent.com/73nsngjG4s_HUzGx_p44SDoQ3rxHlnkF5JakOA0oIJw=w800)](https://lh3.googleusercontent.com/73nsngjG4s_HUzGx_p44SDoQ3rxHlnkF5JakOA0oIJw=s0)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAIwOPC5muXjYTn0I9c1e9Ya/aktivointi/hairioharjoitukset/DSC41355-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA6pk4JhYZkCQGw5sbgkDUua/aktivointi/hairioharjoitukset/DSC41355.jpg)
