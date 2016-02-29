@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-This JW's Playbites Caterpillar toy (size 20cm) is our new favourite. Although this toy seems to be easy - it's not. It's actually quite difficult.
+This JW Playbites Caterpillar toy (size 20cm) is our new favourite. Although this toy seems to be easy - it's not. It's actually quite difficult.
 
 The time I put kibbles in the holes, Miki got tired before he even got all the kibbles out.
 
