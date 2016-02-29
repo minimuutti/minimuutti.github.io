@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Käveleminen oudoilla pinnoilla luetaan kaiketi sosiaalistamiseksi, mutta aina kun tulee jotain sopivaa uutta vastaan, niin aina laitetaan Miki kävelemään uudelle alustalle.
+Käveleminen uusilla pinnoilla luetaan kaiketi sosiaalistamiseksi, mutta aina kun tulee jotain sopivaa uutta vastaan, niin aina laitetaan Miki kävelemään uudelle alustalle.
 
 Esimerkiksi ritiläportaat (metalliset portaat joiden läpi näkyy maahan) tai pelkkä tällainen porrastasanne voi olla monelle koiralle erittäin haastava, kuten oli myös Mikille. Parisängyn patjan pahvilaatikosta saimme myös hauskan alustan.
 

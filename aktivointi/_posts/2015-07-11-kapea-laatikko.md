@@ -31,6 +31,6 @@ Esineistä riippuen Mikiltä kestää alle minuutin saada herkut syötyä.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC1tzOYj61j2SnGLv5Tf4IAa/aktivointi/kapea-laatikko/DSC57734-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_cKDCHMBy0UpPvvBFQ5y3a/aktivointi/kapea-laatikko/DSC57734.jpg)
 
-[![](hhttps://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAybhPQM4IuBM0YFn1TtO20a/aktivointi/kapea-laatikko/DSC57698-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAW5uKMmuF7gJ_Z4s3f7eULa/aktivointi/kapea-laatikko/DSC57698.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAybhPQM4IuBM0YFn1TtO20a/aktivointi/kapea-laatikko/DSC57698-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAW5uKMmuF7gJ_Z4s3f7eULa/aktivointi/kapea-laatikko/DSC57698.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAHcnLD4jD5oFt0hT48shFpa/aktivointi/kapea-laatikko/Image1-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADG2eOeABkKyTh5eT_HqUPva/aktivointi/kapea-laatikko/Image1.jpg)

@@ -29,6 +29,6 @@ Nameja jäädyttää myös suoraan jääpalamuottiin. Laitoin jääpalamuotin jo
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACSPI58FsqwKrhpBlMM4GWfa/aktivointi/jaan-sisalla-olevat-namit/DSC43352-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACLNR-IbnVo-JDY7ZSWV_cPa/aktivointi/jaan-sisalla-olevat-namit/DSC43352.jpg)
 
-[![](hhttps://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADty7M4wxYhRI9SRbA2cArea/aktivointi/jaan-sisalla-olevat-namit/DSC43440-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACdxaoTFv2V3TAjRgPbnCp1a/aktivointi/jaan-sisalla-olevat-namit/DSC43440.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADty7M4wxYhRI9SRbA2cArea/aktivointi/jaan-sisalla-olevat-namit/DSC43440-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACdxaoTFv2V3TAjRgPbnCp1a/aktivointi/jaan-sisalla-olevat-namit/DSC43440.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAmxd89Yud8AoPnVVGiCWsea/aktivointi/jaan-sisalla-olevat-namit/DSC42930-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB13CAd1pL4GxRGnpHTETJKa/aktivointi/jaan-sisalla-olevat-namit/DSC42930.jpg)
