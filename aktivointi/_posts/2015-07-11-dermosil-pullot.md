@@ -34,3 +34,13 @@ Itse olen laittanut pulloon vain nappuloita, koska pehmeät tai tahmeat herkut o
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADCMtstECWlTceSGOOMg40ha/aktivointi/dermosil-pullot/DSC50345-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABkzwBvpHfZPalhJOlFRxcUa/aktivointi/dermosil-pullot/DSC50345.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABH3jLlu3jkDJue0akI5kf7a/aktivointi/dermosil-pullot/DSC50022-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADC-rnBg3gvLZ33WDJex327a/aktivointi/dermosil-pullot/DSC50022.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADKJWzCqjAezb88XkzqpifRa/aktivointi/dermosil-pullot/DS05853-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAIuF6UjY-BTJTcrvdZWosqa/aktivointi/dermosil-pullot/DS05853.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAhpHer8wCdg1_nvA4uqFPNa/aktivointi/dermosil-pullot/DS05890-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADIILhxRw0ExTmdiXCqcIsba/aktivointi/dermosil-pullot/DS05890.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADH3aw6r6LdO0KzVsPJE0g4a/aktivointi/dermosil-pullot/DS05892-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC3T5W7ggnUo-hne1RJY1Sea/aktivointi/dermosil-pullot/DS05892.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADuNh9YkHzZPk-lkb_pokhRa/aktivointi/dermosil-pullot/DS05962-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAsSj8PnVYEtPgL6kXj16_4a/aktivointi/dermosil-pullot/DS05962.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAG3HiTG_WyO9i_f8Bmn8P6a/aktivointi/dermosil-pullot/DS05963-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACGklajDQfLrF-tQyu7yeWLa/aktivointi/dermosil-pullot/DS05963.jpg)

@@ -30,6 +30,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 29.2.2016 Updated activation post; Dermosil bottles
 * 12.2.2016 Updated activation post; Peek a hole
 * 12.2.2016 New activation post; Valentine's heart
 * 12.2.2016 New activation post; Paper rolls in a box
