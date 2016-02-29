@@ -3,7 +3,7 @@ title: "Kong Quest Star Pod"
 layout: article
 image:
   feature:
-  teaser: hhttps://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA3Ba_uoiG6TBevNPjF1v_Ua/aktivointilelut/kongit/DSC33990-245px.jpg
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA3Ba_uoiG6TBevNPjF1v_Ua/aktivointilelut/kongit/DSC33990-245px.jpg
   thumb:
 ---
 
