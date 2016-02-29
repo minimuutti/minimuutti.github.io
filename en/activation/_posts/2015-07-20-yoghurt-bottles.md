@@ -3,7 +3,7 @@ title: "Yoghurt bottles"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADwZWh1mGqEkNEOvDN9mAgFa/aktivointi/jogurttipullot/DSC52520-245px.jpg5
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADwZWh1mGqEkNEOvDN9mAgFa/aktivointi/jogurttipullot/DSC52520-245px.jpg
   thumb:
 ---
 
