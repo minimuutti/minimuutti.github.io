@@ -21,6 +21,7 @@
 	background-image: url(https://lh3.googleusercontent.com/kEQRnOwrnySq73PSoLg8OFcwtYX4KfUGajF_H-LToRw=s0);
 	background-position: center top;
 	background-repeat: no-repeat;
+	margin-bottom: 2em;
 }
 .site-title {
 	@include row;
@@ -38,12 +39,18 @@
 	text-transform: uppercase;
 	font-size: 3em;
 	width: auto !important;
+	@include media($small) {
+		font-size: 2em;
+	}
 }
 .site-subtitle {
 	float: right;
 	font-size: 0.4em;
 	margin: 0.2em 0.8em 0 0;
 	text-transform: none;
+	@include media($small) {
+		margin-right: 10em;
+	}
 }
 
 
@@ -104,7 +111,7 @@
 		@include span-columns(7);
 		ul {
 			position: absolute;
-			right: 0;
+			right: 2em;
 		}
 	}
 	.home,

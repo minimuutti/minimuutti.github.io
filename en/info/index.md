@@ -30,6 +30,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 2.3.2016 New activation post; Flippin' it
 * 29.2.2016 New treat dispenser; JW Playbites Caterpillar
 * 29.2.2016 Updated activation post; Dermosil bottles
 * 12.2.2016 Updated activation post; Peek a hole
@@ -60,8 +61,3 @@ New and recently updated posts:
 * 18.12.2015 New activation post; Sniffing course
 * 18.12.2015 New activation post; Pill jars
 * 5.12.2015 New activation post; Under the dome
-* 3.12.2015 New activation post; Obstacle course
-* 3.12.2015 New activation post; Hide and seek
-* 22.11.2015 New activation post; Spin the disk
-* 17.11.2015 New activation post; Searching in the dark
-* 14.11.2015 New activation post; Kong Traxx and towels
