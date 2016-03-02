@@ -13,7 +13,7 @@ Käytin tehtävässä fetajuuston purkista saatuja muovisia koreja, koska näiss
 
 Aloitin merkkaamalla kiinnityskohdat pahviin, jonka jälkeen tein pienet reijät merkattuihin kohtiin (katso kuvakollaasi sivun alaosassa, kuva 1). Pujotin kuusi nippusidettä noihin reikiin, jonka jälkeen pujotin korit paikoilleen (kuvakollaasin kohta 2).
 
-Tämän jälkeen pujotin nippusiteet noista toisista reijistä pahvin takapuolelle ja kiinnitin ne (kuvakollaasin kohta 3). En kiristänyt nippusiteitä tiukalle, jotta koreille jäi hieman liikkumavaraa (kuvakollaasin kohta 4.)
+Tämän jälkeen pujotin nippusiteet noista toisista reijistä pahvin takapuolelle ja kiinnitin ne (kuvakollaasin kohta 3). En kiristänyt nippusiteitä tiukalle, jotta koreille jäi hieman liikkumavaraa (kuvakollaasin kohta 4).
 
 Käytin tässä tehtävässä pieniä ankkafileen palasia, jotka laitoin noiden korien alle piiloon.
 
