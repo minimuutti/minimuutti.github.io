@@ -31,7 +31,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 Uudet ja viimeksi päivitetyt osiot:
 
 * 3.2.2016 Lisätty uusi aktivointivinkki; Flippailu
-* 29.2.2016 Lisätty uusi aktivointilelu: JW Playbites Caterpillar
+* 29.2.2016 Lisätty uusi aktivointilelu; JW Playbites Caterpillar
 * 29.2.2016 Päivitetty aktivointivinkki; Dermosil pullot
 * 12.2.2016 Päivitetty aktivointivinkki; Kurkkaa koloon
 * 12.2.2016 Lisätty uusi aktivointivinkki; Ystävänpäivän sydän
