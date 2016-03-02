@@ -21,6 +21,8 @@ Miki figured out this game super quickly. It took Miki no more than a few second
 
 ---
 
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAHDgmg9sIJGvJIlBrWW0uSa/aktivointi/flippailu/DS06021-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACxueSH1jID9X3k9zM_XWNPa/aktivointi/flippailu/DS06021.jpg)
+
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACbwAc5As9Rv0ZEhEnET0hIa/aktivointi/flippailu/DS06072-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC1jE7o_g1Qk7cFrjyGu4N9a/aktivointi/flippailu/DS06072.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAdcIWGvk8R4tyxlN_-41N7a/aktivointi/flippailu/DS06074-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACkO--Ab3Wla5fxImfc8z_Qa/aktivointi/flippailu/DS06074.jpg)
