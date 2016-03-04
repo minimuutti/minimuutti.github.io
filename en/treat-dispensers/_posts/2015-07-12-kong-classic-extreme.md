@@ -28,3 +28,21 @@ This classic toy is one of my favourite toys and it certainly is a versatile bor
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACpnTsdiwZCyQ6ZzHdtR-wRa/aktivointilelut/kongit/DSC14116_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC3IwQozsDOm3fS-BjNzfLWa/aktivointilelut/kongit/DSC14116_2.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACSvU-T9N-EddwzX3dEGK6ma/aktivointilelut/kongit/DSC30350_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQslRdrUkVJ7i3JiKyihMxa/aktivointilelut/kongit/DSC30350_2.jpg)
+
+I've used this toy also in the following games:
+
+[Cones:](http://minimuutti.com/en/activation/cones/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOZAAx7MN9lSDAZuzxKTyPa/aktivointi/totterot/DSC40378-800px.jpg)](http://minimuutti.com/en/activation/cones/)
+
+[Treat tube:](http://minimuutti.com/en/activation/treat-tube/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADb_1jJmaZ2HAOTX1KXkhLDa/aktivointi/putkipiilo/DSC47917-800px.jpg)](http://minimuutti.com/en/activation/treat-tube/)
+
+[Stuffed panda:](http://minimuutti.com/en/activation/stuffed-panda/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAovy7RC8sMOubZ18cCUyvxa/aktivointi/pehmopanda/DSC49437-800px.jpg)](http://minimuutti.com/en/activation/stuffed-panda/)
+
+[Kongs in cups:](http://minimuutti.com/en/activation/kongs-in-cups/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAPad9TgyJqORWgVqVVHFZ1a/aktivointi/kongit-mukeissa/DSC48179-800px.jpg)](http://minimuutti.com/en/activation/kongs-in-cups/)

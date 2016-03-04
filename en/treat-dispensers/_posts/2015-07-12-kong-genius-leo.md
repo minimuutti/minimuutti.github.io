@@ -26,3 +26,13 @@ Miki gets all the kibbles out from this toy in less than two minutes. In these p
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABj6FgTrj2qIOR19crEXRaIa/aktivointilelut/kongit/DSC23034_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC-k1JtLRjHJwQV9jdI0C75a/aktivointilelut/kongit/DSC23034_2.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABSHcIOn1kTdiMk_80NgRqza/aktivointilelut/kongit/DSC23081_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACjVhC8ATG80COwXylhjXpda/aktivointilelut/kongit/DSC23081_2.jpg)
+
+I've used this toy also in the following games:
+
+[Kongs in cups:](http://minimuutti.com/en/activation/kongs-in-cups/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAlPN0N_pKP1-8o0wWJq_Mua/aktivointi/kongit-mukeissa/DSC47968-800px.jpg)](http://minimuutti.com/en/activation/kongs-in-cups/)
+
+[Tug a fleece:](http://minimuutti.com/en/activation/tug-a-fleece/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACZqPq6gXdoNc87lplDucGua/aktivointi/solmupiilo/DS02879-800px.jpg)](http://minimuutti.com/en/activation/tug-a-fleece/)

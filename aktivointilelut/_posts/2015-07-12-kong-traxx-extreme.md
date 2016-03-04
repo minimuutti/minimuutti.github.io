@@ -26,3 +26,10 @@ Tätä rengasta voi helposti vaikeuttaa, mikäli omistat myös klassisen lumiukk
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAZu5CvIwOmnItS7Oq06GSsa/aktivointilelut/kongit/DSC30289_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAByNdpd7W-hif_rBh5vJJkca/aktivointilelut/kongit/DSC30289_2.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD1AqtwTdgvQpZ9Y3RBjyoja/aktivointilelut/kongit/DSC30282_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABkMPCxlCH1A7rb2fV2yobDa/aktivointilelut/kongit/DSC30282_2.jpg)
+
+I’ve used this toy also in the game:
+
+[Kong Traxx and towels:](http://minimuutti.com/en/activation/kong-traxx-and-towels/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADE-txlKM-zMtbe0Dg3DFaoa/aktivointi/kong-traxx-ja-pyyhe/DSC57081-800px.jpg)](http://minimuutti.com/en/activation/kong-traxx-and-towels/)
+

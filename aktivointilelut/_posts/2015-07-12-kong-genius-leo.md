@@ -26,3 +26,13 @@ Nappuloiden tyhjentäminen tästä Kongista kestää Mikiltä noin 1-2 minuuttia
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABj6FgTrj2qIOR19crEXRaIa/aktivointilelut/kongit/DSC23034_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC-k1JtLRjHJwQV9jdI0C75a/aktivointilelut/kongit/DSC23034_2.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABSHcIOn1kTdiMk_80NgRqza/aktivointilelut/kongit/DSC23081_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACjVhC8ATG80COwXylhjXpda/aktivointilelut/kongit/DSC23081_2.jpg)
+
+Tätä lelua on käytetty myös seuraavissa tehtävissä:
+
+[Kongit mukeissa:](http://minimuutti.com/aktivointi/kongit-mukeissa/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAlPN0N_pKP1-8o0wWJq_Mua/aktivointi/kongit-mukeissa/DSC47968-800px.jpg)](http://minimuutti.com/aktivointi/kongit-mukeissa/)
+
+[Solmupiilo:](http://minimuutti.com/aktivointi/solmupiilo/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACZqPq6gXdoNc87lplDucGua/aktivointi/solmupiilo/DS02879-800px.jpg)](http://minimuutti.com/aktivointi/solmupiilo/)
