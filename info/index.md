@@ -30,6 +30,11 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 5.3.2016 Päivitetty aktivointilelu; Aktivointipelit
+* 4.3.2016 Päivitetty aktivointilelu; Kong Classic Extreme
+* 4.3.2016 Päivitetty aktivointilelu; Kong Genius Leo
+* 4.3.2016 Päivitetty aktivointilelu; Kong Genius Mike
+* 4.3.2016 Päivitetty aktivointilelu; Kong Traxx Extreme
 * 3.2.2016 Lisätty uusi aktivointivinkki; Flippailu
 * 29.2.2016 Lisätty uusi aktivointilelu; JW Playbites Caterpillar
 * 29.2.2016 Päivitetty aktivointivinkki; Dermosil pullot

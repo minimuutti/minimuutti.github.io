@@ -30,6 +30,11 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 5.3.2016 Updated treat dispenser; Interactive games
+* 4.3.2016 Updated treat dispenser; Kong Classic Extreme
+* 4.3.2016 Updated treat dispenser; Kong Genius Leo
+* 4.3.2016 Updated treat dispenser; Kong Genius Mike
+* 4.3.2016 Updated treat dispenser; Kong Traxx Extreme
 * 2.3.2016 New activation post; Flippin' it
 * 29.2.2016 New treat dispenser; JW Playbites Caterpillar
 * 29.2.2016 Updated activation post; Dermosil bottles

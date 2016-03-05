@@ -13,7 +13,7 @@ These types of games are a good mental exercise for your dog. But your dog will 
  
 We were lucky to have a chance to try about ten different interactive games at our dog trainer’s place. Miki learned all of those games within 15 minutes, so we didn’t even bother to buy any of them.
 
-Instead we recycle almost every package and box and I make all sorts of diy interactive games from them for Miki, for example these.
+Instead of buying those expensive games from a pet store, try one of these games made from recycled household materials.
 
 You can read the full post by clicking the small icons.
 
