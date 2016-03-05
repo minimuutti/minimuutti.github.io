@@ -20,7 +20,7 @@ If you find this site useful and you want to support me, you can donate bitcoins
 
 If you live in Finland, please use the links below next time you buy something from Zooplus' online store or from Musti ja Mirri's online store.
 
-![](https://lh3.googleusercontent.com/AUAaUSf6KumRNBu44AgfXremIwS_DS6kP-EGC-d5zdEzurjUwdJoeR1QUa9AaQsgEk1hxPZELxkwdadQxd-b5yxb4GDJ6wc1g25aaCr6p9i3ehd2NTOp2BAd5oS6qroPWXxK6y3IBR7V_YCAKHUJc6LA8xx8p0JeF2TAkWy3xoYytoH26VrFdcL0G580DJekLAK-uAIpdHR-bIlLeAqW6Dhm_ehDtQ1lAKCtW1Fkip-8cwsXa1l5pL6uVX0qhu7YkyC3jPuPHvM1e7uxl3yGJ6fEuqhkkXpDfsWOngwM5HgMlptwlAn3IOpzF871G391pG_Uun3AnV9uZKB-Stw2tXRBSxI0yGUZS8wUZvfwm1xZxhSolKk61-K2RrFbsaiUD2d6MJfIU0wNgPG4amII2gCUsjdzLdI0UjSVNyiCelgv9Ssa70kIkl7r6PAEetuSuSwxb_k7UVaso1vhIqKt40enZrsrVNb6BDFhYjGcGpxi289qlQ8aDJU4JknloqaZkCLEQS5Fo2AiAfyiOZMG9drVsNqxJErttO6Pl31CmsY=w447)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACCzL-JjXAN7IzVNYX9e1iCa/muut/minimute_.jpg)
 
 ---
 

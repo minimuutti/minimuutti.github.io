@@ -20,7 +20,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 	1CGjZKmgEaHmbqvfMxKbVgDf38gSAKUgYa
 
-![](https://lh3.googleusercontent.com/T2AKpsd5XDhDlOFkaBTinOCVl7cRpR2_ld_sXtL7TuA=w447)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABJ4id2qnwExeeaa1empjHfa/muut/matkassa%20mukana.jpg)
 
 ---
 
