@@ -3,7 +3,7 @@ title: "Under the dome"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABVcaoxfr_0GHRa3zHILI1ua/aktivointi/under-the-dome/DSC58235_-245px.jpg
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5ETh_EIAJJQ9ImvQKzjZ3a/aktivointi/under-the-dome/DSC58235__-245px.jpg
   thumb:
 ---
 
