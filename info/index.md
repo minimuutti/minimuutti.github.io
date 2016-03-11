@@ -30,6 +30,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 11.3.2016 Lisätty uusi aktivointivinkki; Fleecekiepit
 * 11.3.2016 Lisätty uusi aktivointivinkki; Smoothie tölkit
 * 11.3.2016 Päivitetty aktivointivinkki; Tehtävälaatikko paperipalloilla
 * 11.3.2016 Päivitetty aktivointivinkki; Pyyhelaatikko
