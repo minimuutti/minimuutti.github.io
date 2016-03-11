@@ -30,6 +30,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 11.3.2016 New activation post; Smoothie cans
 * 5.3.2016 Updated treat dispenser; Interactive games
 * 4.3.2016 Updated treat dispenser; Kong Classic Extreme
 * 4.3.2016 Updated treat dispenser; Kong Genius Leo
