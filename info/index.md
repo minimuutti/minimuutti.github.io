@@ -31,6 +31,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 Uudet ja viimeksi päivitetyt osiot:
 
 * 11.3.2016 Lisätty uusi aktivointivinkki; Smoothie tölkit
+* 11.3.2016 Päivitetty aktivointivinkki; Tehtävälaatikko paperipalloilla
 * 5.3.2016 Päivitetty aktivointilelu; Aktivointipelit
 * 4.3.2016 Päivitetty aktivointilelu; Kong Classic Extreme
 * 4.3.2016 Päivitetty aktivointilelu; Kong Genius Leo
@@ -64,6 +65,3 @@ Uudet ja viimeksi päivitetyt osiot:
 * 2.1.2016 Lisätty uusia valokuvia kategoriaan; Kuvia Mikistä
 * 1.1.2016 Lisätty uusia valokuvia kategoriaan; Talvi
 * 1.1.2016 Päivitetty aktivointivinkki; Jotain muuta -leikki
-* 18.12.2015 Lisätty uusi aktivointivinkki; Haistelurata
-* 18.12.2015 Lisätty uusi aktivointivinkki; Pilleripurkit
-* 5.12.2015 Lisätty uusi aktivointivinkki; Under the dome

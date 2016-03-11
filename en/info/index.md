@@ -31,6 +31,7 @@ If you live in Finland, please use the links below next time you buy something f
 New and recently updated posts:
 
 * 11.3.2016 New activation post; Smoothie cans
+* 11.3.2016 Updated activation post; Taskbox with paper balls
 * 5.3.2016 Updated treat dispenser; Interactive games
 * 4.3.2016 Updated treat dispenser; Kong Classic Extreme
 * 4.3.2016 Updated treat dispenser; Kong Genius Leo
@@ -64,6 +65,3 @@ New and recently updated posts:
 * 2.1.2016 New photos added in category; Pictures of Miki
 * 1.1.2016 New photos added in category; Winter
 * 1.1.2016 Updated activation post; Something else -game
-* 18.12.2015 New activation post; Sniffing course
-* 18.12.2015 New activation post; Pill jars
-* 5.12.2015 New activation post; Under the dome
