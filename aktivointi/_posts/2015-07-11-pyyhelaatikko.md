@@ -65,7 +65,7 @@ Piilotin laatikkoon noin 10 isohkoa kuivaa namia pyyhkeiden sisään ja ruttasin
 
 ### Tehtävä 7
 
-Rullasin 2 isoa pyyhettä ja 5 pientä pyyhettä ja laitoin rullien sisälle nappuloita. Sitten asettelin rullat aika tiiviistä muoviseen koriin.
+Rullasin 2 isoa pyyhettä ja 5 pientä pyyhettä ja laitoin rullien sisälle nappuloita. Sitten asettelin rullat aika tiiviisti muoviseen koriin.
 
 Mikiltä kesti kaikkien nappuloiden löytäminen noin 3 minuuttia.
 

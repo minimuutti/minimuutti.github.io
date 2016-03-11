@@ -10,7 +10,7 @@ In the Classic Kong I usually put a dried chicken fillet, which I have folded in
 
 It normally takes Miki from two minutes to twenty minutes to get the chicken fillet out. Once I managed to tuck the chicken in the Kong so hard, that it took Miki 4 hours and 45 minutes to get it out, and he didn’t get tired or bored at any point. But hey, there was some chicken inside :D
 
-I like the Classic Kong toy very much, because it can also be frozen. I usually do larger portion of somekind  pâté paste and freeze three Kong toys at the same time. Miki usually licks a frozen Kong clean in 10 to 15 minutes. To keep the freezer clean I always freeze Kongs in yoghurt cups or on plates.
+I like the Classic Kong toy very much, because it can also be frozen. I usually do larger portion of pâté paste and freeze three Kong toys at the same time. Miki usually licks a frozen Kong clean in 10 to 15 minutes. To keep the freezer clean I always freeze Kongs in yoghurt cups or on plates.
 
 You can buy these pâtés in tubes. There are variations available like liver, salmon and chicken pâté. I mix unsweetened natural yoghurt with these pâtés or tuna flakes and then put the mix in the Kong. In addition, you can use unsweetened quark, cottage cheese, eggs, minced meat, chicken, peanut butter or smashed vegetables like carrot, sweet potato, lettuce, cucumber, zucchini, squash, broccoli, celery and banana. Do NOT use avocados, grapes, raisins, onions, chocolate or macadamian nuts because these contain substances that are toxic to dogs.
 You can use unsweetened and smashed blueberries too, if your dog can lick the Kong outside in the yard. I don’t give blueberries in the house because our rugs would probably be ruined after that.
