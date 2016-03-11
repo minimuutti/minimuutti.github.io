@@ -32,6 +32,7 @@ New and recently updated posts:
 
 * 11.3.2016 New activation post; Smoothie cans
 * 11.3.2016 Updated activation post; Taskbox with paper balls
+* 11.3.2016 Updated activation post; Towels in the box
 * 5.3.2016 Updated treat dispenser; Interactive games
 * 4.3.2016 Updated treat dispenser; Kong Classic Extreme
 * 4.3.2016 Updated treat dispenser; Kong Genius Leo

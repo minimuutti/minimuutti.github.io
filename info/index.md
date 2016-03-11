@@ -32,6 +32,7 @@ Uudet ja viimeksi päivitetyt osiot:
 
 * 11.3.2016 Lisätty uusi aktivointivinkki; Smoothie tölkit
 * 11.3.2016 Päivitetty aktivointivinkki; Tehtävälaatikko paperipalloilla
+* 11.3.2016 Päivitetty aktivointivinkki; Pyyhelaatikko
 * 5.3.2016 Päivitetty aktivointilelu; Aktivointipelit
 * 4.3.2016 Päivitetty aktivointilelu; Kong Classic Extreme
 * 4.3.2016 Päivitetty aktivointilelu; Kong Genius Leo

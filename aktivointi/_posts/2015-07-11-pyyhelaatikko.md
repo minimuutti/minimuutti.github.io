@@ -9,7 +9,7 @@ image:
 
 Pahvilaatikolla ja pyyhkeellä voi saada paljon kivaa aikaan. Laatikkoon voi laittaa suoraan muutaman namin pohjalle tai sitten laatikkoon voi laittaa jonkun tehtävän pyyhkeen alle piiloon. Tässä on muutamia esimerkkejä.
 
-### Variaatio 1
+### Tehtävä 1
 
 Laitoin pahvilaatikkoon muutaman namin ja asetin levitetyn kylpypyyhkeen laatikon päälle esteeksi. Namit katosivat noin puolessa minuutissa.
 
@@ -17,7 +17,7 @@ Laitoin pahvilaatikkoon muutaman namin ja asetin levitetyn kylpypyyhkeen laatiko
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAVEacVKNVXEjJR4Aa5PF8Wa/aktivointi/pyyhelaatikko/DSC44334-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADbHoRlWdLEx_AikCJeFleVa/aktivointi/pyyhelaatikko/DSC44334.jpg)
 
-### Variaatio 2
+### Tehtävä 2
 
 Laitoin pahvilaatikon pohjalle muutaman namin. Tämän jälkeen laitoin levitetyn kylpypyyhkeen laatikon päälle esteeksi, mutta taitoin pyyhkeen reunat laatikon alle piiloon. Namit katosivat alle minuutissa.
 
@@ -25,9 +25,9 @@ Laitoin pahvilaatikon pohjalle muutaman namin. Tämän jälkeen laitoin levitety
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABH1sKWkdV0SJtXq1QvYRcua/aktivointi/pyyhelaatikko/DSC44440-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAi8eEL02PDxOHQ6j5RAvdDa/aktivointi/pyyhelaatikko/DSC44440.jpg)
 
-### Variaatio 3
+### Tehtävä 3
 
-Tämän tein muuten samalla lailla kuin variaation 2, mutta taitoin pyyhkeen tiiviisti laatikon reunojen alle piiloon. Namit katosivat reilussa minuutissa.
+Tämän tein muuten samalla lailla kuin tehtävän 2, mutta taitoin pyyhkeen tiiviisti laatikon reunojen alle piiloon. Namit katosivat reilussa minuutissa.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVdjQJiXDLxPhtPHdYaUJca/aktivointi/pyyhelaatikko/DSC44452-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA7ronJQWN4wWcql-cSyGDca/aktivointi/pyyhelaatikko/DSC44452.jpg)
 
@@ -35,7 +35,7 @@ Tämän tein muuten samalla lailla kuin variaation 2, mutta taitoin pyyhkeen tii
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-x6hx9eEOQoWMnbgADFRZa/aktivointi/pyyhelaatikko/DSC44476-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADpLkLUGTMHxTSJm0WXBXvqa/aktivointi/pyyhelaatikko/DSC44476.jpg)
 
-### Variaatio 4
+### Tehtävä 4
 
 Laitoin pahvilaatikon pohjalle muutaman namin ja tämän jälkeen viikkasin pyyhkeen laatikon sisälle tiiviiksi esteeksi. Namit katosivat noin minuutissa.
 
@@ -43,7 +43,7 @@ Laitoin pahvilaatikon pohjalle muutaman namin ja tämän jälkeen viikkasin pyyh
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAApBhxLhlnJYf0ZbJyK2Z66a/aktivointi/pyyhelaatikko/DSC44393-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB94nBiltZA1E4zCmLcc61ya/aktivointi/pyyhelaatikko/DSC44393.jpg)
 
-### Variaatio 5
+### Tehtävä 5
 
 Laitoin pahvilaatikon pohjalle muutaman namin ja sen jälkeen viikkasin pyyhkeen laatikon sisälle tiiviiksi esteeksi laittaen nameja myös pyyhkeen taitosten väleihin. Mikiltä kesti noin 2 minuuttia löytää kaikki namit.
 
@@ -53,7 +53,7 @@ Laitoin pahvilaatikon pohjalle muutaman namin ja sen jälkeen viikkasin pyyhkeen
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABYLVT339HSGOj58uRLCYzGa/aktivointi/pyyhelaatikko/DSC44548-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABkYhsQuz2hN1sFK2cna78qa/aktivointi/pyyhelaatikko/DSC44548.jpg)
 
-### Variaatio 6
+### Tehtävä 6
 
 Laitoin pahvilaatikkoon neljä pientä pyyhettä ja yhden ison pyyhkeen, jotta laatikko tuli täyteen noista pyyhkeistä.
 
@@ -62,3 +62,19 @@ Piilotin laatikkoon noin 10 isohkoa kuivaa namia pyyhkeiden sisään ja ruttasin
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABv-xYHtz2rAYW0_UE1dMo-a/aktivointi/pyyhelaatikko/DSC32957-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADX23SgYiX-2PSJGBoQN_a3a/aktivointi/pyyhelaatikko/DSC32957.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJzFf-PFNfHG8IMD2FZ32Va/aktivointi/pyyhelaatikko/DSC32953-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADgW6DjKTl-sTsoyNHPiRTHa/aktivointi/pyyhelaatikko/DSC32953.jpg)
+
+### Tehtävä 7
+
+Rullasin 2 isoa pyyhettä ja 5 pientä pyyhettä ja laitoin rullien sisälle nappuloita. Sitten asettelin rullat aika tiiviistä muoviseen koriin.
+
+Mikiltä kesti kaikkien nappuloiden löytäminen noin 3 minuuttia.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACe6tQtP5dhtCBIw4EPEZuOa/aktivointi/pyyhelaatikko/DS05276-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABF9V57mOKEn9vrfR2qRaAea/aktivointi/pyyhelaatikko/DS05276.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAJ7HMkYezUAmCPu1zHZslja/aktivointi/pyyhelaatikko/DS05291-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADKey91UUoD_4UM6YC_su4oa/aktivointi/pyyhelaatikko/DS05291.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAQOUmvQ7Ymcrby_0z8iSHaa/aktivointi/pyyhelaatikko/DS05300-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADfYH9LGFgia9pYDUoLU9Dta/aktivointi/pyyhelaatikko/DS05300.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAgB0BSbMGrqdGSUjRd3KtIa/aktivointi/pyyhelaatikko/DS05306-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADscMq09vSXqkqQcp4CMDF1a/aktivointi/pyyhelaatikko/DS05306.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD5jWXkg273Z85X-EdIsFTLa/aktivointi/pyyhelaatikko/DS05320-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADi9zpe4nEB5kwSdMZNGiMZa/aktivointi/pyyhelaatikko/DS05320.jpg)
