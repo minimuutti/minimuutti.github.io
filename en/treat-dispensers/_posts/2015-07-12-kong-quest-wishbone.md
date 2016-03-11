@@ -22,3 +22,9 @@ The first time I gave this toy to Miki I put some leftover pieces of meat from t
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAg0jMwxjIu71aSfyVb7Gasa/aktivointilelut/kongit/DSC35101-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5JX1Z7Ovz6N3tASJpRtCXa/aktivointilelut/kongit/DSC35101.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAvJrBLyE3cWGQr9pmam4M3a/aktivointilelut/kongit/DSC25949_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC3mAwfCOGqcQXJbKJ79lf3a/aktivointilelut/kongit/DSC25949_2.jpg)
+
+I’ve used this toy also in the game:
+
+[Fleece wraps:](http://minimuutti.com/en/activation/fleece-wraps/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQNwBTbrzTttU0MWcmQ1R9a/aktivointi/fleecekiepit/DS06895-800px.jpg)](http://minimuutti.com/en/activation/fleece-wraps/)

@@ -29,8 +29,12 @@ Tätä rengasta voi helposti vaikeuttaa, mikäli omistat myös klassisen lumiukk
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD1AqtwTdgvQpZ9Y3RBjyoja/aktivointilelut/kongit/DSC30282_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABkMPCxlCH1A7rb2fV2yobDa/aktivointilelut/kongit/DSC30282_2.jpg)
 
-Tätä lelua on käytetty myös tehtävässä:
+Tätä lelua on käytetty myös tehtävissä:
 
 [Kong Traxx ja pyyhe:](http://minimuutti.com/aktivointi/kong-traxx-ja-pyyhe/)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADE-txlKM-zMtbe0Dg3DFaoa/aktivointi/kong-traxx-ja-pyyhe/DSC57081-800px.jpg)](http://minimuutti.com/aktivointi/kong-traxx-ja-pyyhe/)
+
+[Fleecekiepit:](http://minimuutti.com/aktivointi/fleecekiepit/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD3-pPBBv4bmldatbgMzZj8a/aktivointi/fleecekiepit/DS06648-800px.jpg)](http://minimuutti.com/aktivointi/fleecekiepit/)

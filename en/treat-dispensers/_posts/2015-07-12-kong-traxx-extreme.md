@@ -27,8 +27,12 @@ If you also have the Classic Kong, you can make this Traxx toy harder. Just put 
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD1AqtwTdgvQpZ9Y3RBjyoja/aktivointilelut/kongit/DSC30282_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABkMPCxlCH1A7rb2fV2yobDa/aktivointilelut/kongit/DSC30282_2.jpg)
 
-I’ve used this toy also in the game:
+I’ve used this toy also in these games:
 
 [Kong Traxx and towels:](http://minimuutti.com/en/activation/kong-traxx-and-towels/)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADE-txlKM-zMtbe0Dg3DFaoa/aktivointi/kong-traxx-ja-pyyhe/DSC57081-800px.jpg)](http://minimuutti.com/en/activation/kong-traxx-and-towels/)
+
+[Fleece wraps:](http://minimuutti.com/en/activation/fleece-wraps/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD3-pPBBv4bmldatbgMzZj8a/aktivointi/fleecekiepit/DS06648-800px.jpg)](http://minimuutti.com/en/activation/fleece-wraps/)

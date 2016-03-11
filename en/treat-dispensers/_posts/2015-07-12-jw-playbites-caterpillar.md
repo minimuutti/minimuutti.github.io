@@ -24,3 +24,9 @@ Usually I put pieces of dried chicken fillet in the holes and it can take Miki o
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAvWAefkiIPL2pht2CdcSVXa/aktivointilelut/muut/DS05663-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAClK_LavfhDNvZx8_XEszhFa/aktivointilelut/muut/DS05663.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADDqUDPraIqcqLIlrAH9O1oa/aktivointilelut/muut/DS05673-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABvVcmx0IS2D1XHiwlyRWfva/aktivointilelut/muut/DS05673.jpg)
+
+I’ve used this toy also in the game:
+
+[Fleece wraps:](http://minimuutti.com/en/activation/fleece-wraps/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACLOvk9Yb9PLXrqbY3hwRbTa/aktivointi/fleecekiepit/DS06789-800px.jpg)](http://minimuutti.com/en/activation/fleece-wraps/)

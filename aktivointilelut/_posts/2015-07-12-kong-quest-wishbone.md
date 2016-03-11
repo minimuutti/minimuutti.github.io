@@ -22,3 +22,9 @@ Ensimmäisellä kerralla laitoin tähän leluun keitetyn kivipiiran paloja, kun 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAg0jMwxjIu71aSfyVb7Gasa/aktivointilelut/kongit/DSC35101-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5JX1Z7Ovz6N3tASJpRtCXa/aktivointilelut/kongit/DSC35101.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAvJrBLyE3cWGQr9pmam4M3a/aktivointilelut/kongit/DSC25949_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC3mAwfCOGqcQXJbKJ79lf3a/aktivointilelut/kongit/DSC25949_2.jpg)
+
+Tätä lelua on käytetty myös tehtävässä:
+
+[Fleece kiepit:](http://minimuutti.com/aktivointi/fleecekiepit/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQNwBTbrzTttU0MWcmQ1R9a/aktivointi/fleecekiepit/DS06895-800px.jpg)](http://minimuutti.com/aktivointi/fleecekiepit/)
