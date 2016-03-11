@@ -9,7 +9,7 @@ image:
 
 Froosh’s new smoothie cans look like they were designed as dogs’ food puzzle toys.
 
-Because the cans are relatively small, they fit best for small or medium breed dogs. You need to wash the can thoroughly before you give it to your dog to play with. And you need to supervise your dog as he is playing with the can so that he won’t accidentally eat the metallic rim.
+Because the cans are relatively small, they fit best for small or medium sized dogs. You need to wash the can thoroughly before you give it to your dog to play with. And you need to supervise your dog as he is playing with the can so that he won’t accidentally eat the metallic rim.
 
 I put a large handful of kibbles in the can and it took Miki about 2 minutes to get all the kibbles out.
  
