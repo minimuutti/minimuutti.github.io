@@ -30,6 +30,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 14.3.2016 New photos added in category; Spring
 * 11.3.2016 New activation post; Fleece wraps
 * 11.3.2016 New activation post; Smoothie cans
 * 11.3.2016 Updated activation post; Taskbox with paper balls
@@ -66,4 +67,3 @@ New and recently updated posts:
 * 2.1.2016 Updated activation post; Advent calendars
 * 2.1.2016 New photos added in category; Pictures of Miki
 * 1.1.2016 New photos added in category; Winter
-* 1.1.2016 Updated activation post; Something else -game
