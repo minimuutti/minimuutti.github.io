@@ -3,7 +3,7 @@ title: "Puzzle mat"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABxAyk36geQT1CXb5H5rj3Aa/aktivointi/palapelimatto/DSC48067-245px.jpg
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAv0Q4utFypi1nSyIPlG-pba/aktivointi/palapelimatto/DS07724-245px.jpg
   thumb:
 ---
 
@@ -59,7 +59,9 @@ Miki sai etsiä myös palasista kootuista pinoista. Ensimmäisellä kerralla lai
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADHogVQiMvhk8sWcgfT2ioXa/aktivointi/palapelimatto/DSC48055-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABPGHGa4edEaCgjh3kiCqZpa/aktivointi/palapelimatto/DSC48055.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABhw5dBwuQflMoHkPRshCV3a/aktivointi/palapelimatto/DSC48067-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB978DBHhvLtFs0eKVLTiWqa/aktivointi/palapelimatto/DSC48067.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAQGbY88lwsgy9WMWSuAvUea/aktivointi/palapelimatto/DS07715-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD5SFb4y6ZtTSKIWcJH4SFza/aktivointi/palapelimatto/DS07715.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABnadZ8zUDQ1c8KnHrW_WZ2a/aktivointi/palapelimatto/DS07724-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAADN8dvIvA9AfnWTLxlv1Lha/aktivointi/palapelimatto/DS07724.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADTGIDzMl0TdWGCzidQfYxFa/aktivointi/palapelimatto/DSC48164-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD2gbeNs6cCAOnWL8tE_z6La/aktivointi/palapelimatto/DSC48164.jpg)
 
