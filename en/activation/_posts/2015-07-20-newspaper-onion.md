@@ -21,14 +21,12 @@ And for the same reason you might not want to give this to your dog every day be
 
 ---
 
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADlSxPTFIsMZ9xu6ggiR00oa/aktivointi/sanomalehtisipuli/DSC37686-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACPE77u0txV79hNBAQ0NiERa/aktivointi/sanomalehtisipuli/DSC37686.jpg)
+
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADmRMMthbwtU7FnREbFPbqXa/aktivointi/sanomalehtisipuli/DSC37688-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADLdEKW0cnIGE8xlnacvX8aa/aktivointi/sanomalehtisipuli/DSC37688.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD5sapJZTL8TZvBndkUrEIra/aktivointi/sanomalehtisipuli/DSC37787-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACuNlroVcLq02Qzgu6x28xja/aktivointi/sanomalehtisipuli/DSC37787.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADhtKmdQjNEGAGRTDAWUGifa/aktivointi/sanomalehtisipuli/DSC37764-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABT9c7WYULv6TxlCRFduMeEa/aktivointi/sanomalehtisipuli/DSC37764.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACr-ZzVCPInrdM73yyBe3kQa/aktivointi/sanomalehtisipuli/DSC37877-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC2OSsVR048pjRgMyRZEvg8a/aktivointi/sanomalehtisipuli/DSC37877.jpg)
-
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAChWkOMO2EZgJslXL17jhC0a/aktivointi/sanomalehtisipuli/DSC37824-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAKr4GUK4cHGJADoStDGiVLa/aktivointi/sanomalehtisipuli/DSC37824.jpg)
-
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAKuSYZFfgAOhs48rvGu300a/aktivointi/sanomalehtisipuli/DSC37961-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADnuLE5hn5a2QC7KoETgwz2a/aktivointi/sanomalehtisipuli/DSC37961.jpg)
