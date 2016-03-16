@@ -65,6 +65,24 @@ Mikiltä kesti noin 10 minuuttia saada kivipiiran palaset ulos tästä lelusta.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABM4Kzz-Imvs7LJb9hgAnHWa/aktivointi/fleecekiepit/DS06775-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACyYfJqU6rUjI1WzCfgRhQ_a/aktivointi/fleecekiepit/DS06775.jpg)
 
+##### Space ball stellaron
+
+Käytin tässä noin 6 cm levyistä fleecesuikaletta. Leikkasin ankkafileestä pieniä palasia ja rullasin suurimman osan niistä fleecen sisälle ennen kuin kieputin fleecen lelun kolosista. Muutaman ankkafileen palasen tungin lopuksi fleecen ja lelun väliin jääneisiin rakoihin.
+
+Mikiltä kesti noin 6 minuuttia saada kaikki namit syötyä.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACo03IUdGxNLIuhXPb9dIkVa/aktivointi/fleecekiepit/DS08060-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD8aCanLwSR05OgppL8cgEta/aktivointi/fleecekiepit/DS08060.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWpFjYOGdNJm4pzlNzXaZJa/aktivointi/fleecekiepit/DS08066-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABpz_LQ77rj6ZHvNLDc1hz5a/aktivointi/fleecekiepit/DS08066.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABB0qXNBsPMDwaNIQGIghoca/aktivointi/fleecekiepit/DS08123-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAeYQsL9DND7oAJdG2jH7Sfa/aktivointi/fleecekiepit/DS08123.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAGb_0YOjoWQdtmoz3b9Xs7a/aktivointi/fleecekiepit/DS08142-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAAW3NcXsnh2O7Mlxdi976za/aktivointi/fleecekiepit/DS08142.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACVAoaS6rXeuFm-6YPVN4f3a/aktivointi/fleecekiepit/DS08284-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB6C4dwTij87EdPYYuF-Tx7a/aktivointi/fleecekiepit/DS08284.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACTayRAXzqTxRqVOXTPOZa_a/aktivointi/fleecekiepit/DS08057-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQxEQqLyeaWG7GSPqfZ9Cda/aktivointi/fleecekiepit/DS08057.jpg)
+
 Tässä lopputulos, nämä tehtävät taisivat olla Mikin mielestä erityisen kivoja :)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAwU-PZnBSnjqgbJuMZko4Xa/aktivointi/fleecekiepit/DS06839-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADsPY2ns62W6iNRHdPtq3X7a/aktivointi/fleecekiepit/DS06839.jpg)

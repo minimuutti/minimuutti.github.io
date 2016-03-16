@@ -26,3 +26,7 @@ Mikiltä kesti noin 2-3 minuuttia saada nuo herkut syötyä.
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACfIX-YgmPNOhylcI0T_1H2a/aktivointi/space-ball-stellaron/DSC49692-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAuitBqzpwMtkq85A7epOeTa/aktivointi/space-ball-stellaron/DSC49692.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACDVTDYX5ny5xTTL34agEY3a/aktivointi/space-ball-stellaron/DSC49583-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAJWNMdoDeDbOpgN4Nlfeu_a/aktivointi/space-ball-stellaron/DSC49583.jpg)
+
+Tätä lelua on käytetty myös tehtävässä [Fleece kiepit](http://minimuutti.com/aktivointi/fleecekiepit/):
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABB0qXNBsPMDwaNIQGIghoca/aktivointi/fleecekiepit/DS08123-800px.jpg)](http://minimuutti.com/aktivointi/fleecekiepit/)

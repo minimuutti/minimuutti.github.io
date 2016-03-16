@@ -26,3 +26,7 @@ It took Miki about 2 to 3 minutes to get the treats out.
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACfIX-YgmPNOhylcI0T_1H2a/aktivointi/space-ball-stellaron/DSC49692-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAuitBqzpwMtkq85A7epOeTa/aktivointi/space-ball-stellaron/DSC49692.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACDVTDYX5ny5xTTL34agEY3a/aktivointi/space-ball-stellaron/DSC49583-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAJWNMdoDeDbOpgN4Nlfeu_a/aktivointi/space-ball-stellaron/DSC49583.jpg)
+
+I used this toy also in the game [Fleece wraps](http://minimuutti.com/en/activation/fleece-wraps/):
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABB0qXNBsPMDwaNIQGIghoca/aktivointi/fleecekiepit/DS08123-800px.jpg)](http://minimuutti.com/en/activation/fleece-wraps/)
