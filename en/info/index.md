@@ -30,6 +30,7 @@ If you live in Finland, please use the links below next time you buy something f
 
 New and recently updated posts:
 
+* 16.3.2016 New activation post; Toys on a stick
 * 16.3.2016 Updated activation post; Fleece wraps
 * 14.3.2016 Updated activation post; Two wash basins
 * 14.3.2016 Updated activation post; Puzzle mat
