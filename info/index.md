@@ -30,6 +30,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 17.3.2016 Lisätty uusi aktivointivinkki; Lokerikko
 * 16.3.2016 Lisätty uusi aktivointivinkki; Lelut tikussa
 * 16.3.2016 Päivitetty aktivointivinkki; Fleecekiepit
 * 14.3.2016 Päivitetty aktivointivinkki; Pesuvadit päällekkäin
