@@ -44,7 +44,7 @@ Paperipalloja paperirullan hylsyn sisällä:
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABi5-KQ6QRA7mNS8MFM1YBma/aktivointi/paperirullien-hylsyt/DSC52305-800px.jpg)](http://minimuutti.com/aktivointi/paperirullien-hylsyt/)
 
 Paperipallot tehtävälaatikossa:
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACTiwzE37jBhficWc127jyta/aktivointi/tehtavalaatikko-paperipalloilla/DSC25011_2-800px.jpg)](http://minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABn9YNcA-fV3CyahyG5jrhma/aktivointi/tehtavalaatikko-paperipalloilla/DS06203-800px.jpg)](http://minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/)
 
 ### Nappulat pahvilaatikoissa
 

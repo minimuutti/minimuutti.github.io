@@ -38,3 +38,7 @@ Tätä lelua on käytetty myös tehtävissä:
 [Fleecekiepit:](http://minimuutti.com/aktivointi/fleecekiepit/)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD3-pPBBv4bmldatbgMzZj8a/aktivointi/fleecekiepit/DS06648-800px.jpg)](http://minimuutti.com/aktivointi/fleecekiepit/)
+
+[Lelut tikussa:](http://minimuutti.com/aktivointi/lelut-tikussa/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADKJKsDBn_QIru8kDvuUbO5a/aktivointi/lelut-tikussa/DS07913-800px.jpg)](http://minimuutti.com/aktivointi/lelut-tikussa/)

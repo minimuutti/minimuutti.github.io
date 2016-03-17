@@ -36,3 +36,7 @@ I’ve used this toy also in these games:
 [Fleece wraps:](http://minimuutti.com/en/activation/fleece-wraps/)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD3-pPBBv4bmldatbgMzZj8a/aktivointi/fleecekiepit/DS06648-800px.jpg)](http://minimuutti.com/en/activation/fleece-wraps/)
+
+[Toys on a stick:](http://minimuutti.com/en/activation/toys-on-a-stick/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADKJKsDBn_QIru8kDvuUbO5a/aktivointi/lelut-tikussa/DS07913-800px.jpg)](http://minimuutti.com/en/activation/toys-on-a-stick/)

@@ -40,7 +40,7 @@ Paper balls in an empty paper roll:
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABi5-KQ6QRA7mNS8MFM1YBma/aktivointi/paperirullien-hylsyt/DSC52305-800px.jpg)](http://minimuutti.com/en/activation/empty-paper-rolls/)
 
 Paper balls in a taskbox:
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACTiwzE37jBhficWc127jyta/aktivointi/tehtavalaatikko-paperipalloilla/DSC25011_2-800px.jpg)](http://minimuutti.com/en/activation/taskbox-with-paper-balls/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABn9YNcA-fV3CyahyG5jrhma/aktivointi/tehtavalaatikko-paperipalloilla/DS06203-800px.jpg)](http://minimuutti.com/en/activation/taskbox-with-paper-balls/)
 
 ### Kibbles in cardboard boxes
 
