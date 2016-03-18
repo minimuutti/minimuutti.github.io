@@ -23,6 +23,8 @@ Mikiltä kesti noin 15 namin paikallistaminen ensimmäisellä kerralla noin 2-3 
 
 ---
 
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-EQgogn4wocy8Atw-1uPja/aktivointi/lokerikko/DS08692-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACLRM7hTaa6yN26v0Vx-iXma/aktivointi/lokerikko/DS08692.jpg)
+
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACdIr6UrVouGo8fOfdggXK8a/aktivointi/lokerikko/DS08485-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABvxrbHls8R8Y6KisQorX2va/aktivointi/lokerikko/DS08485.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAArMVweA-EyjZo_2dMj0T3pa/aktivointi/lokerikko/DS08590-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC4B8VOfwvnqbeseqntEX2Ra/aktivointi/lokerikko/DS08590.jpg)
