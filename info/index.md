@@ -30,6 +30,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 28.3.2016 Lisätty uusia valokuvia kategoriaan; Kevät
 * 18.3.2016 Lisätty uusi aktivointivinkki; Fleecerullat
 * 18.3.2016 Lisätty uusi aktivointivinkki; Laatikon arvoitus
 * 17.3.2016 Lisätty uusi aktivointivinkki; Lokerikko
@@ -37,7 +38,6 @@ Uudet ja viimeksi päivitetyt osiot:
 * 16.3.2016 Päivitetty aktivointivinkki; Fleecekiepit
 * 14.3.2016 Päivitetty aktivointivinkki; Pesuvadit päällekkäin
 * 14.3.2016 Päivitetty aktivointivinkki; Palapelimatto
-* 14.3.2016 Lisätty uusia valokuvia kategoriaan; Kevät
 * 11.3.2016 Lisätty uusi aktivointivinkki; Smoothie tölkit
 * 11.3.2016 Päivitetty aktivointivinkki; Tehtävälaatikko paperipalloilla
 * 11.3.2016 Päivitetty aktivointivinkki; Pyyhelaatikko
