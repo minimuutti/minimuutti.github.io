@@ -3,13 +3,19 @@ title: "Aktivointi"
 layout: category
 ---
 
-Koirat tarvitsevat fyysisten aktiviteettien lisäksi myös muita virikkeitä, jossa ne joutuvat käyttämään aivojaan. Tästä kategoriasta löydät paljon erilaisia haistelu- ja älytehtäviä, itsetehtyjä aktivointipelejä sekä muita aktivointi vinkkejä koiralle.
+Koirat tarvitsevat fyysisten aktiviteettien lisäksi myös muita virikkeitä, jossa ne joutuvat käyttämään aivojaan.
+
+Eräässä tutkimuksessa tutkittiin koiria, joista puolet suorittivat tehtäviä ansaitakseen niistä palkkion. Toinen puoli ryhmästä, verrokkiryhmä, sai samat palkkiot mutta ne eivät saaneet tilaisuutta työskennellä palkkioiden eteen. Lyhyesti sanottuna tutkimuksessa päästiin siihen tulokseen, että koirat jotka suorittivat tehtäviä palkkioiden eteen, olivat onnellisempia ja tyytyväisempiä kuin verrokkiryhmä.
+
+Tutkimustulos vapaasti suomennettuna: *Tutkittavat koirat eivät innostuneet ainoastaan palkkion odotuksesta vaan myös siitä, että he ymmärsivät voivansa vaikuttaa ympäristöönsä palkkion saamiseksi. Mahdollisuus ratkoa ongelmia, tehdä päätöksiä ja käyttää kognitiivisia kykyjään on tärkeää eläimelle ja sen hyvinvoinnille.*
+
+Voit lukea tutkimuksesta lisää [täältä](http://www.companionanimalpsychology.com/2014/06/do-dogs-get-eureka-feeling.html?platform=hootsuite), artikkeli on englanninkielinen.
+
+Tästä kategoriasta löydät paljon erilaisia haistelu- ja älytehtäviä, itsetehtyjä aktivointipelejä sekä muita aktivointi vinkkejä koiralle.
 
 20 minuutin aktivointi vastaa noin kahden tunnin lenkkiä, joka pitäisi riittää väsyttämään useimmat koirat. Mikiä lenkitetään arkena noin 3 tuntia päivässä ja viikonloppuisin 3-4 tuntia päivässä. Lenkkien lisäksi Mikiä aktivoidaan noin 1–1,5 tuntia joka päivä. Syys-talvi-kevät kausilla Mikin kanssa käydään myös juoksemassa keskimäärin pari kertaa viikossa.
 
-Edellinen koirakouluttajamme ei uskonut, että Miki on TODELLA energinen vaikka sitä vakuutin ennen ensimmäistä tapaamistamme. Kun kouluttaja tajusi miten energisen yksilön kanssa on tekemisissä, hän ehdotti että ennen harjoituksia kannattaa Mikille heittää muutama naminpalanen ruohikkoon etsittäväksi "se jos mikä väsyttää koiran kuin koiran". Toimii ehkä normaalienergisillä koirilla ja vielä ehkä ennemmin sellaisilla yksilöillä, jotka eivät ole tottuneet hajutyöskentelyyn tai eivät ole ennen saaneet etsiä ruokaansa.
-
-Mikin päivittäisestä aktivoinnista noin 20 minuuttia on erilaisia ruuanetsimistehtäviä; esimerkiksi etsiminen ruohikosta, puusta, lumihangesta tai piilotettuna asunnosta, etsimistä sitä jostain väsäämästäni "laatikkoleikistä" (näistä lisää myöhemmin) tai kaupasta ostetuista aktivointilelusta. Voitte tästä helposti päätellä, ettei kouluttajan ehdottama muutaman namin etsiminen ruohikosta vaikuta suuntaan eikä toiseen.
+Mikin päivittäisestä aktivoinnista noin 20 minuuttia on erilaisia ruuanetsimistehtäviä; esimerkiksi etsiminen ruohikosta, puusta, lumihangesta tai piilotettuna asunnosta, etsimistä sitä jostain väsäämästäni "laatikkoleikistä" (näistä lisää myöhemmin) tai kaupasta ostetuista aktivointilelusta.
 
 ### Nenän käyttö ja etsiminen
 
@@ -23,14 +29,14 @@ Koirille jotka pitävät leluista ja leikkimisestä, voi myös piilottaa leluja 
 
 Ja mikäli koirasi saa kulkea ilman hihnaa, niin metsälenkillä kannattaa vaikka pyytää etsimään piiloon mennyt henkilö.
 
-Täältä löydät erilaisia etsimis- ja haistelutehtäviä, joita me Mikin kanssa teemme päivittäin. Kuivilla nameilla näissä tarkoitan esim. nappuloita tai muita sellaisia kiinteitä nameja, jotka eivät hajoa tai muussaannu litistettäessä (eli ei esim. nakkeja/juustoa/tuoretta lihaa/kinkkua).
+Täältä löydät erilaisia etsimis- ja haistelutehtäviä, joita me Mikin kanssa teemme päivittäin.
 
 ### Pulmat ja ongelmien ratkominen
 
 Koiralle järjestettyjen pulmien ja ongelmien ratkominen kuluttaa energiaa. Alta löydät vinkkejä myös erilaisista ongelmanratkomistehtävistä.
 
-Koiraa ei pidä auttaa tehtävissä, koska koiran energia kuluu juuri siinä aivotyöskentelyssä. Itse kyllä kehun Mikiä, kun se pääsee uudessa tehtävässä oikeille jäljille, mutta muutoin Miki saa pähkäillä itse.
+Koiraa ei pidä auttaa tehtävissä, koska koiran energia kuluu juuri siinä aivotyöskentelyssä ja samalla koiran itsetunto kasvaa kun se onnistuu itse. Samasta syystä kannattaa aina aloittaa niin helpoista tehtävistä, että koira varmasti pystyy ratkaisemaan ne ilman apua. Itse kyllä kehun Mikiä, kun se pääsee uudessa tehtävässä oikeille jäljille, mutta muutoin Miki saa pähkäillä itse.
 
-Koiraa kannattaa aina valvoa sen suorittaessa sille annettuja tehtäviä, jotta koira ei tulisi syöneeksi mitään syötäväksi kelpaamatonta tai loukkaisi itseään muuten. Ja tehtävissä kannattaa käyttää sellaisia materiaaleja joissa ei ole myrkyllisiä kemikaaleja tai pieniä irtoilevia osasia.
+Koiraa tulee aina valvoa sen suorittaessa sille annettuja tehtäviä, jotta koira ei tulisi syöneeksi mitään syötäväksi kelpaamatonta tai loukkaisi itseään muuten. Ja tehtävissä kannattaa käyttää sellaisia materiaaleja joissa ei ole myrkyllisiä kemikaaleja tai pieniä irtoilevia osasia.
 
 Klikkaamalla kuvia saat auki tarkemmat tiedot ja kuvat kyseisestä tehtävästä.
