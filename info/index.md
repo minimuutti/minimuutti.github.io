@@ -14,7 +14,7 @@ Twitterissä: @minimuutti
 
 Mikäli sinulla on hyviä aktivointivinkkejä tai kommentteja, tai olet kiinnostunut ostamaan jonkun valokuvistani, niin älä epäröi ottaa yhteyttä.
 
-Mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani, niin käytäthän alla olevia linkkejä kun seuraavan kerran asioit Zooplussan tai Mustin ja Mirrin verkkokaupassa. Linkit avautuvat klikkaamalla kuvia.
+Mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani, niin käytäthän alla olevaa linkkiä kun seuraavan kerran asioit Zooplussan verkkokaupassa. Linkki avautuu klikkaamalla kaupan logoa.
 
 Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
@@ -22,11 +22,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABJ4id2qnwExeeaa1empjHfa/muut/matkassa%20mukana.jpg)
 
----
-
 [![](https://lh3.googleusercontent.com/MKwfsbFq7uu2wQQcpBMKzbeTWG_X6GHIw91FFzQ2LGw=w447)](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/))
-
-[![](https://lh3.googleusercontent.com/UZD-YzdoKAGryUkQuoqAk57k_KeHYAZov20i14umJcM=w447)](http://clk.tradedoubler.com/click?p(240480)a(2526211)g(21401374)url(https://www.mustijamirri.fi/))
 
 Uudet ja viimeksi päivitetyt osiot:
 

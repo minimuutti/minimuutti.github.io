@@ -8,7 +8,7 @@ image:
 ---
 
 Pujotin kaksinkertaisen villalangan neulalla herkkujen läpi helminauhaksi. Tähän kannattaa käyttää jotain sitkeitä herkkuja, jotta ne eivät suoraan putoile pois tuosta langasta. Itse käytin 
-[Racinel Pihvitikkupaloja](http://clk.tradedoubler.com/click?p(240480)a(2526211)g(21401374)url(https://www.mustijamirri.fi/racinel-snacks-pihvitikkupalat-harka-lammas-60-g-025948-1)), [ankkafileen paloja](http://clk.tradedoubler.com/click?p(240480)a(2526211)g(21401374)url(https://www.mustijamirri.fi/brit-care-let-s-bite-ankanrinta-80-g-018621-1)) sekä [kanafileen paloja](http://clk.tradedoubler.com/click?p(240480)a(2526211)g(21401374)url(https://www.mustijamirri.fi/brit-care-let-s-bite-kanasiivut-80-g-019885-1)). Jokainen lanka oli noin kaksi metriä pitkä eli kaksin kerroin taitettuna noin metrin pituinen.
+Racinel Pihvitikkupaloja, ankkafileen paloja sekä kanafileen paloja. Jokainen lanka oli noin kaksi metriä pitkä eli kaksin kerroin taitettuna noin metrin pituinen.
 
 Solmin helminauhat yksitellen puun oksaan ja annoin Mikille luvan syödä. Mikiltä kesti noin 2-3 minuuttia saada kaikki herkut syötyä. Herkkuhelmet voi yhtä hyvin kiinnittää vaikka johonkin kaiteeseen tai tikapuihin. Ovenkahvaan en suosittele näitä kiinnittämään, koska ainakin Mikillä on tapana raapia kaikkea mitä se yrittää tavoitella.
 

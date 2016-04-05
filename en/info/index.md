@@ -18,15 +18,11 @@ If you find this site useful and you want to support me, you can donate bitcoins
 
 	1CGjZKmgEaHmbqvfMxKbVgDf38gSAKUgYa
 
-If you live in Finland, please use the links below next time you buy something from Zooplus' online store or from Musti ja Mirri's online store.
+If you live in Finland, please use the link below next time you buy something from Zooplus' online store.
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACCzL-JjXAN7IzVNYX9e1iCa/muut/minimute_.jpg)
 
----
-
 [![](https://lh3.googleusercontent.com/MKwfsbFq7uu2wQQcpBMKzbeTWG_X6GHIw91FFzQ2LGw=w447)](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/))
-
-[![](https://lh3.googleusercontent.com/UZD-YzdoKAGryUkQuoqAk57k_KeHYAZov20i14umJcM=w447)](http://clk.tradedoubler.com/click?p(240480)a(2526211)g(21401374)url(https://www.mustijamirri.fi/))
 
 New and recently updated posts:
 
