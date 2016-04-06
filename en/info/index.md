@@ -26,6 +26,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 6.4.2016 New treat dispenser post; Toys combined
 * 28.3.2016 New photos added in category; Spring
 * 18.3.2016 New activation post; Fleece puzzle
 * 18.3.2016 New activation post; Mystery box
@@ -66,6 +67,3 @@ New and recently updated posts:
 * 14.1.2016 Updated activation post; All eggs in one basket
 * 11.1.2016 New activation post; Spray bottles
 * 10.1.2016 New activation post; Corals
-* 2.1.2016 Updated activation post; Advent calendars
-* 2.1.2016 New photos added in category; Pictures of Miki
-* 1.1.2016 New photos added in category; Winter
