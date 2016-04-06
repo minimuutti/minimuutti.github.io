@@ -42,3 +42,9 @@ Tätä lelua on käytetty myös tehtävissä:
 [Lelut tikussa:](http://minimuutti.com/aktivointi/lelut-tikussa/)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADKJKsDBn_QIru8kDvuUbO5a/aktivointi/lelut-tikussa/DS07913-800px.jpg)](http://minimuutti.com/aktivointi/lelut-tikussa/)
+
+[Yhdistetyt lelut:](http://minimuutti.com/aktivointilelut/yhdistetyt-lelut/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACNRPAizIA9or6AtcYVWA8Ja/aktivointilelut/muut/DS11210-800px.jpg)](http://minimuutti.com/aktivointilelut/yhdistetyt-lelut/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVdyKh5IiXBOlvKuKfkuwna/aktivointilelut/muut/DS11052-800px.jpg)](http://minimuutti.com/aktivointilelut/yhdistetyt-lelut/)
