@@ -32,17 +32,17 @@ Samaa voi kokeilla niin, että namit ovat vaunussa palikoiden väleissä.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADEjT1VfuRbijxA97SI7A2oa/aktivointi/ikean-mula-vaunu/DSC42852-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADcEC3E5laTWH1YPFxDR2RDa/aktivointi/ikean-mula-vaunu/DSC42852.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABiC_aujC2ZnhbTH0jaVY5Ha/aktivointi/kaksi-laatikkoa-sisakkain/DSC42855-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABxZXR9AaPC7V2U7WNY5bWxa/aktivointi/kaksi-laatikkoa-sisakkain/DSC42855.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQsAuCCD-2U3LFwEmX4V97a/aktivointi/karryn-vetaminen/DSC42855-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOHEOFgIPVNmncUdDfKx9ga/aktivointi/karryn-vetaminen/DSC42855.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADroqmjRQyxvjdZAzAlXQP_a/aktivointi/kaksi-laatikkoa-sisakkain/DSC42862-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA9UEUB8WKrEtQ27d9uYx_Xa/aktivointi/kaksi-laatikkoa-sisakkain/DSC42862.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAATmOgorQd8kThTAJyuO4R5a/aktivointi/karryn-vetaminen/DSC42862-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABvriuAQbo80zzOmp0eNU2Oa/aktivointi/karryn-vetaminen/DSC42862.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABk0Vm3csjPa7cThUfDG8zga/aktivointi/kaksi-laatikkoa-sisakkain/DSC42890-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADTiSosq-S8D1yHzpObt8bEa/aktivointi/kaksi-laatikkoa-sisakkain/DSC42890.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADoS8H8wDz-no0D51Eypgbna/aktivointi/karryn-vetaminen/DSC42890-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADmXWELk_EDYcu_ONdTk1a8a/aktivointi/karryn-vetaminen/DSC42890.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACToOmzZx3FcO5Unh4mM_Vba/aktivointi/kaksi-laatikkoa-sisakkain/DSC42919-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABDDBlg8MWPyS1lgl0kojmTa/aktivointi/kaksi-laatikkoa-sisakkain/DSC42919.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABHmzHkp6Cb8j0M5pn1YH8Ia/aktivointi/karryn-vetaminen/DSC42919-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC1YtUeSLOZ2uTT4cWz64mTa/aktivointi/karryn-vetaminen/DSC42919.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACqX_zQ5FbqJOCxa5c8RmAua/aktivointi/kaksi-laatikkoa-sisakkain/DSC42929-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_pIEJrz7TKqNTI-cZU7t1a/aktivointi/kaksi-laatikkoa-sisakkain/DSC42929.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAp3zoa5J6Fwts7ir_s0szma/aktivointi/karryn-vetaminen/DSC42929-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAABiZEG1DbKKXd7hqe_elp5a/aktivointi/karryn-vetaminen/DSC42929.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADceMO0zwwKBcsG5nkTDn9-a/aktivointi/kaksi-laatikkoa-sisakkain/DSC54173-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADh0BKEZlI012Xox7GGG8mXa/aktivointi/kaksi-laatikkoa-sisakkain/DSC54173.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADbPmql-hJ1bIP4Vj4mhwpIa/aktivointi/karryn-vetaminen/DSC54173-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADIoavWNbMt6GhC70BXD0-ga/aktivointi/karryn-vetaminen/DSC54173.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB2GRkUHIIHr9nHBWg1DU7ja/aktivointi/ikean-mula-vaunu/DSC42357-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACpexnz988ntJdF--vwLw4ya/aktivointi/ikean-mula-vaunu/DSC42357.jpg)
 
