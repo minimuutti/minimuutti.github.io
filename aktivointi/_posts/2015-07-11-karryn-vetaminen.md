@@ -3,7 +3,7 @@ title: "Kärryn vetäminen"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACdJfCbzqMKQuUC2HaoqNAFa/aktivointi/kaksi-laatikkoa-sisakkain/DSC42890-245px.jpg
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABjar_ajBbK1fKwNN6mrNjza/aktivointi/karryn-vetaminen/DSC42890-245px.jpg
   thumb:
 
 ---
