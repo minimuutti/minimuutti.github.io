@@ -104,6 +104,26 @@ It took Miki about 2 minutes to get all the kibbles out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACIUSOPiJUb1Fc83ROAFl8Pa/aktivointi/paperirullien-hylsyt/DS03198-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADk38PDvxmfroIBl4WoWQJ1a/aktivointi/paperirullien-hylsyt/DS03198.jpg)
 
+#### Rolls in treat buckets
+
+I put three empty rolls in a dog treat bucket. Then I sprinkled some kibbles on the bottom and then I closed the package with a second treat bucket.
+
+Three rolls fits just into the bucket, so you don't need to attach the buckets together because the rolls keep them nicely together.
+
+It took Miki just under a minute to get the kibbles out.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACQOSxhS1vxzm9w69SW3KMVa/aktivointi/paperirullien-hylsyt/DS12318-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADDrQA159iXFeGrJqUl7xRZa/aktivointi/paperirullien-hylsyt/DS12318.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAXAeZwqPrcS4c21sK0MiG9a/aktivointi/paperirullien-hylsyt/DS12458-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC9vLlUvVmnGjJ-DoK_LLH2a/aktivointi/paperirullien-hylsyt/DS12458.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACycU_JWnfVZyrJuO3XLNyia/aktivointi/paperirullien-hylsyt/DS12388-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAxhdSTRkPnUhJr5j4-K2OOa/aktivointi/paperirullien-hylsyt/DS12388.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD6i693KgLe-Rro6qD9NFVTa/aktivointi/paperirullien-hylsyt/DS12399-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB625YU5MlR5Ht5HqJTkAgJa/aktivointi/paperirullien-hylsyt/DS12399.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA5hwjHSU1wN3cdzGqmcKEsa/aktivointi/paperirullien-hylsyt/DS12411-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADd_4IOGGOt7XmyjpD2HA7Za/aktivointi/paperirullien-hylsyt/DS12411.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADYF8jGPDkg5qtR8cH8qr-Ca/aktivointi/paperirullien-hylsyt/DS12452-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAoqUi5tVJ541_4as5T7fPCa/aktivointi/paperirullien-hylsyt/DS12452.jpg)
+
 #### Fleece hexagon
 
 I cut a 17cm x 75cm piece of fleece. I put a few strings of semi-moist duck fillet and some kibbles on top of the fleece. Then I rolled the fleece into a long tube.

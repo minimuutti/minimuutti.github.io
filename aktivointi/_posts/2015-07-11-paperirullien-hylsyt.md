@@ -113,6 +113,26 @@ Mikiltä kesti noin 2 minuuttia saada kaikki nappulat syötyä.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACIUSOPiJUb1Fc83ROAFl8Pa/aktivointi/paperirullien-hylsyt/DS03198-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADk38PDvxmfroIBl4WoWQJ1a/aktivointi/paperirullien-hylsyt/DS03198.jpg)
 
+#### Rullat namiämpäreissä
+
+Laitoin kolme talouspaperirullan hylsyä tyhjään namiämpäriin. Laitoin rullien sisälle muutamia nappuloita ja suljin paketin toisella namiämpärillä.
+
+Rullat mahtuvat ämpäriin juuri ja juuri, joten ne pitävät nuo ämpärit hyvin kiinni toisissaan.
+
+Mikiltä kesti vajaan minuutin saada namit ulos.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACQOSxhS1vxzm9w69SW3KMVa/aktivointi/paperirullien-hylsyt/DS12318-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADDrQA159iXFeGrJqUl7xRZa/aktivointi/paperirullien-hylsyt/DS12318.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAXAeZwqPrcS4c21sK0MiG9a/aktivointi/paperirullien-hylsyt/DS12458-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC9vLlUvVmnGjJ-DoK_LLH2a/aktivointi/paperirullien-hylsyt/DS12458.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACycU_JWnfVZyrJuO3XLNyia/aktivointi/paperirullien-hylsyt/DS12388-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAxhdSTRkPnUhJr5j4-K2OOa/aktivointi/paperirullien-hylsyt/DS12388.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD6i693KgLe-Rro6qD9NFVTa/aktivointi/paperirullien-hylsyt/DS12399-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB625YU5MlR5Ht5HqJTkAgJa/aktivointi/paperirullien-hylsyt/DS12399.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA5hwjHSU1wN3cdzGqmcKEsa/aktivointi/paperirullien-hylsyt/DS12411-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADd_4IOGGOt7XmyjpD2HA7Za/aktivointi/paperirullien-hylsyt/DS12411.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADYF8jGPDkg5qtR8cH8qr-Ca/aktivointi/paperirullien-hylsyt/DS12452-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAoqUi5tVJ541_4as5T7fPCa/aktivointi/paperirullien-hylsyt/DS12452.jpg)
+
 #### Kuusikulmio fleecellä
 
 Leikkasin fleecestä noin 17cm x 75cm palasen. Laitoin sisälle muutaman ankkafileen palasen sekä joitain nappuloita ja rullasin fleecen pitkäksi pötköksi.

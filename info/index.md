@@ -26,6 +26,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 9.4.2016 Päivitetty aktivointivinkki; Paperirullien hylsyt
 * 9.4.2016 Lisätty uusi aktivointivinkki; Kananmunakotelot
 * 9.4.2016 Päivitetty aktivointivinkki; Kärryn vetäminen
 * 9.4.2016 Lisätty uusi aktivointivinkki; Laatikot sisäkkäin
@@ -54,7 +55,6 @@ Uudet ja viimeksi päivitetyt osiot:
 * 6.2.2016 Lisätty uusi aktivointivinkki; Paperikuplat
 * 5.2.2016 Lisätty uusi aktivointivinkki; Lentävä lautanen
 * 5.2.2016 Päivitetty aktivointivinkki; Purkin pyöritys
-* 30.1.2016 Lisätty uusi aktivointivinkki; Paperirullien hylsyt
 * 29.1.2016 Lisätty uusi aktivointivinkki; Solmupiilo
 * 28.1.2016 Lisätty uusi aktivointivinkki; Pyyheköysi
 * 28.1.2016 Päivitetty aktivointivinkki; Farkkuletti

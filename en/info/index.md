@@ -26,6 +26,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 9.4.2016 Updated activation post; Empty paper rolls
 * 9.4.2016 New activation post; Egg cartons
 * 9.4.2016 Updated activation post; Pulling cart
 * 9.4.2016 New activation post; Nested packages
@@ -54,7 +55,6 @@ New and recently updated posts:
 * 6.2.2016 New activation post; Reversed muffin tray
 * 5.2.2016 New activation post; Flying saucer
 * 5.2.2016 Updated activation post; Kibble dispenser
-* 30.1.2016 New activation post; Empty paper rolls
 * 29.1.2016 New activation post; Tug a fleece
 * 28.1.2016 New activation post; Towels on rope
 * 28.1.2016 Updated activation post; Denim plait
