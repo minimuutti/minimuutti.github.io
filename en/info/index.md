@@ -26,6 +26,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 9.4.2016 New activation post; Nested packages
 * 6.4.2016 New activation post; Paper bags
 * 6.4.2016 New activation post; Coral cappuccino
 * 6.4.2016 New treat dispenser post; Toys combined

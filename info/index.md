@@ -26,6 +26,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 9.4.2016 Lisätty uusi aktivointivinkki; Laatikot sisäkkäin
 * 6.4.2016 Lisätty uusi aktivointivinkki; Paperikassit
 * 6.4.2016 Lisätty uusi aktivointivinkki; KoralliCappuccino
 * 6.4.2016 Lisätty aktivointilelut kategoriaan; Yhdistetyt lelut

@@ -25,8 +25,6 @@ Näitäkin tehtäviä voi vaikeuttaa ripustamalla namipaketin roikkumaan kaitees
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC0RwZNgimKobSHF_jfMmawa/aktivointi/kartonkipakkaukset/DS04438-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA9es0G8HdT66nwhzYaU-Rma/aktivointi/kartonkipakkaukset/DS04438.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADaNQ6HoXnZMEeaAziZF-JWa/aktivointi/kartonkipakkaukset/DSC42631-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAe7kwqdObm85EqoOYiEv0ma/aktivointi/kartonkipakkaukset/DSC42631.jpg)
-
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABs4t-S8We3IrSQYAVg91wha/aktivointi/kartonkipakkaukset/DSC33827-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC6U3xIL_aIwkR6pFnXxUeQa/aktivointi/kartonkipakkaukset/DSC33827.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAuSzjvx5TSGAtuVH86a0_Sa/aktivointi/kartonkipakkaukset/DSC56453-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADkWmREB6weO08F6Y1MF3GYa/aktivointi/kartonkipakkaukset/DSC56453.jpg)
