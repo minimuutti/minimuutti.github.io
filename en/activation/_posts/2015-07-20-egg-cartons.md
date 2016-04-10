@@ -11,7 +11,7 @@ Egg cartons are amongst the classics of diy food puzzle toys for dogs.
 
 ##### Game 1:
 
-Put any food or treats inside an egg carton, close it and give it to your dog. If this too easy for your dog, you can secure it with some masking tape. It takes Miki about 1-2 minutes to get the treats out.
+Put any food or treats inside an egg carton, close it and give it to your dog. If this too easy for your dog, you can secure it with some masking tape. It takes Miki about 1-2 minutes to get the treats out from a taped carton.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWRqIYcNA21Wk4ebi1Bkmta/aktivointi/kananmunakotelot/DSC42631-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABKjZkSoy7yhP0_hzsEm7ZDa/aktivointi/kananmunakotelot/DSC42631.jpg)
 
@@ -49,7 +49,7 @@ It took Miki about 3 minutes to get the treats out.
 
 ##### Game 4:
 
-I've also give these plastic egg cartons to Miki. If your dog tends to eat something disapproppriate, you may not want to give these plastic cartons to your dog. Miki doesn't normally eat anything that he's not supposed to eat, so I know Miki isn't going to eat any plastic pieces that might brake away from the carton.
+I've also given these plastic egg cartons to Miki. If your dog tends to eat something inapproppriate, you may not want to give these plastic cartons to your dog. Miki doesn't normally eat anything that he's not supposed to eat, so I know Miki isn't going to eat any plastic pieces that might brake away from the carton.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC6fjeZffES2kmGZj3rj5gZa/aktivointi/kananmunakotelot/DS11990-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABQyBKJhk8NQIznKZqto4HUa/aktivointi/kananmunakotelot/DS11990.jpg)
 

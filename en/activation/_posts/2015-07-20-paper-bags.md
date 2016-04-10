@@ -11,7 +11,7 @@ You can give paper bags to your dog to play with as long as they don't have any 
 
 I gave these two small bags to Miki. I put some kibbles and a few pieces of chicken fillet in the bags. If you want to make the game harder you can secure the bags with some masking tape.
 
-It took Miki about two minutes to get all the treats out from the first bag. With the second bag Miki clearly knew what he needed to do and just teared the bottom open. The treats vanished in just seconds.
+It took Miki about two minutes to get all the treats out from the first bag. With the second bag Miki clearly knew what he needed to do and just tore the bottom open. The treats vanished in just seconds.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAEwPngxhmcWXglWLhKDQzAa/aktivointi/paperikassit/DS10778-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADHu2Vssti3jdaLdW-YHLKJa/aktivointi/paperikassit/DS10778.jpg)
 
