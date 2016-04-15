@@ -40,3 +40,25 @@ At the first time it took Miki about 20 seconds to figure out that he needed to 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWHYn3l9hgjyiMvMVfQb8Ba/aktivointi/solmupiilo/DS02719-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACze71sO0uHinxiKyil0BOAa/aktivointi/solmupiilo/DS02719.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5N1LoVFPJsf-wT70tk0A0a/aktivointi/solmupiilo/DS02720-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADGH4991prslNSBMIBDOaH6a/aktivointi/solmupiilo/DS02720.jpg)
+
+If you don't have a Kong Genius toy you can make a similar game with the same size fleece as above and a small soda bottle.
+
+First I put a handful of kibbles and some small treats inside the bottle. Then I rolled one end of the fleece into a tight roll and pushed the fleece into the bottle but left about 7cm tail outside.
+
+If you have never given any bottles to your dog before, I recommend that you first give him just the [bottle](http://minimuutti.com/en/activation/soda-bottle/) with some treats. You can then add the fleece later when your dog has learned how to get the treats out from the empty bottle.
+
+When I gave Miki this bottle with fleece for the first time it took Miki about 2 minutes to get the fleece and the treats out from the bottle.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA63QYSSebOvHcLxHw3nPNza/aktivointi/solmupiilo/DS13410-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-FvOdqUPUbWP5esy7YzS6a/aktivointi/solmupiilo/DS13410.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAfe3fS4As7oQb35fgPTXDaa/aktivointi/solmupiilo/DS13239-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADvpyimkDDprP-jSfoBPcyya/aktivointi/solmupiilo/DS13239.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAGW5H3ZZr0sWRKuXqFRVTma/aktivointi/solmupiilo/DS13255-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAADtDdF5scXnAjdA00tgXrVa/aktivointi/solmupiilo/DS13255.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACCWbMvdqtp_9hVxAN14C9fa/aktivointi/solmupiilo/DS13473-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAk8gDo9dF-Hv8rhHix0snOa/aktivointi/solmupiilo/DS13473.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABG0IhtBKI-ZuwIoAiuW8xqa/aktivointi/solmupiilo/DS13302-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_9Kvm9FAlj-jk6Sp7vXExa/aktivointi/solmupiilo/DS13302.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACI9WjPBdsGxwoXwNgXDXn5a/aktivointi/solmupiilo/DS13501-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAhKTkDPYLzv-QRARRexzFua/aktivointi/solmupiilo/DS13501.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACXWb4jXBMbVfp4wIluvPGDa/aktivointi/solmupiilo/DS13519-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADwIeh9PPQQvUmO-XymhCL-a/aktivointi/solmupiilo/DS13519.jpg)

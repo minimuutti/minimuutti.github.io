@@ -26,3 +26,7 @@ Kokeiltiin sitten myöhemmin nappuloilla ja pullo oli tyhjennetty noin 30 sekunn
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACpZDSH_HoIetMs5sty8Z5Va/aktivointi/limupullo/DSC45377-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACrLVh3bpPqpeHOxHZ8BecMa/aktivointi/limupullo/DSC45377.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAcyggq9PE0FI_qQbBVNBC5a/aktivointi/limupullo/DSC45440-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADPos_iMC3VQxxUsqFdx3RKa/aktivointi/limupullo/DSC45440.jpg)
+
+Limupulloa voi vaikeuttaa myös fleecellä, katso [Solmupiilo](http://minimuutti.com/aktivointi/solmupiilo/) tehtävä.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAGW5H3ZZr0sWRKuXqFRVTma/aktivointi/solmupiilo/DS13255-800px.jpg)](http://minimuutti.com/aktivointi/solmupiilo/)

@@ -19,8 +19,6 @@ Kahdella ensimmäisellä kerralla pidin tuosta lelusta kiinni, ettei tehtävä o
 
 Mikiltä kesti ensimmäisellä kerralla noin 20 sekuntia tajuta että fleece pitää vetää lelusta ulos. Namien kaivaminen solmuista kesti noin minuutin.
 
----
-
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB0L-tjr6LxBmwtBowDPUHPa/aktivointi/solmupiilo/DS02729-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADy7Y_CuoCW4yHjwwlX8J_-a/aktivointi/solmupiilo/DS02729.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACX7JBLl28vfBvvWzcyLjsEa/aktivointi/solmupiilo/DS02746-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABdglZ3x-beRBRxgU0KULDda/aktivointi/solmupiilo/DS02746.jpg)
@@ -42,3 +40,29 @@ Mikiltä kesti ensimmäisellä kerralla noin 20 sekuntia tajuta että fleece pit
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWHYn3l9hgjyiMvMVfQb8Ba/aktivointi/solmupiilo/DS02719-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACze71sO0uHinxiKyil0BOAa/aktivointi/solmupiilo/DS02719.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5N1LoVFPJsf-wT70tk0A0a/aktivointi/solmupiilo/DS02720-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADGH4991prslNSBMIBDOaH6a/aktivointi/solmupiilo/DS02720.jpg)
+
+Samantyylisen tehtävän voit tehdä myös ilman näitä Kong Genius leluja. Käytin tässä toisessa tehtävässä saman kokoista fleecen palasta, mutta Kongin sijaan käytin 0,5l limupulloa.
+
+Laitoin ensin pullon pohjalle kourallisen nappuloita sekä muutaman pienen [Cosma Snackies](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/kissat/herkut/snacksit_herkut/cosma_snackies/206199)) -herkun.
+
+[Cosma Snackies](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/kissat/herkut/snacksit_herkut/cosma_snackies/206199)) herkut ovat suunniteltu kissoille, mutta ne ovat 100% lihaa, joten ne käyvät yhtä hyvin myös koirille. Ostan näitä herkkuja usein, koska ne ovat erittäin käteviä koulutuspalkkioita pienen kokonsa vuoksi, eikä niihin ole lisätty mitään viljoja eikä lisäaineita. Herkut tulevat myös erittäin kätevässä, uudelleen suljettavassa tuubissa. Cosma Snackies nameja voit ostaa [Zooplus](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/)) verkkokaupasta.
+
+Kun olin laittanut nappulat ja herkut pulloon, niin kieputin fleecen pään pieneksi putkiloksi, jotta sain pään työnnettyä pullon sisälle. Tämän jälkeen työnsin loputkin fleecestä pullon sisään, mutta jätin fleecestä pienen pätkän näkyviin.
+
+Mikäli et ole koskaan aiemmin antanut mitään pulloa koirallesi, niin suosittelen aloittamaan pelkällä [limupullolla](http://minimuutti.com/aktivointi/limupullo/) ja herkuilla. Fleecellä voi vaikeuttaa tehtävää sitten myöhemmin, kun koirasi on jo oppinut kuinka herkut saa ulos tyhjästä pullosta.
+
+Mikiltä kesti ensimmäisellä kerralla noin 2 minuuttia saada fleece sekä namit ulos pullosta.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA63QYSSebOvHcLxHw3nPNza/aktivointi/solmupiilo/DS13410-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-FvOdqUPUbWP5esy7YzS6a/aktivointi/solmupiilo/DS13410.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAfe3fS4As7oQb35fgPTXDaa/aktivointi/solmupiilo/DS13239-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADvpyimkDDprP-jSfoBPcyya/aktivointi/solmupiilo/DS13239.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAGW5H3ZZr0sWRKuXqFRVTma/aktivointi/solmupiilo/DS13255-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAADtDdF5scXnAjdA00tgXrVa/aktivointi/solmupiilo/DS13255.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACCWbMvdqtp_9hVxAN14C9fa/aktivointi/solmupiilo/DS13473-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAk8gDo9dF-Hv8rhHix0snOa/aktivointi/solmupiilo/DS13473.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABG0IhtBKI-ZuwIoAiuW8xqa/aktivointi/solmupiilo/DS13302-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_9Kvm9FAlj-jk6Sp7vXExa/aktivointi/solmupiilo/DS13302.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACI9WjPBdsGxwoXwNgXDXn5a/aktivointi/solmupiilo/DS13501-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAhKTkDPYLzv-QRARRexzFua/aktivointi/solmupiilo/DS13501.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACXWb4jXBMbVfp4wIluvPGDa/aktivointi/solmupiilo/DS13519-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADwIeh9PPQQvUmO-XymhCL-a/aktivointi/solmupiilo/DS13519.jpg)

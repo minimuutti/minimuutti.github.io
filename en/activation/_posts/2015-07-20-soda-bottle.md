@@ -26,3 +26,7 @@ I also tried to put pieces of a wiener in the bottle, but they didn’t come out
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACpZDSH_HoIetMs5sty8Z5Va/aktivointi/limupullo/DSC45377-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACrLVh3bpPqpeHOxHZ8BecMa/aktivointi/limupullo/DSC45377.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAcyggq9PE0FI_qQbBVNBC5a/aktivointi/limupullo/DSC45440-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADPos_iMC3VQxxUsqFdx3RKa/aktivointi/limupullo/DSC45440.jpg)
+
+You can also make sort of [Tug a fleece](http://minimuutti.com/en/activation/tug-a-fleece/) game with a soda bottle.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACXWb4jXBMbVfp4wIluvPGDa/aktivointi/solmupiilo/DS13519-800px.jpg)](http://minimuutti.com/en/activation/tug-a-fleece/)
