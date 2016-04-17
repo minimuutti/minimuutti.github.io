@@ -133,6 +133,32 @@ Mikiltä kesti vajaan minuutin saada namit ulos.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADYF8jGPDkg5qtR8cH8qr-Ca/aktivointi/paperirullien-hylsyt/DS12452-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAoqUi5tVJ541_4as5T7fPCa/aktivointi/paperirullien-hylsyt/DS12452.jpg)
 
+#### Rullat hyllyn alla
+
+Tässä tehtävässä voit käyttää haluamasi määrän rullia, itse käytin viittä rullaa.
+
+Otin yhden rullan, laitoin sen hyllyn eteen ja merkkasin rullaan lyijykynällä hyllyn alaosan korkeuden (katso alla kuvakollaasin kohta 1). Leikkasin ensimmäisestä rullasta ylimääräisen pätkän pois merkkejä pitkin (kuvakollaasin kohta 2). Sitten käytin tätä ensimmäistä mallina ja leikkasin saman verran pois muistakin rullista.
+
+Otin nuo ylimääräiset pätkät, rullasin niitä ja tungin yhden pätkän jokaisen rullan päähän. Ennen kuin painoin ne kokonaan rullien sisälle, niin laitoin niiden sisälle nappuloita sekä jokaiseen yhden herkkupalan (kuvakollaasin kohta 3 ja 4). Tämän jälkeen asetin rullat hyllyn alle.
+
+Jos arvelet tehtävän olevan liian vaikea koirallesi, voit ensin tehdä tästä helpomman version, eli laittaakin namit suoraan hylsyjen sisälle jolloin ne leviävät heti lattialle kun koira saa kaivettua rullan esiin.
+
+Tässä tehtävässä voit käyttää muitakin huonekaluja, kuten esimerkiksi sohvapöytää. Huonekalun tulee kuitenkin olla niin vankka, ettei koira vahingossakaan saa sitä kaadettua.
+
+Mikiltä kesti namien saaminen ulos näistä viidestä rullasta noin 9 minuuttia.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB81UmiJr9Wkm5AWLG5Bq64a/aktivointi/paperirullien-hylsyt/tp_kollaasi-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAziWn49oRRx04b8JKaqoBIa/aktivointi/paperirullien-hylsyt/tp_kollaasi.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABrlRUP2HeakRqodB-iq2M1a/aktivointi/paperirullien-hylsyt/DS13683-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABuixtpLbyP-O-MqgfNu1jTa/aktivointi/paperirullien-hylsyt/DS13683.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOSo0b8kBrCHi8cv-_6S2oa/aktivointi/paperirullien-hylsyt/DS13699-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA19HAhlofX-bUmCxK1uHQha/aktivointi/paperirullien-hylsyt/DS13699.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABsxJDTmB8A-xJ2fgOuXfnVa/aktivointi/paperirullien-hylsyt/DS13704-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACsVzgotpZ1x9xwby8ZySdia/aktivointi/paperirullien-hylsyt/DS13704.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAj-Zj7WzJckW5i4Epj0jkna/aktivointi/paperirullien-hylsyt/DS13876-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADctfjiav-V5ho4u2xmSuYta/aktivointi/paperirullien-hylsyt/DS13876.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACWNCkvnSZncRngJcH0GFCoa/aktivointi/paperirullien-hylsyt/DS13787-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABMfAj3QDevLacULHefrqrfa/aktivointi/paperirullien-hylsyt/DS13787.jpg)
+
 #### Kuusikulmio fleecellä
 
 Leikkasin fleecestä noin 17cm x 75cm palasen. Laitoin sisälle muutaman ankkafileen palasen sekä joitain nappuloita ja rullasin fleecen pitkäksi pötköksi.
@@ -152,6 +178,24 @@ Mikiltä kesti noin 6 minuuttia saada kaikki namit ulos.
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAOGnCqQFWHirzaZOMWV4vma/aktivointi/paperirullien-hylsyt/DS03565-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADlo6fr4273UsszEvjaClW6a/aktivointi/paperirullien-hylsyt/DS03565.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADlm2FNW02ORI6kfjtTOD70a/aktivointi/paperirullien-hylsyt/DS03609-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAhHRQN7X47ba5u-PAUjoxUa/aktivointi/paperirullien-hylsyt/DS03609.jpg)
+
+#### Lahjapaketoidut hylsyt
+
+Käytin tehtävässä kahta talouspaperirullaa sekä paksua pakkauspaperia.
+
+Laitoin nappuloita sekä muutamia nameja rullien sisälle. Käärin rullat yksittäin paperin sisälle ja käänsin paperin päät umpeen. Mikäli haluat tehdä tehtävästä vaikeamman niin voit kiinnittää paperin maalarinteipillä.
+
+Mikiltä kesti kahden paketoidun hylsyn tuhoaminen noin 4 minuuttia.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABcZYYmf13vKeP-RkTZpw7qa/aktivointi/paperirullien-hylsyt/DS13533-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB4eOKxalBhKH9nFOQGra6Da/aktivointi/paperirullien-hylsyt/DS13533.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACsDzVex2oC45Gf5qwGFf3ha/aktivointi/paperirullien-hylsyt/DS13544-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB3lLb-hD3Zknv2ytGRXy_Qa/aktivointi/paperirullien-hylsyt/DS13544.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJHCw0-qm1gEAM-XFJxkmka/aktivointi/paperirullien-hylsyt/DS13571-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADTibsLeu_3_mEabySg-1_Qa/aktivointi/paperirullien-hylsyt/DS13571.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABtkFgb1NlU0WlPcVQdYFdWa/aktivointi/paperirullien-hylsyt/DS13603-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACx2KSkrn0Yhwh9_PtLGiRwa/aktivointi/paperirullien-hylsyt/DS13603.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC6QFaCV80wwrSyUsqPIasLa/aktivointi/paperirullien-hylsyt/DS13647-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADPXh_lpU3tox_z9FtQSNG9a/aktivointi/paperirullien-hylsyt/DS13647.jpg)
 
 #### Foliorullan hylsy
 

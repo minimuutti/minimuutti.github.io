@@ -124,6 +124,32 @@ It took Miki just under a minute to get the kibbles out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADYF8jGPDkg5qtR8cH8qr-Ca/aktivointi/paperirullien-hylsyt/DS12452-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAoqUi5tVJ541_4as5T7fPCa/aktivointi/paperirullien-hylsyt/DS12452.jpg)
 
+#### Rolls under a bookshelf
+
+You can use as many rolls as you like in this game, I used five rolls.
+
+I took one roll and marked the hight of the bookshelf's under section to it (mosaic picture 1). Then I cut the top off (mosaic picture 2). I used the first one as a model to cut the four other rolls.
+
+Then I took the off cuts and pushed one of them in each roll and I filled them with kibbles and some treats (mosaic pictures 3 and 4). Then I pushed the rolls under the bookshelf.
+
+If you reckon this game is too hard for your dog you can first make an easier version of this game. You can put the treats solely inside the rolls so they'll spread on the floor as soon as your dog digs the roll out.
+
+You can use other furniture as well for example a coffee table. The piece of furniture you use need to be sturdy enough that your dog isn't able to push it over.
+
+It took Miki about 9 minutes to get all the treats out from five rolls.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB81UmiJr9Wkm5AWLG5Bq64a/aktivointi/paperirullien-hylsyt/tp_kollaasi-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAziWn49oRRx04b8JKaqoBIa/aktivointi/paperirullien-hylsyt/tp_kollaasi.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABrlRUP2HeakRqodB-iq2M1a/aktivointi/paperirullien-hylsyt/DS13683-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABuixtpLbyP-O-MqgfNu1jTa/aktivointi/paperirullien-hylsyt/DS13683.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOSo0b8kBrCHi8cv-_6S2oa/aktivointi/paperirullien-hylsyt/DS13699-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA19HAhlofX-bUmCxK1uHQha/aktivointi/paperirullien-hylsyt/DS13699.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABsxJDTmB8A-xJ2fgOuXfnVa/aktivointi/paperirullien-hylsyt/DS13704-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACsVzgotpZ1x9xwby8ZySdia/aktivointi/paperirullien-hylsyt/DS13704.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAj-Zj7WzJckW5i4Epj0jkna/aktivointi/paperirullien-hylsyt/DS13876-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADctfjiav-V5ho4u2xmSuYta/aktivointi/paperirullien-hylsyt/DS13876.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACWNCkvnSZncRngJcH0GFCoa/aktivointi/paperirullien-hylsyt/DS13787-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABMfAj3QDevLacULHefrqrfa/aktivointi/paperirullien-hylsyt/DS13787.jpg)
+
 #### Fleece hexagon
 
 I cut a 17cm x 75cm piece of fleece. I put a few strings of semi-moist duck fillet and some kibbles on top of the fleece. Then I rolled the fleece into a long tube.
@@ -143,6 +169,24 @@ It took Miki about 6 minutes to get the treats out.
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAOGnCqQFWHirzaZOMWV4vma/aktivointi/paperirullien-hylsyt/DS03565-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADlo6fr4273UsszEvjaClW6a/aktivointi/paperirullien-hylsyt/DS03565.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADlm2FNW02ORI6kfjtTOD70a/aktivointi/paperirullien-hylsyt/DS03609-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAhHRQN7X47ba5u-PAUjoxUa/aktivointi/paperirullien-hylsyt/DS03609.jpg)
+
+#### Gift wrapped rolls
+
+I used two rolls and some thick packing paper for this game.
+
+First I put kibbles and some treats inside the rolls. Then I gift wrapped them with the paper and twisted the ends close. If you want to make the game harder you can secure the paper with some masking tape.
+
+It took Miki about 4 minutes to get all the treats out.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABcZYYmf13vKeP-RkTZpw7qa/aktivointi/paperirullien-hylsyt/DS13533-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB4eOKxalBhKH9nFOQGra6Da/aktivointi/paperirullien-hylsyt/DS13533.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACsDzVex2oC45Gf5qwGFf3ha/aktivointi/paperirullien-hylsyt/DS13544-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB3lLb-hD3Zknv2ytGRXy_Qa/aktivointi/paperirullien-hylsyt/DS13544.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJHCw0-qm1gEAM-XFJxkmka/aktivointi/paperirullien-hylsyt/DS13571-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADTibsLeu_3_mEabySg-1_Qa/aktivointi/paperirullien-hylsyt/DS13571.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABtkFgb1NlU0WlPcVQdYFdWa/aktivointi/paperirullien-hylsyt/DS13603-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACx2KSkrn0Yhwh9_PtLGiRwa/aktivointi/paperirullien-hylsyt/DS13603.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC6QFaCV80wwrSyUsqPIasLa/aktivointi/paperirullien-hylsyt/DS13647-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADPXh_lpU3tox_z9FtQSNG9a/aktivointi/paperirullien-hylsyt/DS13647.jpg)
 
 #### Tin foil roll
 
