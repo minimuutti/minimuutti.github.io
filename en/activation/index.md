@@ -3,8 +3,6 @@ title: "Activation"
 layout: category
 ---
 
-Twenty minutes of mental activation for a dog is about equivalent to two hours of walking. That should be enough to drain the energy for most of the dogs. We walk with Miki about three hours every workday and three to four hours per day on weekends. In addition to this, we activate Miki between one to one and a half hours every day.  During autumn, winter and spring we also go running with him a couple times per week. And with running I really mean running, where Miki can pull on the pull harness, not jogging.
-
 Mental activation is an important factor in order to make dogs happy. In one experiment a group of dogs were given tasks to complete in order to get rewards. There was also a control group of dogs that were given the same rewards, but they didn't have a chance to work for them. Shortly, the experiment showed that the dogs that completed the tasks in order to get the rewards were much happier than the control group that got the rewards without any efforts.
 
 “*The experimental animals in our study were excited not only by the expectation of a reward, but also about realizing that they themselves could control their access to the reward. These results support the idea that opportunities to solve problems, make decisions, and exercise cognitive skills are important to an animal’s emotional experiences and ultimately, its welfare.*”

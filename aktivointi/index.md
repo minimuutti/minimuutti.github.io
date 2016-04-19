@@ -13,10 +13,6 @@ Voit lukea tutkimuksesta lisää [täältä](http://www.companionanimalpsycholog
 
 Tästä kategoriasta löydät paljon erilaisia haistelu- ja älytehtäviä, itsetehtyjä aktivointipelejä sekä muita aktivointi vinkkejä koiralle.
 
-20 minuutin aktivointi vastaa noin kahden tunnin lenkkiä, joka pitäisi riittää väsyttämään useimmat koirat. Mikiä lenkitetään arkisin noin 3 tuntia päivässä ja viikonloppuisin 3-4 tuntia päivässä. Lenkkien lisäksi Mikiä aktivoidaan noin 1–1,5 tuntia joka päivä. Syys-talvi-kevät kausilla Mikin kanssa käydään myös juoksemassa keskimäärin pari kertaa viikossa.
-
-Mikin päivittäisestä aktivoinnista noin 20 minuuttia on erilaisia ruuanetsimistehtäviä; esimerkiksi etsiminen ruohikosta, puusta, lumihangesta tai piilotettuna asunnosta, jostain väsäämästäni "laatikkoleikistä" (näistä lisää myöhemmin) tai kaupasta ostetuista aktivointilelusta.
-
 ### Nenän käyttö ja etsiminen
 
 Erilaiset etsimis- ja haistelutehtävät ovat hyviä keinoja aktivoida koiraa.
