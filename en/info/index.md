@@ -26,7 +26,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
-* 20.4.2016 New photos added in category; Spring
+* 21.4.2016 New photos added in category; Spring
 * 17.4.2016 Updated activation post; Empty paper rolls
 * 15.4.2016 Updated activation post; Tug a fleece
 * 9.4.2016 New activation post; Egg cartons
