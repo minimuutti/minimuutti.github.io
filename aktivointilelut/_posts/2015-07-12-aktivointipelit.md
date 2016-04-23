@@ -30,3 +30,5 @@ Saat tarkemmat tiedot auki klikkaamalla kuvia.
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAOCch4RQDxUSbubex0Jy8Ra/aktivointi/paperikuplat/DS04272_-245px.jpg)](http://minimuutti.com/aktivointi/paperikuplat/)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABqKBQyizl5fWo0UqaQTn7Ra/aktivointi/putoilevat-namit/DSC51366-245px.jpg)](http://minimuutti.com/aktivointi/putoilevat-namit/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJHl-lgHbDCrXxK4Sb3W_ha/aktivointi/onginta/DS15029-245px.jpg)](http://minimuutti.com/aktivointi/onginta/)

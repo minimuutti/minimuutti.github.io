@@ -32,3 +32,5 @@ You can read the full post by clicking the small icons.
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAOCch4RQDxUSbubex0Jy8Ra/aktivointi/paperikuplat/DS04272_-245px.jpg)](http://minimuutti.com/en/activation/reversed-muffin-tray/)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABqKBQyizl5fWo0UqaQTn7Ra/aktivointi/putoilevat-namit/DSC51366-245px.jpg)](http://minimuutti.com/en/activation/falling-treats/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJHl-lgHbDCrXxK4Sb3W_ha/aktivointi/onginta/DS15029-245px.jpg)](http://minimuutti.com/en/activation/gone-fishin/)
