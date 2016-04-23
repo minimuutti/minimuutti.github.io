@@ -188,6 +188,40 @@ It took Miki about 4 minutes to get all the treats out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC6QFaCV80wwrSyUsqPIasLa/aktivointi/paperirullien-hylsyt/DS13647-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADPXh_lpU3tox_z9FtQSNG9a/aktivointi/paperirullien-hylsyt/DS13647.jpg)
 
+#### Ring balls
+
+I cut some empty rolls to rings. Then I inserted about 4-5 rings into the others and put one large treat inside every ball. 
+
+It took Miki about 2-3 minutes to get the treats out from 6 balls.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABW9LnX8ABYxTMi3Me9P_5_a/aktivointi/paperirullien-hylsyt/DS14255-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABsif8RIZYo8iKk-i3uIydwa/aktivointi/paperirullien-hylsyt/DS14255.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC-hZ-TVbuqLqdSe9iIdeJGa/aktivointi/paperirullien-hylsyt/DS14265-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACGKzUUXoBf-4Ba-T0GTY_Ga/aktivointi/paperirullien-hylsyt/DS14265.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACPsc5uvhSXx1TesX6VyTYga/aktivointi/paperirullien-hylsyt/DS14342-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACFKxdvXQrAoGfGyQ7prXRUa/aktivointi/paperirullien-hylsyt/DS14342.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC-hawqwWxgojIHlULtCipaa/aktivointi/paperirullien-hylsyt/DS14348-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAD88yBhO9lk_B0--ywBJAVa/aktivointi/paperirullien-hylsyt/DS14348.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAKqm-eIvGV9fh2Z9RuRp-oa/aktivointi/paperirullien-hylsyt/DS14402-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADoesdAo9a5QeGJ4Usovywwa/aktivointi/paperirullien-hylsyt/DS14402.jpg)
+
+#### Rings in cups
+
+Any rings left from the previous game can be used in this game. I put some small treats on the bottom of the cups and then pushed the rings on top.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJ-wO80HUwsRdb8_TVUerMa/aktivointi/paperirullien-hylsyt/DS14422-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABXRIM1eFc21F89T3OEUG9ta/aktivointi/paperirullien-hylsyt/DS14422.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD_BrRofRwnylrkg3SOYQSMa/aktivointi/paperirullien-hylsyt/DS14437-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACPIOMNDkWfw2KfKVBfspuKa/aktivointi/paperirullien-hylsyt/DS14437.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABv8iuZtvcNPR2YRuiInRjQa/aktivointi/paperirullien-hylsyt/DS14463-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAGG9jSRbe3gYnk7jqwVDtea/aktivointi/paperirullien-hylsyt/DS14463.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB7ml_iNsSG-1GwL41MSAwja/aktivointi/paperirullien-hylsyt/DS14483-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACassXDi4W6ZlhHZGTlfYc1a/aktivointi/paperirullien-hylsyt/DS14483.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD5Zd8iEjcl27EK76J983_sa/aktivointi/paperirullien-hylsyt/DS14486-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABxQtvl7L0l1XspHiV2-G8ta/aktivointi/paperirullien-hylsyt/DS14486.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_qLMOCPWECf6hpPDYJ3_za/aktivointi/paperirullien-hylsyt/DS14535-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACobj5q0_6mrqnNql2fRGxma/aktivointi/paperirullien-hylsyt/DS14535.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACQktnlem9WEVqYkzfHPmSba/aktivointi/paperirullien-hylsyt/DS14551-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAgY-s79Lcs1JpTFRoYqwNxa/aktivointi/paperirullien-hylsyt/DS14551.jpg)
+
 #### Tin foil roll
 
 I cut about 15 cm (5") long piece of empty tin foil roll. Then I took one sticky duck filet and one chicken filet and folded them in half (shaped like letter V). Then I tucked them into the midpoint of the roll.
