@@ -26,7 +26,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 27.4.2016 Lisätty uusia valokuvia kategoriaan; Kevät
+* 1.5.2016 Lisätty uusia valokuvia kategoriaan; Kevät
 * 23.4.2016 Lisätty uusi aktivointivinkki; Onginta
 * 23.4.2016 Päivitetty aktivointivinkki; Paperirullien hylsyt
 * 15.4.2016 Päivitetty aktivointivinkki; Solmupiilo
