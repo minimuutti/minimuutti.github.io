@@ -26,6 +26,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 6.5.2016 Updated activation post; Dermosil bottles
 * 6.5.2016 Updated activation post; Small games
 * 6.5.2016 New activation post; Ikea's Drömmar set
 * 2.5.2016 New photos added in category; Spring
@@ -51,7 +52,6 @@ New and recently updated posts:
 * 5.3.2016 Updated treat dispenser; Interactive games
 * 2.3.2016 New activation post; Flippin' it
 * 29.2.2016 New treat dispenser; JW Playbites Caterpillar
-* 29.2.2016 Updated activation post; Dermosil bottles
 * 12.2.2016 Updated activation post; Peek a hole
 * 12.2.2016 New activation post; Valentine's heart
 * 12.2.2016 New activation post; Paper rolls in a box

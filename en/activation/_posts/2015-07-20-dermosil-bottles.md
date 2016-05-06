@@ -13,11 +13,7 @@ The bottle is almost perfectly designed; although you turn the bottle upside dow
 
 When you give any bottle to your dog, make sure that the bottle is safe to use. Do not give any bottles that have had any toxic substances in them. Kitchen soap bottles and hand dishwashing liquid bottles are usually safe to use. In addition, you should always wash the bottles thoroughly before giving them to your dog.
 
-I've used only kibbles for these bottles, because any soft or sticky treats would be too hard for a dog to get out.
-
-It takes Miki about 4 to 8 minutes to get all the kibbles out. 
-
----
+I normally use kibbles with these bottles, because any soft or sticky treats would be too hard for a dog to get out. It takes Miki about 2 to 5 minutes to get all the kibbles out. 
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAkivT2Ki9yuOsXg-kopOzTa/aktivointi/dermosil-pullot/DSC50023-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADd-QFrnrNyr5lkVSaHNZcba/aktivointi/dermosil-pullot/DSC50023.jpg)
 
@@ -46,3 +42,15 @@ It takes Miki about 4 to 8 minutes to get all the kibbles out.
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADuNh9YkHzZPk-lkb_pokhRa/aktivointi/dermosil-pullot/DS05962-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAsSj8PnVYEtPgL6kXj16_4a/aktivointi/dermosil-pullot/DS05962.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAG3HiTG_WyO9i_f8Bmn8P6a/aktivointi/dermosil-pullot/DS05963-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACGklajDQfLrF-tQyu7yeWLa/aktivointi/dermosil-pullot/DS05963.jpg)
+
+If you want to increase the difficulty you can try to put elongated treats into the bottles. I put a 6 cm piece of a munchy chewing roll into the bottle and it took Miki about two minutes to get it out.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAdGCJ4kdr3tqBEDEAZW6dra/aktivointi/dermosil-pullot/DS16315-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-8dwZKCB-UIB3goxNvpIga/aktivointi/dermosil-pullot/DS16315.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADKP6sxP8d4QzoZvKZvAmVca/aktivointi/dermosil-pullot/DS16280-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAgQGrbPz0dCX1jfhhL3h2Fa/aktivointi/dermosil-pullot/DS16280.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADFpbHpegtGXehCmoPxcG-sa/aktivointi/dermosil-pullot/DS16300-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA6-ejzMkTDkfcKZkS37kgxa/aktivointi/dermosil-pullot/DS16300.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC9gfEwQqTVPYuhHSKK2i5Wa/aktivointi/dermosil-pullot/DS16319-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACL4auz5yiOV-sc34m0WrIJa/aktivointi/dermosil-pullot/DS16319.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACbIyoJ-fpqTUJkJr4sJ_Lsa/aktivointi/dermosil-pullot/DS16331-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABzq1BD6MiU8Il9m-rdoARqa/aktivointi/dermosil-pullot/DS16331.jpg)
