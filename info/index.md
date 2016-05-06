@@ -26,6 +26,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 6.5.2016 Päivitetty aktivointivinkki; Minitehtäviä
 * 6.5.2016 Lisätty uusi aktivointivinkki; Ikean Drömmar muotit
 * 2.5.2016 Lisätty uusia valokuvia kategoriaan; Kevät
 * 23.4.2016 Lisätty uusi aktivointivinkki; Onginta
@@ -59,14 +60,3 @@ Uudet ja viimeksi päivitetyt osiot:
 * 5.2.2016 Lisätty uusi aktivointivinkki; Lentävä lautanen
 * 5.2.2016 Päivitetty aktivointivinkki; Purkin pyöritys
 * 28.1.2016 Lisätty uusi aktivointivinkki; Pyyheköysi
-* 28.1.2016 Päivitetty aktivointivinkki; Farkkuletti
-* 24.1.2016 Päivitetty; Mikin osaamat käskyt ja temput
-* 23.1.2016 Lisätty uusi aktivointivinkki; Estelaatikko II
-* 22.1.2016 Päivitetty aktivointivinkki; Pallomeri
-* 21.1.2016 Päivitetty aktivointivinkki; Paperituubi
-* 19.1.2016 Lisätty uusi aktivointivinkki; Pussukat
-* 17.1.2016 Päivitetty aktivointivinkki; Minitehtäviä
-* 14.1.2016 Lisätty uusi aktivointivinkki; Jakkara
-* 14.1.2016 Päivitetty aktivointivinkki; Kaikki munat samassa korissa
-* 11.1.2016 Lisätty uusi aktivointivinkki; Suihkepullot
-* 10.1.2016 Lisätty uusi aktivointivinkki; Korallit

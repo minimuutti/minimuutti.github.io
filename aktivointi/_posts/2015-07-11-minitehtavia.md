@@ -117,3 +117,17 @@ Laitoin vanhan jumppamaton sisälle nappuloita etsittäväksi. Tätä samaa vois
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD4Q3RcbMmqAcjHOtVGfNuUa/aktivointi/minitehtavia/DS01128-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABFEBBmCAxorwmI_vaEadhba/aktivointi/minitehtavia/DS01128.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAHOLwD9RzEO-J-F_88DlPca/aktivointi/minitehtavia/DS01155-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB6RYVi_QaLxtlojl9alc_Ua/aktivointi/minitehtavia/DS01155.jpg)
+
+### Suuri purkki korissa
+
+Laitoin nappuloita korin pohjalle ja päälle suuren proteiinijauhopurkin esteeksi.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABz1mIOfKz7V8OJf9iFnLlQa/aktivointi/minitehtavia/DS15125-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAATKqIDmUW-8FWT9wkEwVPva/aktivointi/minitehtavia/DS15125.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB4726OREDMeWTN_VPEHCiRa/aktivointi/minitehtavia/DS15178-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADjyBqZLQiXjZX0Hji-dAcza/aktivointi/minitehtavia/DS15178.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAUjTEjJ_51tihfNdvKaTjza/aktivointi/minitehtavia/DS15214-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACLyy3tygNKMBnrD7HAd9W0a/aktivointi/minitehtavia/DS15214.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC1lns_49_RrRy7y5Bn_7Upa/aktivointi/minitehtavia/DS15225-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC-R5rpuaWVqTcO5pvFRKBba/aktivointi/minitehtavia/DS15225.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADj7b3lEbMFGG9-GyIu4nYSa/aktivointi/minitehtavia/DS15232-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAT0d5fQO_fCD1P5KW4Pl2Da/aktivointi/minitehtavia/DS15232.jpg)

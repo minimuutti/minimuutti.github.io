@@ -26,6 +26,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 6.5.2016 Updated activation post; Small games
 * 6.5.2016 New activation post; Ikea's Drömmar set
 * 2.5.2016 New photos added in category; Spring
 * 23.4.2016 New activation post; Gone fishin'
@@ -59,14 +60,3 @@ New and recently updated posts:
 * 5.2.2016 New activation post; Flying saucer
 * 5.2.2016 Updated activation post; Kibble dispenser
 * 28.1.2016 New activation post; Towels on rope
-* 28.1.2016 Updated activation post; Denim plait
-* 24.1.2016 Updated; Tricks and commands Miki knows
-* 23.1.2016 New activation post; Obstacle box II
-* 22.1.2016 Updated activation post; Ball pool
-* 21.1.2016 Updated activation post; Papertube
-* 19.1.2016 New activation post; Crocheted baskets
-* 17.1.2016 Updated activation post; Small games
-* 14.1.2016 New activation post; Step stool
-* 14.1.2016 Updated activation post; All eggs in one basket
-* 11.1.2016 New activation post; Spray bottles
-* 10.1.2016 New activation post; Corals
