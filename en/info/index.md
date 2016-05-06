@@ -26,6 +26,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 6.5.2016 New activation post; Ikea's Drömmar set
 * 2.5.2016 New photos added in category; Spring
 * 23.4.2016 New activation post; Gone fishin'
 * 23.4.2016 Updated activation post; Empty paper rolls

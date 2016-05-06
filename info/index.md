@@ -26,6 +26,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 6.5.2016 Lisätty uusi aktivointivinkki; Ikean Drömmar muotit
 * 2.5.2016 Lisätty uusia valokuvia kategoriaan; Kevät
 * 23.4.2016 Lisätty uusi aktivointivinkki; Onginta
 * 23.4.2016 Päivitetty aktivointivinkki; Paperirullien hylsyt
