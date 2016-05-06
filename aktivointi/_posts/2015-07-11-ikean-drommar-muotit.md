@@ -11,7 +11,7 @@ Koirille suunnitellut syömistä hidastavat ruokakupit ovat usein aika kalliita.
 
 Muottien sekaan ripotellaan nappulat ja sen voi antaa koiralle suoraan tai muottien koloihin voi lisäksi laittaa jotain esteitä päälle. Itse olen laittanut esteeksi pieniä [koralleja](http://minimuutti.com/aktivointi/korallit/).
 
-Muottisetti soveltuu yhtä hyvin myös märkäruuan kanssa käytettäväksi. Märkäruuan voi ensin tasoittaa pyöreän muottirasian pohjalle, jonka jälkeen painelee muotit ruokaan, takaisin oikeille paikoilleen.
+Muottisetti soveltuu yhtä hyvin myös märkäruuan kanssa käytettäväksi. Märkäruuan voi ensin painella pyöreän muottirasian pohjalle, jonka jälkeen painelee muotit ruokaan, takaisin oikeille paikoilleen.
 
 ---
 
