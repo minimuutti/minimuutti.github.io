@@ -26,6 +26,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 9.5.2016 Lisätty uusi aktivointivinkki; Fleecematto
 * 6.5.2016 Päivitetty aktivointivinkki; Dermosil pullot
 * 6.5.2016 Päivitetty aktivointivinkki; Minitehtäviä
 * 6.5.2016 Lisätty uusi aktivointivinkki; Ikean Drömmar muotit
