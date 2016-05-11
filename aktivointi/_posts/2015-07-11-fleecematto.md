@@ -11,7 +11,7 @@ Fleecematon tekemiseen voi vierähtää muutama tunti aikaa. Suosittelen silti k
 
 Aloitin leikkaamalla pyyhkeeseen reikiä noin 1 cm välein. Valitsin tehtävään raidallisen pyyhkeen, jotta reijät oli helpompi saada riviin.
 
-Pyyhkeen sijaan tehtävässä voi käyttää kumista kuramaton palaa jossa reijät ovat jo valmiina. Kumista tehdyssä pohjassa on se etu, että valmiista matosta tulee vakaampi ja matto pysyy paremmin paikallaan kovallakin lattialla. Kuramaton puuttuessa käytin pientä pyyhettä, joka toimi tehtävässä aivan yhtä hyvin. Mikille muutenkin annetaan tehtävät useimmiten maton päällä, joten pyyhekin pysyi hyvin paikoillaan.
+Pyyhkeen sijaan tehtävässä voi käyttää kumista kuramaton palaa, jossa reijät ovat jo valmiina. Kumista tehdyssä pohjassa on se etu, että valmiista matosta tulee vakaampi ja matto pysyy paremmin paikallaan kovallakin lattialla. Kuramaton puuttuessa käytin pientä pyyhettä, joka toimi tehtävässä aivan yhtä hyvin. Mikille muutenkin annetaan tehtävät useimmiten maton päällä, joten pyyhekin pysyi hyvin paikoillaan.
 
 Reikien kohdalla tai määrällä ei ole paljoakaan merkitystä. Mitä tiheämmin reikiä tekee sitä tiheämpi lopputuloksesta tulee ja sitä enemmän fleeceä saat tähän kulumaan. Toisaalta jos reijät ovat liian tiheään, saattaa pyyhe hajota fleeceä solmiessa.
 
