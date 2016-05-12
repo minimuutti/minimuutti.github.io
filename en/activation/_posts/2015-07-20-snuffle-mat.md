@@ -19,7 +19,7 @@ I cut about 1,5 times more strips than the towel had holes, so I put two strips 
 
 First I pushed the strips through one hole on the towel and then I pushed it back from the next hole. After that I tied it with one knot. In my finished mat the strips were a bit over 10 cm long.
 
-The first time you give the mat to your dog, put the threats ON TOP of the strips so your dog only sniffs and eats the treats and don't shred or toss the mat all over. Later on you can make the games harder and put the treats under the strips.
+The first time you give the mat to your dog, put the threats ON TOP of the strips so your dog only sniffs and eats the treats and doesn't shred or toss the mat all over. Later on you can make the game harder and put the treats under the strips.
 
 You may want to use only dry treats with the mat. If you make the mat with a towel, you can easily put the mat inside a laundry bag and put it in the washing machine. If you choose a rubber mat you may need to hand wash it if it gets dirty.
 
