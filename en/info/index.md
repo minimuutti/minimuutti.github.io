@@ -26,7 +26,8 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
-* 13.5.2016 New photos added in category; Spring
+* 15.5.2016 New photos added in category; Spring
+* 15.5.2016 Updated activation post; Pill jars
 * 12.5.2016 New treat dispenser; Busy Buddy Magic Mushroom
 * 10.5.2016 New activation post; Snuffle mat
 * 6.5.2016 Updated activation post; Dermosil bottles

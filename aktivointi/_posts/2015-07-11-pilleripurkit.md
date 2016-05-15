@@ -13,7 +13,8 @@ Purkkeihin voi laittaa mitä tahansa kuivia nameja, itse olen yleensä laittanut
 
 Nämä tehtävät ovat Mikille todella helppoja. Koska yksittäisen purkin tyhjentäminen kestää Mikiltä vain muutaman sekunnin, niin annan Mikille aina useamman purkin yhtä aikaa.
 
-Purkkeihin joissa on iso suuaukko, voi vaikeutuksena laittaa palan kangasta tai pienen pallon esteeksi.
+Purkkeihin joissa on iso suuaukko, voi vaikeutuksena laittaa pieniä koralleja tai palan kangasta esteeksi niin nappulat putoilevat purkista vähitellen.
+
 
 ---
 
@@ -32,3 +33,7 @@ Purkkeihin joissa on iso suuaukko, voi vaikeutuksena laittaa palan kangasta tai 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA5dopE0Ujd7a5C4sVko9O6a/aktivointi/pilleripurkit/DSC58472-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVMwDTya-NUg4-uK4F1E4Oa/aktivointi/pilleripurkit/DSC58472.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAJOZtk8Nj1mbDrrbeCiqvna/aktivointi/pilleripurkit/DSC58485-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACrXsjVunUTXbyOuVoLCXy2a/aktivointi/pilleripurkit/DSC58485.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJIS5ojcwG72qcKlZ6hCn-a/aktivointi/pilleripurkit/DSC60994-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADiMzttr5cE9juoY_P2MK_Ma/aktivointi/pilleripurkit/DSC60994.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAQef0Lwv4kmWDU6AXZTSkTa/aktivointi/pilleripurkit/DSC60998-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA8ew5w9bBoW58kM7zXrOgPa/aktivointi/pilleripurkit/DSC60998.jpg)
