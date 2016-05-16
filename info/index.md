@@ -26,7 +26,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 15.5.2016 Lisätty uusia valokuvia kategoriaan; Kevät
+* 16.5.2016 Lisätty uusia valokuvia kategoriaan; Kevät
 * 15.5.2016 Päivitetty aktivointivinkki; Pilleripurkit
 * 12.5.2016 Lisätty uusi aktivointilelu; Busy Buddy Magic Mushroom
 * 10.5.2016 Lisätty uusi aktivointivinkki; Fleecematto
