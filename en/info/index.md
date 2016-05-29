@@ -26,6 +26,9 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 29.5.2016 New photos added in category; Summer
+* 29.5.2016 Updated activation post; Hiding the treats in a tree
+* 29.5.2016 Updated activation post; Denim plait
 * 16.5.2016 New photos added in category; Spring
 * 15.5.2016 Updated activation post; Pill jars
 * 12.5.2016 New treat dispenser; Busy Buddy Magic Mushroom
@@ -61,5 +64,3 @@ New and recently updated posts:
 * 12.2.2016 Updated activation post; Carton packages
 * 6.2.2016 New activation post; Reversed muffin tray
 * 5.2.2016 New activation post; Flying saucer
-* 5.2.2016 Updated activation post; Kibble dispenser
-* 28.1.2016 New activation post; Towels on rope

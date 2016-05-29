@@ -8,7 +8,7 @@ image:
 ---
 Näihin tehtäviin tarvitset roskiin menevät farkut tai muuta kestävää kangasta, fleeceä kannattaa myös kokeilla.
 
-###### Farkkuletti:
+#### Farkkuletti
 
 Leikkasin farkuista toisen lahkeen irti. Sitten leikkasin lahkeen viideksi pitkäksi suikaleeksi ja solmin ne toisesta päästä yhteen. Tämän jälkeen letitin nuo 5 suikaletta ja laitoin samalla sinne väleihin ylä sekä alapuolelle kuivatun kanafileen palasia. Lopuksi solmin päät yhteen ja leikkasin ylimääräiset pätkät pois siitä päästä.
 
@@ -28,7 +28,27 @@ Mikiltä kesti noin 5 minuuttia saada kaikki namit ulos tuolta.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABvJrh_olMl2y1Q2-5FH6Cca/aktivointi/farkkuletti/DS02261-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABmiL1Clv7qko07pl48tg07a/aktivointi/farkkuletti/DS02261.jpg)
 
-###### Farkkusolmu:
+#### Fleeceletti
+
+Letin voi tehdä myös fleecestä, joka myös kestää koiran käytössä farkkua paremmin.
+
+Aloitin leikkaamalla fleecestä 5 cm levyisiä pitkiä suikaleita. Sitten otin 7 suikaletta ja letitin ne solmien letin kiinni molemmista päistä.
+
+Seitsemällä letitetään aivan samalla periaatteella kuin kolmellakin; uloimmainen suikale nostetaan keskelle vuoroin oikealta ja vuoroin vasemmalta.
+
+Tein kolme tälläistä fleecelettiä ja sitten letitin ne yhdeksi paksuksi letiksi. Solmin molemmat päät kiinni ylimääräisillä fleecesuikaleilla.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACo7U18d_x5-2qv2Y-V-BvVa/aktivointi/farkkuletti/DS18070-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADsAZheXat8jn2YfY2Z2Fdta/aktivointi/farkkuletti/DS18070.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABVuvPNtczAKwlav6W0bCC-a/aktivointi/farkkuletti/DS18079-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAQMzG3YAFmD506JA7KFP8ta/aktivointi/farkkuletti/DS18079.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABxoFG4uqfieYoR03H9a8hIa/aktivointi/farkkuletti/DS18110-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA6dThBwXIRXSF4GL5VjofPa/aktivointi/farkkuletti/DS18110.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC0azRqdsxZ62uyvjcHEpzua/aktivointi/farkkuletti/DS18137-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAFJ_82jmu8upjXzuMl60TSa/aktivointi/farkkuletti/DS18137.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABtogRFUQ3pBKKgIA7RiWc6a/aktivointi/farkkuletti/fleeceletti_kollaasi-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADYRhUiLlF2IqD-s1cLv5mPa/aktivointi/farkkuletti/fleeceletti_kollaasi.jpg)
+
+#### Farkkusolmu
 
 Leikkasin tässäkin toisen lahkeen irti.
 

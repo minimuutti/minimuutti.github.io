@@ -27,6 +27,10 @@ Yleensä piilotan puuhun ihan pieneksi pilkottuja kuivatun kanafileenpaloja ja j
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAWCUYf0vCVWBpWFEGZ8sdna/aktivointi/namien-piilotus-puuhun/DSC25421_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADkb7j7YbjQmInKScE75ANGa/aktivointi/namien-piilotus-puuhun/DSC25421_2.jpg)
 
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAGykc4ts9rZIS2rrscqQowa/aktivointi/namien-piilotus-puuhun/DS19647-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABkzEQQQuRqRKW9riqQ6IPja/aktivointi/namien-piilotus-puuhun/DS19647.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACMJzgmegrRTrw5n-1_fCzda/aktivointi/namien-piilotus-puuhun/DS19645-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAcQYYS4vt83Pgyj-X35K6ca/aktivointi/namien-piilotus-puuhun/DS19645.jpg)
+
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC_zXjz0dwBRFvjhjtjKWzNa/aktivointi/namien-piilotus-puuhun/DSC42805-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABJDvkvVL-DMH5Dbqh7ocnLa/aktivointi/namien-piilotus-puuhun/DSC42805.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA4IeXlVWz5VaLK0oOFFAFka/aktivointi/namien-piilotus-puuhun/DSC55047-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAd3xzFK1M2KTuxvRKBS9Zba/aktivointi/namien-piilotus-puuhun/DSC55047.jpg)
