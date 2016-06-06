@@ -26,7 +26,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
-* 29.5.2016 New photos added in category; Summer
+* 6.6.2016 New photos added in category; Summer
 * 29.5.2016 Updated activation post; Hiding the treats in a tree
 * 29.5.2016 Updated activation post; Denim plait
 * 16.5.2016 New photos added in category; Spring
