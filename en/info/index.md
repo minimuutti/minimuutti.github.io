@@ -26,6 +26,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 6.6.2016 Updated activation post; Empty paper rolls
 * 6.6.2016 New photos added in category; Summer
 * 29.5.2016 Updated activation post; Hiding the treats in a tree
 * 29.5.2016 Updated activation post; Denim plait
@@ -37,7 +38,6 @@ New and recently updated posts:
 * 6.5.2016 Updated activation post; Small games
 * 6.5.2016 New activation post; Ikea's Drömmar set
 * 23.4.2016 New activation post; Gone fishin'
-* 23.4.2016 Updated activation post; Empty paper rolls
 * 15.4.2016 Updated activation post; Tug a fleece
 * 9.4.2016 New activation post; Egg cartons
 * 9.4.2016 Updated activation post; Pulling cart

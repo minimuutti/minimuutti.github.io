@@ -57,6 +57,28 @@ Mikiltä kesti noin 15-20 minuuttia saada kaikki namit syötyä.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAzwkfl1z4OiXNM1mc-0QWma/aktivointi/paperirullien-hylsyt/DS02966-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD91STosiJE3t-QTLm1-Qw9a/aktivointi/paperirullien-hylsyt/DS02966.jpg)
 
+Näissä kuvissa näkyy kun laitoin nappulat hylsyjen alle sekä niiden väleihin ja ladoin hylsyjä laatikkoon kolme kerrosta. Mikiltä kesti nappuloiden löytäminen noin 3 minuuttia.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB1g5sWhhvU0oomSZ5PPyDna/aktivointi/paperirullien-hylsyt/DS21262-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAANW8rC8tk9zINJyVCTnDI-a/aktivointi/paperirullien-hylsyt/DS21262.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADPHc_7-mOwvqeCEEoFDf3Ma/aktivointi/paperirullien-hylsyt/DS21275-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABQCnGZFWBJjpaJtNsBherta/aktivointi/paperirullien-hylsyt/DS21275.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAChbcYFT6ETz6eUFrzzxkO1a/aktivointi/paperirullien-hylsyt/DS21317-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAZjJE5QDE7v62-WUClWm28a/aktivointi/paperirullien-hylsyt/DS21317.jpg)
+
+#### Hylsyt laatikossa II
+
+Paperirullien hylsyillä voi täyttää laatikon myös niin, että laittaa hylsyt pystyyn ja ripottelee namit tai nappulat rullien sisälle tai niiden väleihin.
+
+Käyttämääni kenkälaatikkoon meni noin 40 hylsyä ja Mikiltä kesti noin 7 minuuttia saada kaikki nappulat syötyä.
+
+Jos sinulla ei ole tarpeeksi tyhjiä rullia tähän tehtävään, niin kannattaa kokeilla tätä saman kaltaista tehtävää "[Paperiset rullat laatikossa](http://minimuutti.com/aktivointi/paperiset-rullat-laatikossa/)".
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAVY2POv5udikUhj7OMQyy0a/aktivointi/paperirullien-hylsyt/DS20931-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACBdJ6b5tRVXpQYDF30GFYma/aktivointi/paperirullien-hylsyt/DS20931.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABDHacaeH50y2aZJ_gGO_zKa/aktivointi/paperirullien-hylsyt/DS20996-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADe2FsSusmprPGMV0H6JoWqa/aktivointi/paperirullien-hylsyt/DS20996.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADFaYLUR_ZZFBRVrseSIIhwa/aktivointi/paperirullien-hylsyt/DS21050-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADNOR6ZtMguQvlNIJP3jmKba/aktivointi/paperirullien-hylsyt/DS21050.jpg)
+
 #### Rullatut pikkupyyhkeet hylsyjen sisällä
 
 Rullasin jokaisen pikkupyyhkeen sisälle muutaman pienen kuivatun kanafileen palasen, mutta tässä voi käyttää muitakin kuivia nameja. Pyyhkeet mahtuivat rullien sisälle juuri ja juuri, joten isompien namien kanssa pyyhkeet eivät välttämättä olisivat hylsyihin enää mahtuneet.

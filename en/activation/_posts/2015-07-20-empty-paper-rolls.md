@@ -52,9 +52,33 @@ It took Miki about 15-20 minutes to get all the kibbles out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAzwkfl1z4OiXNM1mc-0QWma/aktivointi/paperirullien-hylsyt/DS02966-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD91STosiJE3t-QTLm1-Qw9a/aktivointi/paperirullien-hylsyt/DS02966.jpg)
 
+This time I put the kibbles on the bottom of the box and then laid three layers of rolls on top. It took Miki about three minutes to eat all the kibbles.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB1g5sWhhvU0oomSZ5PPyDna/aktivointi/paperirullien-hylsyt/DS21262-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAANW8rC8tk9zINJyVCTnDI-a/aktivointi/paperirullien-hylsyt/DS21262.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADPHc_7-mOwvqeCEEoFDf3Ma/aktivointi/paperirullien-hylsyt/DS21275-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABQCnGZFWBJjpaJtNsBherta/aktivointi/paperirullien-hylsyt/DS21275.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAChbcYFT6ETz6eUFrzzxkO1a/aktivointi/paperirullien-hylsyt/DS21317-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAZjJE5QDE7v62-WUClWm28a/aktivointi/paperirullien-hylsyt/DS21317.jpg)
+
+#### Rolls in a box II
+
+I placed about 40 rolls vertically into a box and then sprinkled some kibbles inside the rolls and between them. 
+
+It took Miki about 7 minutes to eat all the kibbles.
+
+If you don't have enough empty rolls for this game, you can try this similar game "[Paper rolls in a box](http://minimuutti.com/en/activation/paper-rolls-in-a-box/)".
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAVY2POv5udikUhj7OMQyy0a/aktivointi/paperirullien-hylsyt/DS20931-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACBdJ6b5tRVXpQYDF30GFYma/aktivointi/paperirullien-hylsyt/DS20931.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABDHacaeH50y2aZJ_gGO_zKa/aktivointi/paperirullien-hylsyt/DS20996-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADe2FsSusmprPGMV0H6JoWqa/aktivointi/paperirullien-hylsyt/DS20996.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADFaYLUR_ZZFBRVrseSIIhwa/aktivointi/paperirullien-hylsyt/DS21050-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADNOR6ZtMguQvlNIJP3jmKba/aktivointi/paperirullien-hylsyt/DS21050.jpg)
+
 #### Rolls with small towels
 
-I cut small pieces of chicken fillet and rolled a couple of pieces in each towel. Then I pushed the towels inside the rolls. It took Miki about 7 minutes to get the treats out from 5 rolls.
+I cut small pieces of chicken fillet and rolled a couple of pieces in each towel. Then I pushed the towels inside the rolls.
+
+It took Miki about 7 minutes to get the treats out from 5 rolls.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAmNq8vFOE91xpOmhXHK2qGa/aktivointi/paperirullien-hylsyt/DSC59456-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADb_u-bB1jgmraCts8ZJU0Oa/aktivointi/paperirullien-hylsyt/DSC59456.jpg)
 

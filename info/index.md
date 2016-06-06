@@ -26,6 +26,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 6.6.2016 Päivitetty aktivointivinkki; Paperirullien hylsyt
 * 6.6.2016 Lisätty uusia valokuvia kategoriaan; Kesä
 * 29.5.2016 Päivitetty aktivointivinkki; Namien piilotus puuhun
 * 29.5.2016 Päivitetty aktivointivinkki; Farkkuletti
@@ -37,7 +38,6 @@ Uudet ja viimeksi päivitetyt osiot:
 * 6.5.2016 Päivitetty aktivointivinkki; Minitehtäviä
 * 6.5.2016 Lisätty uusi aktivointivinkki; Ikean Drömmar muotit
 * 23.4.2016 Lisätty uusi aktivointivinkki; Onginta
-* 23.4.2016 Päivitetty aktivointivinkki; Paperirullien hylsyt
 * 15.4.2016 Päivitetty aktivointivinkki; Solmupiilo
 * 9.4.2016 Lisätty uusi aktivointivinkki; Kananmunakotelot
 * 9.4.2016 Päivitetty aktivointivinkki; Kärryn vetäminen
