@@ -1,5 +1,5 @@
 ---
-title: "Useita purkkeja sisäkkäin"
+title: "Purkit sisäkkäin"
 layout: article
 image:
   feature:
