@@ -34,3 +34,5 @@ You can read the full post by clicking the small icons.
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABqKBQyizl5fWo0UqaQTn7Ra/aktivointi/putoilevat-namit/DSC51366-245px.jpg)](http://minimuutti.com/en/activation/falling-treats/)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJHl-lgHbDCrXxK4Sb3W_ha/aktivointi/onginta/DS15029-245px.jpg)](http://minimuutti.com/en/activation/gone-fishin/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABCbkb3rwCRjafwCwKeNKt0a/aktivointi/tuubin-pyoritys/DS23531-245px.jpg)](http://minimuutti.com/en/activation/high-roller/)
