@@ -9,7 +9,7 @@ image:
 
 Käytin tässä tehtävässä tulostuspaperirullien hylsyjä sekä muoviputkesta leikattua pätkää. Tässä voi yhtä hyvin käyttää myös limupulloja, Pringlestuubeja sekä talouspaperirullan hylsyjä tai koirannamiputkiloita.
 
-### Variaatio 1
+### Tehtävä 1
 
 Laitoin pahvilaatikon pohjalle putkiloita niin, että putkiloiden väliin jäi vähän Mikin kuonoa leveämpi kolo ja ripottelin nappuloita tuonne väleihin sekä laatikon reunoille. Leikin ideana on, että koiran täytyy rullata noita putkia kumpaankin suuntaan saadakseen kaikki nappulat tuolta.
 
@@ -25,7 +25,7 @@ Mikiltä löysi vajaan kourallisen nappuloita noin minuutissa. Tähän leikkiin 
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAdYV8uKBp1WyykYlV9bFNOa/aktivointi/putkilot-laatikossa/DSC47219-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC94TFIbqR4uPlEr55keAKEa/aktivointi/putkilot-laatikossa/DSC47219.jpg)
 
-### Variaatio 2
+### Tehtävä 2
 
 Käytössäni olevat putkilot mahtuvat pituussuunnassa laatikon sisään juuri ja juuri. Laitoin laatikkoon neljä pahviputkiloa, mutta tällä kertaa laitoin herkut putkiloiden sisään, joten Mikin ainoa keino saada namit noista ulos oli nostaa putket yksitellen ulos laatikosta.
 
