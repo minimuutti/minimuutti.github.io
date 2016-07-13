@@ -5,6 +5,20 @@ layout: default
 
 # Welcome to the journey with Minimute!
 
+This site introduces ideas how you can drain your dog's excess energy in various fun ways. All the games have been tested by my energetic dog Miki.
+
+[**Activation**](http://minimuutti.com/en/activation/) –category contains over a hundred different games including nose work games, puzzle games and enrichment ideas including instructions with pictures.
+
+[**Treat dispensers**](http://minimuutti.com/en/treat-dispensers/) –category introduces various toys and puzzle feeders and also some recommendations about the treats suitable for different toys.
+
+[**Tricks**](http://minimuutti.com/en/tricks/) –category contais all the tricks and cues Miki knows by now and also something that we are working with right now.
+
+[**Info**](http://minimuutti.com/en/info/) –site contains list of the latest updates and contact information.
+
+If you find this site useful and you want to support me, you can donate bitcoins to the adress shown on the [**Info**](http://minimuutti.com/en/info/) –site.
+
+This site also contains my favourite photographs about [**Miki**](http://minimuutti.com/en/pictures-of-miki/) and [**Finnish nature**](http://minimuutti.com/en/pictures-of-finnish-nature/).
+
 ### First about Miki and something about me too
 
 Miki (means small in inuite language) was born on August 2012. He is a mixed-breed dog. Miki’s mother is an Alaskan Malamute and his father is a Finnish Lapphund, so that’s why we call Miki a minimute. In his heart, he is 100% malamute. Miki’s litter had 8 puppies, and he was the puppy number one. He was always the first to eat, he was the first that came to greed us when we first met the dogs and we were told that Miki used to eat his parents foods as well.
