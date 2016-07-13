@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-### Here are the tricks and commands Miki knows for now. First there is the Finnish word for it, followed by the same in English. 
+### Here are the tricks and cues Miki knows for now. First there is the Finnish word for it, followed by the same in English. 
 
 * istu / sit (gets up only with permission)
 

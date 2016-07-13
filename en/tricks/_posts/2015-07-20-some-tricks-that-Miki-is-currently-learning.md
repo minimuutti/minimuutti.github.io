@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-### Some tricks that Miki is currently learning
+### Some tricks and cues that Miki is currently learning
 
 * seiso / stand
 
@@ -28,7 +28,6 @@ image:
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAArRHKImrCZAJkZUvve5OHaa/temput/2/DSC05677-245px.jpg)
 
 * luuppi / jump through a hulahoop
-* vilkuta / wave with left paw
 * suoraan / go straight (don't turn)
 * kärppä / weasel (licks his lips)
 
@@ -44,3 +43,4 @@ image:
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_naHPy5jVIyH9fEmT5QDqa/temput/1/DSC41849-245px.jpg)
 
 * takatassut kosketusalustalle / back paws on touchpad
+* brushing teeth (I haven't taught any verbal cue for this, the toothbrush itself works as a cue)

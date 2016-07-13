@@ -14,7 +14,7 @@ Tässä on muutamia hyviä linkkejä, mistä saa ideoita ja vinkkejä temppujen 
 * [https://www.youtube.com/user/kikopup/videos](https://www.youtube.com/user/kikopup/videos "Youtube/kikopup")
 * [https://www.youtube.com/user/tab289/videos](https://www.youtube.com/user/tab289/videos "Youtube/tab289")
 
-Miki osaa tällä hetkellä 70 käskyä tai temppua ja 9 uutta käskyä tai temppua on työn alla.
+Miki osaa tällä hetkellä 70 käskyä tai temppua ja muutamia uusia on myös työn alla.
 
 Olen myös laittanut tänne niitä käskyjä ja temppuja, joiden opettamista Mikille ei vielä ole aloitettu. Laitoin ne tänne siksi, jotta sinä saisit vinkkejä koirallesi opetettavista tempuista.
 

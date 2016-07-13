@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-### Tässä on lueteltuna Mikin tällä hetkellä osaamat temput ja käskyt
+### Tässä on lueteltuna Mikin tällä hetkellä osaamat temput ja muut vihjeelliset toiminnot
 
 * istu (istuu ja nousee vasta luvalla)
 
@@ -205,17 +205,17 @@ image:
 ![](https://lh3.googleusercontent.com/EdyHVb13IbFbhrT83BFQen42fSr1SJ2U6eCkHB5eVmY=w245)
 ![](https://lh3.googleusercontent.com/hNxPRi1FtnVwElU9GORx2jm4Wx0r7LZ3wepsC-l3CR8=w245)
 
-* kuonon lepuuttaminen kämmenellä (tähän ei ole mitään käskyä vaan pelkkä käsimerkki, koska toiminnon on tarkoitus rauhoittaa Mikiä)
+* kuonon lepuuttaminen kämmenellä (tähän ei ole mitään sanallista vihjettä vaan pelkkä käsimerkki, koska toiminnon on tarkoitus rauhoittaa Mikiä)
 * kosketuskepin pään koskettaminen kuonolla
 
 ![](https://lh3.googleusercontent.com/mKdR6-U0Ob5ocDNMG6cFi4bRocYUQ41a3jjkxVlfgFo=w245)
 
-* post-it lapun koskeminen (koskee lappua kuonolla, tähän ei ole mitään käskyä mutta tällä on opetettu muita temppuja)
+* post-it lapun koskeminen (koskee lappua kuonolla, tähän ei ole mitään sanallista vihjettä mutta tällä on opetettu muita temppuja)
 
 ![](https://lh3.googleusercontent.com/N0ZL5ovJA-93qPjmc7Ekztazeu976x2QeT8zDkxXwH8=w245)
 ![](https://lh3.googleusercontent.com/7CxiuHgQk4MT1TtolC7nOOfIJ5eD5NyT0qN1WcO81OM=w245)
 
-* kosketusalustalle meneminen (laittaa etutassut alustalle, tähän ei myöskään ole käskyä mutta käytetään apuna tempuissa)
+* kosketusalustalle meneminen (laittaa etutassut alustalle, tähän ei myöskään ole sanallista vihjettä mutta käytetään apuna tempuissa)
 
 ![](https://lh3.googleusercontent.com/LAz4Y2VtuLUlafykTERwJeni6w9FG3pvIoSn63sPF9Y=w245)
 ![](https://lh3.googleusercontent.com/L24nTvpXyRPkC4mSIY_HabZWmGrF8Pkp-CaYWQj2wl8=w245)

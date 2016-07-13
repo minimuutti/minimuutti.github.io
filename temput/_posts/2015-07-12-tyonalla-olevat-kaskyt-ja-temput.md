@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-### Tässä on muutamia käskyjä ja temppuja mitä tällä hetkellä opetellaan
+### Tässä on muutamia toimintoja ja temppuja mitä tällä hetkellä opetellaan
 
 * seiso (odotellaan siepattavia hetkiä)
 
@@ -28,7 +28,6 @@ image:
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAArRHKImrCZAJkZUvve5OHaa/temput/2/DSC05677-245px.jpg)
 
 * luuppi (hyppää renkaan tai hulavanteen läpi)
-* vilkuta (Mikin olisi tarkoitus vilkuttaa vasemmalla tassulla, mutta tässä ollaan vasta alkutekijöissä)
 * suoraan (eli ei käänny risteyksestä oikealle eikä vasemmalle)
 * kärppä (nuolee huulia)
 
@@ -44,3 +43,4 @@ image:
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_naHPy5jVIyH9fEmT5QDqa/temput/1/DSC41849-245px.jpg)
 
 * takatassut kosketusalustalle
+* hampaiden harjaus (tähän ei olla harjoiteltu mitään sanallista vihjettä, vaan hammasharja toimii vihjeenä)
