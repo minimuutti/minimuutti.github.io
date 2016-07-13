@@ -161,6 +161,17 @@
    ========================================================================== */
 
 #main {
+	.parent-link {
+		height: 32px;
+		left: -32px;
+		opacity: 0.4;
+		position: absolute;
+		top: 10px;
+		width: 32px;
+		&:hover {
+			opacity: 1;
+		}
+	}
 	.inner-wrap {
 		@include media($medium) {
 			@include span-columns(9);

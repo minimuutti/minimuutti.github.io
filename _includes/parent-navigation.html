@@ -1,0 +1,11 @@
+{% assign categories = page.url | split: "/" | join: " " | split: " " %}
+{% assign current = categories | last %}
+{% assign link = "/" %}
+{% assign name = "" %}
+{% for category in categories %}
+	{% if category != current %}
+		{% assign link = link | append: category | append: "/" %}
+		{% assign name = category %}
+	{% endif %}
+{% endfor %}
+<a class="parent-link" href="{{ link }}"><img src="/icons/entypo/reply.svg"></a>
