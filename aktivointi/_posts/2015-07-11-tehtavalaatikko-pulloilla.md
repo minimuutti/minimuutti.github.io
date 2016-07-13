@@ -21,7 +21,7 @@ Mikillä kesti noin 30 minuuttia saada kaikki namit ulos näistä ja suurin osa 
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADm946Zh1xUMqmJBebgyrWua/aktivointi/tehtavalaatikko-pulloilla/DSC52647-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAn7zjFWBiTuTvoIhV1WLcDa/aktivointi/tehtavalaatikko-pulloilla/DSC52647.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB1nYhVeUMZzla7XxibKLGDa/aktivointi/tehtavalaatikko-pulloilla/DSC52801-800px.jpg)](ttps://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWehNxvmcb3xZRC17OdE2Da/aktivointi/tehtavalaatikko-pulloilla/DSC52801.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB1nYhVeUMZzla7XxibKLGDa/aktivointi/tehtavalaatikko-pulloilla/DSC52801-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWehNxvmcb3xZRC17OdE2Da/aktivointi/tehtavalaatikko-pulloilla/DSC52801.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADyiKHKuZHBVwPmWKG5weVRa/aktivointi/tehtavalaatikko-pulloilla/DSC52815-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADs2zSXmjeDNMzgqz0c0ZQfa/aktivointi/tehtavalaatikko-pulloilla/DSC52815.jpg)
 
