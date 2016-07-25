@@ -26,8 +26,8 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 25.7.2016 New photos added in category; Summer
 * 23.7.2016 New activation post; High roller's alternatives
-* 23.7.2016 New photos added in category; Summer
 * 16.7.2016 New photos added in category; Pictures of Miki
 * 26.6.2016 New activation post; High roller
 * 6.6.2016 Updated activation post; Empty paper rolls
@@ -54,18 +54,8 @@ New and recently updated posts:
 * 16.3.2016 New activation post; Toys on a stick
 * 16.3.2016 Updated activation post; Fleece wraps
 * 14.3.2016 Updated activation post; Two wash basins
-* 14.3.2016 Updated activation post; Puzzle mat
 * 11.3.2016 New activation post; Smoothie cans
-* 11.3.2016 Updated activation post; Taskbox with paper balls
-* 11.3.2016 Updated activation post; Towels in the box
 * 5.3.2016 Updated treat dispenser; Interactive games
 * 2.3.2016 New activation post; Flippin' it
-* 29.2.2016 New treat dispenser; JW Playbites Caterpillar
-* 12.2.2016 Updated activation post; Peek a hole
-* 12.2.2016 New activation post; Valentine's heart
-* 12.2.2016 New activation post; Paper rolls in a box
-* 12.2.2016 Updated activation post; Carton packages
-* 6.2.2016 New activation post; Reversed muffin tray
-* 5.2.2016 New activation post; Flying saucer
 
 © Susu

@@ -26,8 +26,8 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 25.7.2016 Lisätty uusia valokuvia kategoriaan; Kesä
 * 23.7.2016 Lisätty uusi aktivointivinkki; Tuubin pyörittäjän vaihtoehdot
-* 23.7.2016 Lisätty uusia valokuvia kategoriaan; Kesä
 * 16.7.2016 Lisätty uusia valokuvia kategoriaan; Mikin kuvat
 * 26.6.2016 Lisätty uusi aktivointivinkki; Tuubin pyöritys
 * 6.6.2016 Päivitetty aktivointivinkki; Paperirullien hylsyt
@@ -54,18 +54,7 @@ Uudet ja viimeksi päivitetyt osiot:
 * 16.3.2016 Lisätty uusi aktivointivinkki; Lelut tikussa
 * 16.3.2016 Päivitetty aktivointivinkki; Fleecekiepit
 * 14.3.2016 Päivitetty aktivointivinkki; Pesuvadit päällekkäin
-* 14.3.2016 Päivitetty aktivointivinkki; Palapelimatto
 * 11.3.2016 Lisätty uusi aktivointivinkki; Smoothie tölkit
-* 11.3.2016 Päivitetty aktivointivinkki; Tehtävälaatikko paperipalloilla
-* 11.3.2016 Päivitetty aktivointivinkki; Pyyhelaatikko
 * 5.3.2016 Päivitetty aktivointilelut; Aktivointipelit
-* 3.2.2016 Lisätty uusi aktivointivinkki; Flippailu
-* 29.2.2016 Lisätty uusi aktivointilelu; JW Playbites Caterpillar
-* 12.2.2016 Päivitetty aktivointivinkki; Kurkkaa koloon
-* 12.2.2016 Lisätty uusi aktivointivinkki; Ystävänpäivän sydän
-* 12.2.2016 Lisätty uusi aktivointivinkki; Paperiset rullat laatikossa
-* 12.2.2016 Päivitetty aktivointivinkki; Kartonkipakkaukset
-* 6.2.2016 Lisätty uusi aktivointivinkki; Paperikuplat
-* 5.2.2016 Lisätty uusi aktivointivinkki; Lentävä lautanen
 
 © Susu
