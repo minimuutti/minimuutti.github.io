@@ -32,7 +32,7 @@ Mikin hellittelynimenä käytetään usein "wulffia". Sutta Mikissä ei ole sen 
 
 Kuvailen Mikiä usein näillä sanoilla: elämänhaluinen, sydämellinen, todella ihmisrakas, erittäin älykäs ja aina innokas tekemään ja kokeilemaan uutta. Tuo voimakas elämänhalu ja innokkuus tuovat mukanaan sen kääntöpuolen, että virtaa vaan riittää ja riittää ja riittää. Mutta toisaalta se on juuri se, mikä tekee koirasta "hyvän".
 
-Mikiä voi kutsua myös reaktiiviseksi koiraksi, koska sen ämpäri niin sanotusti täyttyy tavallista nopeammin. Usein energisillä "ongelmakoirilla" saattaa olla mitä parhain motivaatio omistajan ohjaamaan työskentelyyn ja  koiran halukkuus pitäisi vaan pystyä näkemään niiden ongelmien takaa. Miki ei koskaan kieltäydy mistään aktiviteeteista tai harjoituksista kunhan tarjolla on ruokapalkkaa. Onneksi Mikillä on pohjaton vatsa ja loputon ruokahalu :D
+Mikiä voi kutsua myös reaktiiviseksi koiraksi, koska sen ämpäri niin sanotusti täyttyy tavallista nopeammin kun näemme muita koiria lenkin aikana. Usein energisillä "ongelmakoirilla" saattaa olla mitä parhain motivaatio omistajan ohjaamaan työskentelyyn ja  koiran halukkuus pitäisi vaan pystyä näkemään niiden ongelmien takaa. Miki ei koskaan kieltäydy mistään aktiviteeteista tai harjoituksista kunhan tarjolla on ruokapalkkaa. Onneksi Mikillä on pohjaton vatsa ja loputon ruokahalu :D
 
 Mikistä voisi myös käyttää ilmaisuja voimakastahtoinen ja vokaalinen. Mikin (ja tietenkin myös meidän) onneksi se valikoitui pentueesta juuri meille. Olen horoskoopiltani härkä ja toisinaan erittäinkin määrätietoinen ja itsepäinen. Jos minä jotain päätän, niin päätös pitää. Kenenkään on turha tulla sanomaan minulle, ettei minimuutin kanssa voi tehdä "jotain", ei se tuon rotuisen koiran kanssa onnistu. Kyllä onnistuu :D
 
