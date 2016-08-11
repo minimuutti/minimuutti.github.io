@@ -17,7 +17,7 @@ Tästä kategoriasta löydät paljon erilaisia haistelu- ja älytehtäviä, itse
 
 Erilaiset etsimis- ja haistelutehtävät ovat hyviä keinoja aktivoida koiraa.
 
-Mikäli koirasi ei ole ennen etsinyt mitään, niin kannattaa aloittaa helpoilla tehtävillä. Ensiksi kannattaa vain heittää muutama nami lattialle koiran eteen ja antaa koiralle käsky: etsi.
+Mikäli koirasi ei ole ennen etsinyt mitään, niin kannattaa aloittaa helpoilla tehtävillä. Ensiksi kannattaa vain heittää muutama nami lattialle koiran eteen ja antaa koiralle vihje: etsi.
 
 Tätä voi pikkuhiljaa vaikeuttaa heittämällä namit maahan ulkona (jossa on paljon muitakin hajuja) tai ruohikkoon tai villinä kasvavaan heinikkoon tai lumihankeen. Ulkona kannattaa aina olla varovainen, esim. villiintyneestä heinikosta ei voi aina tietää onko siellä jotain syötäväksi kelpaamatonta tai vaikka rikottu pullo. Kun Mikille heitetään nakin palasia pitkään ruohikkoon, niin annan sen ensin aina haistaa sitä nakkia, jotta sillä olisi tiedossa mitä sen pitää etsiä. Tällä pyrin välttämään sitä, ettei Miki etsisi ja söisi sieltä mitään sellaista mitä en halua sen syövän (esim. käytettyjä nenäliinoja tai muita "koirien herkkuja" joita en itse näe).
 
