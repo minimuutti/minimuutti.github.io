@@ -13,7 +13,7 @@ You can read more about the study in [here](http://www.companionanimalpsychology
 
 Any type of nose work games and searching games are good ways to drain your dog's energy.
 
-If your dog hasn’t searched for anything before, you should start by throwing a couple of treats to the floor in front of your dog so that he can see them and give a command: search (when he goes and eat the treats).
+If your dog hasn’t searched for anything before, you should start by throwing a couple of treats to the floor in front of your dog so that he can see them and give a cue: search (when he goes and eat the treats).
 Only after this you can make the searching games harder. You can throw the treats on a sidewalk, or in a short grass. Later on you can throw the treats in a long grass on even in a snowdrift. When you are outside with your dog you should always be very careful, because you can’t always be sure if there aren’t any broken glass or other dangerous things in the thick, long grass. Or there could be something hidden, that you may not like your dog to eat, like used paper tissues or chewing gums.
 
 Here you can find various nose work and searching game ideas for your dog.
