@@ -26,6 +26,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 14.8.2016 New activation post; Toy hunt
 * 14.8.2016 New photos added in category; Summer
 * 7.8.2016 Updated activation post; Towels
 * 2.8.2016 New activation post; Rose
