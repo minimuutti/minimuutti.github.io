@@ -26,10 +26,10 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 14.8.2016 New photos added in category; Summer
 * 7.8.2016 Updated activation post; Towels
 * 2.8.2016 New activation post; Rose
 * 29.7.2016 New photos added in category; Autumn
-* 29.7.2016 New photos added in category; Summer
 * 23.7.2016 New activation post; High roller's alternatives
 * 16.7.2016 New photos added in category; Pictures of Miki
 * 26.6.2016 New activation post; High roller

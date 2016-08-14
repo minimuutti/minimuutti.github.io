@@ -26,10 +26,10 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 14.8.2016 Lisätty uusia valokuvia kategoriaan; Kesä
 * 7.8.2016 Päivitetty aktivointivinkki; Pyyheliina
 * 2.8.2016 Lisätty uusi aktivointivinkki; Ruusu
 * 29.7.2016 Lisätty uusia valokuvia kategoriaan; Syksy
-* 29.7.2016 Lisätty uusia valokuvia kategoriaan; Kesä
 * 23.7.2016 Lisätty uusi aktivointivinkki; Tuubin pyörittäjän vaihtoehdot
 * 16.7.2016 Lisätty uusia valokuvia kategoriaan; Mikin kuvat
 * 26.6.2016 Lisätty uusi aktivointivinkki; Tuubin pyöritys
