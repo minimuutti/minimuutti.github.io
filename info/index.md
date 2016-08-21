@@ -14,15 +14,27 @@ Twitterissä: @minimuutti
 
 Mikäli sinulla on hyviä aktivointivinkkejä tai kommentteja, tai olet kiinnostunut ostamaan jonkun valokuvistani, niin älä epäröi ottaa yhteyttä.
 
-Mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani, niin käytäthän alla olevaa linkkiä kun seuraavan kerran asioit Zooplussan verkkokaupassa. Linkki avautuu klikkaamalla kaupan logoa.
+Mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani, niin voit lahjoittaa haluamasi summan Paypalin kautta:
 
-Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
+<p>
+<form action="https://www.paypal.com/cgi-bin/webscr" method="post" target="_top">
+<input type="hidden" name="cmd" value="_s-xclick">
+<input type="hidden" name="hosted_button_id" value="YSDQ9E3APZA84">
+<input type="image" src="https://www.paypalobjects.com/en_US/i/btn/btn_donateCC_LG.gif" border="0" name="submit" alt="PayPal - The safer, easier way to pay online!">
+<img alt="" border="0" src="https://www.paypalobjects.com/en_US/i/scr/pixel.gif" width="1" height="1">
+</form>
+</p>
 
-	1CGjZKmgEaHmbqvfMxKbVgDf38gSAKUgYa
+Voit tukea toimintaani myös käyttämällä alla olevaa linkkiä, kun seuraavan kerran asioit Zooplussan verkkokaupassa. Linkki avautuu klikkaamalla kaupan logoa.
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABJ4id2qnwExeeaa1empjHfa/muut/matkassa%20mukana.jpg)
 
 [![](https://lh3.googleusercontent.com/MKwfsbFq7uu2wQQcpBMKzbeTWG_X6GHIw91FFzQ2LGw=w447)](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/))
+
+Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
+
+	1CGjZKmgEaHmbqvfMxKbVgDf38gSAKUgYa
+</br>
 
 Uudet ja viimeksi päivitetyt osiot:
 

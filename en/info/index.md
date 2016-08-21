@@ -14,9 +14,19 @@ Twitter: @minimuutti
 
 If you have comments or brain game ideas for dogs, or you want to buy some of my photos, feel free to e-mail. 
 
-If you find this site useful and you want to support me, you can donate bitcoins to the adress below:
+If you find this site useful and you want to support me, you can donate free amount via Paypal or you can send bitcoins to the adress below:
+
+<p>
+<form action="https://www.paypal.com/cgi-bin/webscr" method="post" target="_top">
+<input type="hidden" name="cmd" value="_s-xclick">
+<input type="hidden" name="hosted_button_id" value="YSDQ9E3APZA84">
+<input type="image" src="https://www.paypalobjects.com/en_US/i/btn/btn_donateCC_LG.gif" border="0" name="submit" alt="PayPal - The safer, easier way to pay online!">
+<img alt="" border="0" src="https://www.paypalobjects.com/en_US/i/scr/pixel.gif" width="1" height="1">
+</form>
+</p>
 
 	1CGjZKmgEaHmbqvfMxKbVgDf38gSAKUgYa
+
 
 If you live in Finland, please use the link below next time you buy something from Zooplus' online store.
 

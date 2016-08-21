@@ -5,7 +5,7 @@ layout: default
 
 # Tervetuloa Minimuutin matkaan!
 
-The site is also available in [English](http://minimuutti.com/en/).
+The site is also available in [**English**](http://minimuutti.com/en/).
 
 Sivusto sisältää vinkkejä vilkkaiden koirien energian kuluttamiseksi. Kaikki sivustolta löytyvät ideat on testattu eläinkokein ;) ja testaajana on toiminut oma vilkas koirani Miki.
 
@@ -17,7 +17,7 @@ Sivusto sisältää vinkkejä vilkkaiden koirien energian kuluttamiseksi. Kaikki
 
 [**Info**](http://minimuutti.com/info/) –linkin takaa löydät listan viimeksi lisätyistä posteista, yhteistyökumppaneiden linkit sekä yhteystiedot.
 
-Mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani, niin käytäthän **[Info](http://minimuutti.com/info/)** -sivulta löytyvää linkkiä, kun seuraavan kerran asioit Zooplussan verkkokaupassa. Linkki avautuu klikkaamalla kaupan logoa.
+[**Info**](http://minimuutti.com/info/) -sivulta löydät myös lahjoitusvaihtoehdot mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani. Voit tehdä lahjoituksen Paypalin kautta, Bitcoineina tai käyttää [**Info**](http://minimuutti.com/info/) -sivulta löytyvää linkkiä kun seuraavan kerran asioit [**Zooplus.fi**](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/)) -verkkokaupassa.
 
 Sivustolta löytyy myös luontokuvia sekä kuvia Mikistä.
 
