@@ -34,7 +34,6 @@ Voit tukea toimintaani myös käyttämällä alla olevaa linkkiä, kun seuraavan
 Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 	1CGjZKmgEaHmbqvfMxKbVgDf38gSAKUgYa
-</br>
 
 Uudet ja viimeksi päivitetyt osiot:
 
