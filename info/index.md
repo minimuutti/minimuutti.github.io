@@ -37,7 +37,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 31.8.2016 Lisätty uusia valokuvia kategoriaan; Syksy
+* 1.9.2016 Lisätty uusia valokuvia kategoriaan; Syksy
 * 31.8.2016 Lisätty uusia valokuvia kategoriaan; Kesä
 * 17.8.2016 Lisätty uusia valokuvia kategoriaan; Mikin kuvat
 * 14.8.2016 Lisätty uusi aktivointivinkki; Lelujen piilotus
