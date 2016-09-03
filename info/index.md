@@ -6,13 +6,13 @@ layout: article
 Yhteystiedot:
 
 sähköposti: minimuutti.com(at)gmail.com<br/>
-Twitterissä: @minimuutti
+Twitter: @minimuutti
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADN3gQnG6WMsOFYQTpumxJda/muut/Twitter%20logo_40.jpg)](https://twitter.com/minimuutti)
 
 ![](https://lh3.googleusercontent.com/rUi_U-5Iu5bgA0h60ykYVrw8kV3k10DMccmLkt_t2Vs=w245)
 
-Mikäli sinulla on hyviä aktivointivinkkejä tai kommentteja, tai olet kiinnostunut ostamaan jonkun valokuvistani, niin älä epäröi ottaa yhteyttä.
+Valokuviani voit ostaa täysikokoisena ilman vesileimaa [500px.com](https://500px.com/search?q=minimuutticom&type=market) -sivustolta.
 
 Mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani, niin voit lahjoittaa haluamasi summan Paypalin kautta:
 

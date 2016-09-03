@@ -19,7 +19,7 @@ Sivusto sisältää vinkkejä vilkkaiden koirien energian kuluttamiseksi. Kaikki
 
 [**Info**](http://minimuutti.com/info/) -sivulta löydät myös lahjoitusvaihtoehdot mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani. Voit tehdä lahjoituksen Paypalin kautta, Bitcoineina tai käyttää [**Info**](http://minimuutti.com/info/) -sivulta löytyvää linkkiä kun seuraavan kerran asioit [**Zooplus.fi**](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/)) -verkkokaupassa.
 
-Sivustolta löytyy myös luontokuvia sekä kuvia Mikistä.
+Sivustolta löytyy myös **[luontokuvia](http://minimuutti.com/luontokuvat/)** sekä kuvia **[Mikistä](http://minimuutti.com/kuvia-mikista/)**. Voit ostaa täyden resoluution valokuvia ilman vesileimaa [**500px.com**](https://500px.com/search?q=minimuutticom&type=market) -sivustolta.
 
 
 ### Mikistä ja vähän myös kirjoittajasta

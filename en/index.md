@@ -17,7 +17,7 @@ This site introduces ideas how you can drain your dog's excess energy in various
 
 If you find this site useful and you want to support me, you can donate free amount via Paypal - the link is located on the [**Info**](http://minimuutti.com/en/info/) -site. Alternatively you can send bitcoins to the adress shown on the [**Info**](http://minimuutti.com/en/info/) –site.
 
-This site also contains my favourite photographs about [**Miki**](http://minimuutti.com/en/pictures-of-miki/) and [**Finnish nature**](http://minimuutti.com/en/pictures-of-finnish-nature/).
+This site also contains my favourite photographs about [**Miki**](http://minimuutti.com/en/pictures-of-miki/) and [**Finnish nature**](http://minimuutti.com/en/pictures-of-finnish-nature/). You can buy full resolution photos  without the watermark on [**500px.com**](https://500px.com/search?q=minimuutticom&type=market).
 
 ### First about Miki and something about me too
 
