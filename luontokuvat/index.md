@@ -7,22 +7,22 @@ Lisää samanaiheisia valokuvia löydät jokaisesta vuodenajasta klikkaamalla pi
 
 <div class="tiles">
 	<article class="tile" itemscope="" itemtype="http://schema.org/Article">
-		<a href="/luontokuvat/kevat/" title="Kevät" class="post-teaser"><img src="https://lh3.googleusercontent.com/Sc5MZz-kz6uvy2OBMfqqwcQ1zit9eV3EkMKw2cfilYo=w245" alt="teaser" itemprop="image"></a>
+		<a href="/luontokuvat/kevat/" title="Kevät" class="post-teaser"><img src="https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWmhCmaqgr1D4TbQUS047Ia/luontokuvat/kev%C3%A4t/DS14212-245px.jpg" alt="teaser" itemprop="image"></a>
 		<h2 class="post-title" itemprop="name"><a href="/luontokuvat/kevat/">Kevät</a></h2>
   		<p class="post-excerpt" itemprop="description"></p>
 	</article>
 	<article class="tile" itemscope="" itemtype="http://schema.org/Article">
-		<a href="/luontokuvat/kesa/" title="Kesä" class="post-teaser"><img src="https://lh3.googleusercontent.com/0WV9gaLjZUfTIwvlJ8ASxqHGThSLJ1h2Uue1ropbLLw=w245" alt="teaser" itemprop="image"></a>
+		<a href="/luontokuvat/kesa/" title="Kesä" class="post-teaser"><img src="https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAbnHeEkuZKblJP-ka5ZJjWa/luontokuvat/kes%C3%A4/5/DS23699-245px.jpg" alt="teaser" itemprop="image"></a>
 		<h2 class="post-title" itemprop="name"><a href="/luontokuvat/kesa/">Kesä</a></h2>
 		<p class="post-excerpt" itemprop="description"></p>
 	</article>
 	<article class="tile" itemscope="" itemtype="http://schema.org/Article">
-		<a href="/luontokuvat/syksy/" title="Syksy" class="post-teaser"><img src="https://lh3.googleusercontent.com/8J1howS_kV7x9Fi89Q9JDFvBnXIQTiBpfkdQ_4ID0pU=w245" alt="teaser" itemprop="image"></a>
+		<a href="/luontokuvat/syksy/" title="Syksy" class="post-teaser"><img src="https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADeJoDbEfmlxeTUOzXh1k3Pa/luontokuvat/syksy/2/DS31888-245px.jpg" alt="teaser" itemprop="image"></a>
 		<h2 class="post-title" itemprop="name"><a href="/luontokuvat/syksy/">Syksy</a></h2>
 		<p class="post-excerpt" itemprop="description"></p>
 	</article>
 	<article class="tile" itemscope="" itemtype="http://schema.org/Article">
-		<a href="/luontokuvat/talvi/" title="Talvi" class="post-teaser"><img src="https://lh3.googleusercontent.com/OuwcKBOpe7eOuefnhl3sPkVbK0mEltDYCKODUj-8Kd0=w245" alt="teaser" itemprop="image"></a>
+		<a href="/luontokuvat/talvi/" title="Talvi" class="post-teaser"><img src="https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAuL25AgRtXiNz3-D0mxnJ6a/luontokuvat/talvi/DSC24163-245px.jpg" alt="teaser" itemprop="image"></a>
 		<h2 class="post-title" itemprop="name"><a href="/luontokuvat/talvi/">Talvi</a></h2>
 		<p class="post-excerpt" itemprop="description"></p>
 	</article>
