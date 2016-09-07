@@ -36,9 +36,9 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 7.9.2016 New photos added in category; Summer
 * 4.9.2016 New activation post; Confidence booster
 * 3.9.2016 New photos added in category; Autumn
-* 3.9.2016 New photos added in category; Summer
 * 17.8.2016 New photos added in category; Pictures of Miki
 * 14.8.2016 New activation post; Toy hunt
 * 7.8.2016 Updated activation post; Towels
