@@ -57,8 +57,5 @@ New and recently updated posts:
 * 6.5.2016 Updated activation post; Small games
 * 6.5.2016 New activation post; Ikea's Drömmar set
 * 23.4.2016 New activation post; Gone fishin'
-* 15.4.2016 Updated activation post; Tug a fleece
-* 9.4.2016 New activation post; Egg cartons
-* 9.4.2016 Updated activation post; Pulling cart
 
 © Susu

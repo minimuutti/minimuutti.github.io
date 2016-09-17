@@ -58,8 +58,5 @@ Uudet ja viimeksi päivitetyt osiot:
 * 6.5.2016 Päivitetty aktivointivinkki; Minitehtäviä
 * 6.5.2016 Lisätty uusi aktivointivinkki; Ikean Drömmar muotit
 * 23.4.2016 Lisätty uusi aktivointivinkki; Onginta
-* 15.4.2016 Päivitetty aktivointivinkki; Solmupiilo
-* 9.4.2016 Lisätty uusi aktivointivinkki; Kananmunakotelot
-* 9.4.2016 Päivitetty aktivointivinkki; Kärryn vetäminen
 
 © Susu
