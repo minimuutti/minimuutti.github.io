@@ -36,6 +36,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 17.9.2016 New treat dispenser review; Buster Food Cube
 * 17.9.2016 New photos added in category; Summer
 * 17.9.2016 New photos added in category; Autumn
 * 4.9.2016 New activation post; Confidence booster
@@ -50,7 +51,7 @@ New and recently updated posts:
 * 29.5.2016 Updated activation post; Denim plait
 * 16.5.2016 New photos added in category; Spring
 * 15.5.2016 Updated activation post; Pill jars
-* 12.5.2016 New treat dispenser; Busy Buddy Magic Mushroom
+* 12.5.2016 New treat dispenser review; Busy Buddy Magic Mushroom
 * 10.5.2016 New activation post; Snuffle mat
 * 6.5.2016 Updated activation post; Dermosil bottles
 * 6.5.2016 Updated activation post; Small games
@@ -59,18 +60,5 @@ New and recently updated posts:
 * 15.4.2016 Updated activation post; Tug a fleece
 * 9.4.2016 New activation post; Egg cartons
 * 9.4.2016 Updated activation post; Pulling cart
-* 9.4.2016 New activation post; Nested packages
-* 6.4.2016 New activation post; Paper bags
-* 6.4.2016 New activation post; Coral cappuccino
-* 6.4.2016 New treat dispenser post; Toys combined
-* 18.3.2016 New activation post; Fleece puzzle
-* 18.3.2016 New activation post; Mystery box
-* 17.3.2016 New activation post; Knick-knacks puzzle
-* 16.3.2016 New activation post; Toys on a stick
-* 16.3.2016 Updated activation post; Fleece wraps
-* 14.3.2016 Updated activation post; Two wash basins
-* 11.3.2016 New activation post; Smoothie cans
-* 5.3.2016 Updated treat dispenser; Interactive games
-* 2.3.2016 New activation post; Flippin' it
 
 © Susu

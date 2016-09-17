@@ -37,6 +37,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 17.9.2016 Lisätty uusi aktivointilelu; Buster Food Cube
 * 17.9.2016 Lisätty uusia valokuvia kategoriaan; Kesä
 * 17.9.2016 Lisätty uusia valokuvia kategoriaan; Syksy
 * 4.9.2016 Lisätty uusi aktivointivinkki; Itsevarmuusbuusteri
@@ -60,17 +61,5 @@ Uudet ja viimeksi päivitetyt osiot:
 * 15.4.2016 Päivitetty aktivointivinkki; Solmupiilo
 * 9.4.2016 Lisätty uusi aktivointivinkki; Kananmunakotelot
 * 9.4.2016 Päivitetty aktivointivinkki; Kärryn vetäminen
-* 9.4.2016 Lisätty uusi aktivointivinkki; Laatikot sisäkkäin
-* 6.4.2016 Lisätty uusi aktivointivinkki; Paperikassit
-* 6.4.2016 Lisätty uusi aktivointivinkki; KoralliCappuccino
-* 6.4.2016 Lisätty aktivointilelut kategoriaan; Yhdistetyt lelut
-* 18.3.2016 Lisätty uusi aktivointivinkki; Fleecerullat
-* 18.3.2016 Lisätty uusi aktivointivinkki; Laatikon arvoitus
-* 17.3.2016 Lisätty uusi aktivointivinkki; Lokerikko
-* 16.3.2016 Lisätty uusi aktivointivinkki; Lelut tikussa
-* 16.3.2016 Päivitetty aktivointivinkki; Fleecekiepit
-* 14.3.2016 Päivitetty aktivointivinkki; Pesuvadit päällekkäin
-* 11.3.2016 Lisätty uusi aktivointivinkki; Smoothie tölkit
-* 5.3.2016 Päivitetty aktivointilelut; Aktivointipelit
 
 © Susu
