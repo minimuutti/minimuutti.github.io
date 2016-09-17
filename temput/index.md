@@ -2,11 +2,13 @@
 title: "Temput"
 layout: category
 ---
-# Temppujen opettelu ja kertaus
+# Temppujen opettelu
 
-Uusien temppujen opettelu vaatii koiralta aivotyötä ja se on yksi parhaimmista aktivointikeinoista. Temppuja on myös kiva esitellä vieraille. Itse koulutan mahdollisimman usein sheippaamalla, jotta Miki joutuu pähkäilemään, että mitäs tässä on oikein tarkoitus tehdä.
+Uusien temppujen opettelu vaatii koiralta aivotyötä ja se on yksi parhaimmista aktivointikeinoista. Temppuja on myös kiva esitellä vieraille. Itse koulutan mahdollisimman usein sheippaamalla, jotta Miki joutuu pähkäilemään, että mitäs tässä oikein on tarkoitus tehdä.
 
-Temppuja on aina mahdollista vaikeuttaa siten, että pyytää koiraa tekemään niitä jollain korokkeella, kivellä, tuolilla, kaatuneen puunrungon päällä, häiriössä jne.
+Jos sinulla sattuu olemaan erityisherkkä ja energinen koira kuten Miki on, niin olet saattanut huomata että koirasi kierrokset nousevat taivaisiin heti, kun haet koulutusnameja tai otan klikkerin käteesi. Itse yritän aina aloittaa Mikin koulutustuokiot kun Miki on rauhallinen ja pyrin myös lopettamaan kouluttamisen ennen kuin sen kierrokset nousevat liikaa.
+
+Olen huomannut, että myös puhuminen nostaa Mikin kierroksia. Vasta viime aikoina olen ymmärtänyt kouluttaa uusia temppuja Mikille pelkällä käsimerkillä sanallisen vihjeen sijaan ja yllättäen Miki oppii uusia temppuja entistä nopeammin koska sen kierrokset eivät nouse yhtä paljon.
 
 Tässä on muutamia hyviä linkkejä, mistä saa ideoita ja vinkkejä temppujen kouluttamiseen:
 
@@ -14,9 +16,9 @@ Tässä on muutamia hyviä linkkejä, mistä saa ideoita ja vinkkejä temppujen 
 * [https://www.youtube.com/user/kikopup/videos](https://www.youtube.com/user/kikopup/videos "Youtube/kikopup")
 * [https://www.youtube.com/user/tab289/videos](https://www.youtube.com/user/tab289/videos "Youtube/tab289")
 
-Miki osaa tällä hetkellä 70 käskyä tai temppua ja muutamia uusia on myös työn alla.
+Miki osaa tällä hetkellä tehdä 70 toimintoa tai temppua vihjeestä ja joitain uusia on myös työn alla.
 
-Olen myös laittanut tänne niitä käskyjä ja temppuja, joiden opettamista Mikille ei vielä ole aloitettu. Laitoin ne tänne siksi, jotta sinä saisit vinkkejä koirallesi opetettavista tempuista.
+Olen myös laittanut tänne sellaisia temppuja, joiden opettamista Mikille ei vielä ole aloitettu. Laitoin ne tänne siksi, jotta sinä saisit vinkkejä koirallesi opetettavista tempuista.
 
 Mikäli kaipaat vielä enemmän haasteita temppujen opettamiseen, niin kannattaa vilkaista [tästä viestiketjusta](http://www.petsie.fi/forums/1371-temppuja-koirille/page/8)
 Röllin osaamat yli 200 temppua. Näistä varmasti löytynee jotain, mitä koirallesi ei vielä ole opetettu.

@@ -10,12 +10,6 @@ image:
 ### Tässä on lueteltuna sellaisia temppuja, jotka ainakin aion opettaa Mikille joskus tulevaisuudessa
 
 * kerää ja asettelee renkaat tikkuun
-* kieriminen
-
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACBVGu3AeNXt6gO5RWMLSHEa/temput/2/DSC08428-245px.jpg)
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABsX-LsaoLpbfbd-56ndAHya/temput/2/DSC08426-245px.jpg)
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC7yYt5QRyP9rJlG9UtP7Oda/temput/2/DSC08424-245px.jpg)
-
 * pyöriminen vastapäivään
 * pysyminen matolla tai viltillä
 * esineiden nimiä

@@ -13,6 +13,12 @@ image:
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADr7HDUDT_BYer91-Lo95Hra/temput/2/DSC32837-245px.jpg)
 
+* roll over
+
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACBVGu3AeNXt6gO5RWMLSHEa/temput/2/DSC08428-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABsX-LsaoLpbfbd-56ndAHya/temput/2/DSC08426-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC7yYt5QRyP9rJlG9UtP7Oda/temput/2/DSC08424-245px.jpg)
+
 * nami nenällä / balance treat on the nose
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAm03dan5nJ3b23nSyKeeGCa/temput/1/DSC32591-245px.jpg)
@@ -27,7 +33,6 @@ image:
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC1CQ1NHMw3l76jf8Wu9bLHa/temput/2/IMG24175-245px.jpg)
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAArRHKImrCZAJkZUvve5OHaa/temput/2/DSC05677-245px.jpg)
 
-* luuppi / jump through a hulahoop
 * suoraan / go straight (don't turn)
 * kärppä / weasel (licks his lips)
 

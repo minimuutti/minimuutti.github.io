@@ -1,5 +1,5 @@
 ---
-title: "Työnalla olevat käskyt ja temput "
+title: "Työnalla olevat temput "
 layout: article
 image:
   feature:
@@ -9,9 +9,15 @@ image:
 
 ### Tässä on muutamia toimintoja ja temppuja mitä tällä hetkellä opetellaan
 
-* seiso (odotellaan siepattavia hetkiä)
+* seiso (yllättävän vaikeaa opettaa koiralle joka ei malta pysyä paikoillaan)
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADr7HDUDT_BYer91-Lo95Hra/temput/2/DSC32837-245px.jpg)
+
+* kieriminen (opetan tähän vihjeeksi pelkän käsimerkin)
+
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACBVGu3AeNXt6gO5RWMLSHEa/temput/2/DSC08428-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABsX-LsaoLpbfbd-56ndAHya/temput/2/DSC08426-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC7yYt5QRyP9rJlG9UtP7Oda/temput/2/DSC08424-245px.jpg)
 
 * nami nenällä (eli tarkoitus olisi saada nami nenän päälle, jonka saisi luvalla ottaa. Tämä on vähän jäänyt, koska Miki ei oikein pidä siitä, että kättä laitetaan sen kasvojen eteen tai päälle. Odottaminen sujuu jo mallikkaasti.)
 
@@ -27,7 +33,6 @@ image:
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC1CQ1NHMw3l76jf8Wu9bLHa/temput/2/IMG24175-245px.jpg)
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAArRHKImrCZAJkZUvve5OHaa/temput/2/DSC05677-245px.jpg)
 
-* luuppi (hyppää renkaan tai hulavanteen läpi)
 * suoraan (eli ei käänny risteyksestä oikealle eikä vasemmalle)
 * kärppä (nuolee huulia)
 

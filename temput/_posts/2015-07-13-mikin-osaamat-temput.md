@@ -1,5 +1,5 @@
 ---
-title: "Mikin osaamat käskyt ja temput "
+title: "Mikin osaamat temput "
 layout: article
 image:
   feature:
