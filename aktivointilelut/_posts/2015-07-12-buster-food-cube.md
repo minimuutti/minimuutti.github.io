@@ -11,7 +11,7 @@ Buster Food Cube on yksi aktivointilelujen klassikoista. Lelun idea on loistava,
 
 Lelua tehdään kahdessa koossa ja tämä Mikille ostettu on se isompi (11,5 cm).
 
-Lelun huono puoli on se, että suurin osa nappuloista putoaa heti ulos, mutta viimeiset nappulat ovat aivan liian vaikeita saada ulos. Käytännössä viimeiset nappulat on lähes mahdotonta saada ulos; Miki luovutti lelun kanssa niin että nappuloita jäi lelun sisään, enkä itsekään saanut niitä ulos sieltä. Lelua ei myöskään pysty avaamaan kunnolla puhdistamista varten.
+Lelun huono puoli on se, että suurin osa nappuloista putoaa heti ulos, mutta viimeiset nappulat ovat todella vaikeita saada ulos. Lelua ei myöskään pysty avaamaan kunnolla puhdistamista varten.
 
 Lelu on lisäksi tehty kovasta materiaalista, eli se pitää kovaa ääntä kun koira pyörittää sitä parkettia pitkin. Matollakin lelu piti melko kovaa ääntä, kun nappulat pyörivät onton kuution sisällä.
 

@@ -11,7 +11,7 @@ Buster Food Cube's idea is great because a cube won't roll by itself on the floo
 
 You can buy this toy in two sizes and this is the larger one (4,5").
 
-Then the downsides.. the toy is poorly designed on the inside. Majority of the kibble fell out in the beginning and the last remaining kibble were too hard to get out. After Miki gave up with it, I tried to get the last kibble out - but couldn't. Also, the toy doesn't properly open for cleaning.
+Then the downsides.. the toy is poorly designed on the inside. Majority of the kibble fell out in the beginning and the last remaining kibble were extremely hard to get out. Also, the toy doesn't properly open for cleaning.
 
 The toy is made of hard plastic and it makes a lot of noise on a hardwood floor. On the carpet the noise wasn't as bad but the sound was still quite loud because the kibble bounced inside the hollow cube. 
 
