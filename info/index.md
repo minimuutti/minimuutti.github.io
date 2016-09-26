@@ -37,6 +37,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 26.9.2016 Päivitetty aktivointivinkki; Tehtävälaatikot
 * 20.9.2016 Lisätty uusia valokuvia kategoriaan; Kesä
 * 17.9.2016 Lisätty uusi aktivointilelu; Buster Food Cube
 * 17.9.2016 Lisätty uusia valokuvia kategoriaan; Syksy

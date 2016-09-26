@@ -36,26 +36,27 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
-* 20.9.2016 New photos added in category; Summer
-* 17.9.2016 New treat dispenser review; Buster Food Cube
-* 17.9.2016 New photos added in category; Autumn
-* 4.9.2016 New activation post; Confidence booster
-* 17.8.2016 New photos added in category; Pictures of Miki
-* 14.8.2016 New activation post; Toy hunt
-* 7.8.2016 Updated activation post; Towels
-* 2.8.2016 New activation post; Rose
-* 23.7.2016 New activation post; High roller's alternatives
-* 26.6.2016 New activation post; High roller
-* 6.6.2016 Updated activation post; Empty paper rolls
-* 29.5.2016 Updated activation post; Hiding the treats in a tree
-* 29.5.2016 Updated activation post; Denim plait
-* 16.5.2016 New photos added in category; Spring
-* 15.5.2016 Updated activation post; Pill jars
-* 12.5.2016 New treat dispenser review; Busy Buddy Magic Mushroom
-* 10.5.2016 New activation post; Snuffle mat
-* 6.5.2016 Updated activation post; Dermosil bottles
-* 6.5.2016 Updated activation post; Small games
-* 6.5.2016 New activation post; Ikea's Drömmar set
-* 23.4.2016 New activation post; Gone fishin'
+* 2016-09-26 Updated activation post; Taskboxes
+* 2016-09-20 New photos added in category; Summer
+* 2016-09-17 New treat dispenser review; Buster Food Cube
+* 2016-09-17 New photos added in category; Autumn
+* 2016-09-04 New activation post; Confidence booster
+* 2016-08-17 New photos added in category; Pictures of Miki
+* 2016-08-14 New activation post; Toy hunt
+* 2016-08-07 Updated activation post; Towels
+* 2016-08-02 New activation post; Rose
+* 2016-07-23 New activation post; High roller's alternatives
+* 2016-06-26 New activation post; High roller
+* 2016-06-06 Updated activation post; Empty paper rolls
+* 2016-05-29 Updated activation post; Hiding the treats in a tree
+* 2016-05-29 Updated activation post; Denim plait
+* 2016-05-16 New photos added in category; Spring
+* 2016-05-15 Updated activation post; Pill jars
+* 2016-05-12 New treat dispenser review; Busy Buddy Magic Mushroom
+* 2016-05-10 New activation post; Snuffle mat
+* 2016-05-06 Updated activation post; Dermosil bottles
+* 2016-05-06 Updated activation post; Small games
+* 2016-05-06 New activation post; Ikea's Drömmar set
+* 2016-04-23 New activation post; Gone fishin'
 
 © Susu
