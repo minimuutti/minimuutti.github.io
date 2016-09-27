@@ -36,6 +36,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2016-09-27 New activation post; Pastimes for a convalescent
 * 2016-09-26 Updated activation post; Taskboxes
 * 2016-09-20 New photos added in category; Summer
 * 2016-09-17 New treat dispenser review; Buster Food Cube
