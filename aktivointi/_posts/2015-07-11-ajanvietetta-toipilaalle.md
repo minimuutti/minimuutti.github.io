@@ -87,6 +87,26 @@ Miki ainakin levittää jonkun verran riisiä lattialle, kun se nuolee ja pyöri
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-HAaOchB_7twOLNq-I2Z4a/aktivointi/ajanvietetta-toipilaalle/DS37551-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABjN0qAtIPfGePtnLAl6-NZa/aktivointi/ajanvietetta-toipilaalle/DS37551.jpg)
 
+## Mukit korissa
+
+Jos kaapissasi ei satu olemaan ylimääräisiä pesupalloja, voit tehdä tällaisen melkein vastaavan mukikorin.
+
+Jaoin Mikin ruoka-annoksen kuuteen muovimukiin ja kuuteen pahvimukiin. Lopuksi vielä vähän painoin ruokaa mukien pohjaan ennen kuin asettelin ne tiiviisti tuonne koriin.
+
+Mikiltä kesti yllättävän kauan saada kaikki ruoka ulos noista kahdestatoista mukista, melkein 20 minuuttia.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB2fUE0yqN0_on9G-1P9LA3a/aktivointi/ajanvietetta-toipilaalle/DS37613-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA2IiqivQXvruv7lq2mqiAta/aktivointi/ajanvietetta-toipilaalle/DS37613.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADXoOLO60XQ7yKJpCQ64KBqa/aktivointi/ajanvietetta-toipilaalle/DS37623-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC1S1H4zl97iOFpZrWOmlc7a/aktivointi/ajanvietetta-toipilaalle/DS37623.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADp6ugTy-mjv1pT0Ie42edVa/aktivointi/ajanvietetta-toipilaalle/DS37639-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADI2qAvk9kRXuKs_pcnIIS8a/aktivointi/ajanvietetta-toipilaalle/DS37639.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADDoUJzvPLxLnUx2KhWkqUpa/aktivointi/ajanvietetta-toipilaalle/DS37651-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABy-gKPKDuHawy4tS2yjzzea/aktivointi/ajanvietetta-toipilaalle/DS37651.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABljTJmilYP8XhakbBX9HFha/aktivointi/ajanvietetta-toipilaalle/DS37630-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABUb5T6HdIiymPVwj14e3Esa/aktivointi/ajanvietetta-toipilaalle/DS37630.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACNuQu6CjLlZyUghIFINsAXa/aktivointi/ajanvietetta-toipilaalle/DS37698-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADw5gVyrfd48_bgIcxHR86Ba/aktivointi/ajanvietetta-toipilaalle/DS37698.jpg)
+
 ## Hotkimista ehkäisevät ruokakupit
 
 Nyt jos koskaan on oikea hetki kaivaa hotkimista estävä ruokakuppi kaapista.

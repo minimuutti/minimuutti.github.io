@@ -11,7 +11,7 @@ I believe every dog has an upset stomach or diarrhea at some point of his life. 
 
 That means you may not be able to walk and play normally with your dog and certainly can't use the normal food dispenser toys with this new diet.
 
-Miki has been a convalescent a few times but he never seems to run out of energy. I came up with these pastimes because he needs something to do although he's been sick.
+Miki has been a convalescent a few times but he never seems to run out of energy. I came up with these feeding ideas because he needs something to do although he's been sick.
 
 ## Ice cube trays
 
@@ -90,6 +90,26 @@ It took Miki about 10 minutes to eat all the food.
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAF8a9OahtMDbeoDtu6jYe1a/aktivointi/ajanvietetta-toipilaalle/DS37536-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA0eMMRrf3847kmNAUtdV34a/aktivointi/ajanvietetta-toipilaalle/DS37536.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-HAaOchB_7twOLNq-I2Z4a/aktivointi/ajanvietetta-toipilaalle/DS37551-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABjN0qAtIPfGePtnLAl6-NZa/aktivointi/ajanvietetta-toipilaalle/DS37551.jpg)
+
+## Cups in a basket
+
+If you don't have wash balls you can use some cups as well.
+
+I divided Miki's portion to 6 plastic cups and 6 paper cups. Then I slightly pushed the food down with a spoon before I placed them into the basket.
+
+Surprisingly it took Miki almost 20 minutes to get all the food out from these 12 cups.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB2fUE0yqN0_on9G-1P9LA3a/aktivointi/ajanvietetta-toipilaalle/DS37613-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA2IiqivQXvruv7lq2mqiAta/aktivointi/ajanvietetta-toipilaalle/DS37613.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADXoOLO60XQ7yKJpCQ64KBqa/aktivointi/ajanvietetta-toipilaalle/DS37623-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC1S1H4zl97iOFpZrWOmlc7a/aktivointi/ajanvietetta-toipilaalle/DS37623.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADp6ugTy-mjv1pT0Ie42edVa/aktivointi/ajanvietetta-toipilaalle/DS37639-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADI2qAvk9kRXuKs_pcnIIS8a/aktivointi/ajanvietetta-toipilaalle/DS37639.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADDoUJzvPLxLnUx2KhWkqUpa/aktivointi/ajanvietetta-toipilaalle/DS37651-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABy-gKPKDuHawy4tS2yjzzea/aktivointi/ajanvietetta-toipilaalle/DS37651.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABljTJmilYP8XhakbBX9HFha/aktivointi/ajanvietetta-toipilaalle/DS37630-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABUb5T6HdIiymPVwj14e3Esa/aktivointi/ajanvietetta-toipilaalle/DS37630.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACNuQu6CjLlZyUghIFINsAXa/aktivointi/ajanvietetta-toipilaalle/DS37698-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADw5gVyrfd48_bgIcxHR86Ba/aktivointi/ajanvietetta-toipilaalle/DS37698.jpg)
 
 ## Slow feeding food bowls
 
