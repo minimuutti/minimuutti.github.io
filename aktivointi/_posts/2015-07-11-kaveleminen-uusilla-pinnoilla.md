@@ -15,13 +15,13 @@ Tätä samaa pahvilaatikkoa käytettiin myös tunnelina.
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADxrObUSelcm5YAR1YtzuGga/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29605_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-zP_R9hiP6cTwbzCRmA_la/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29605_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAsPuzID-eVvqAnEclZKolea/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29605-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADSrvklaM_Lbf1wD4Pgl_jJa/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29605.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACvlErR9ZY84StRxTvJ8rfya/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29601_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABFUF4repjCwKH6eH_BQTbaa/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29601_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA2qCoVuKF0y8kQD8DohVL7a/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29601-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAClatloDx3D0O6d-vdi_vHLa/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29601.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABV8Qk54QN3am92jf7U5o9Sa/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29607_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAASE8CKJNNkBhkfUWBLDhhsa/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29607_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAKCw5SR0F3DeqAQtGEaoUKa/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29607-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC4EwwmqSWSxU00jkZKqjq0a/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29607.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABoxyfKvHrMCBGhFp2sCRZ4a/temput/1/IMG29506_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA8OnPGVk6yyMip4y4bRqE2a/temput/1/IMG29506_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABwsiGZdzC_S_QbMFt7ZwLna/aktivointi/tunnelit/IMG29506-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADPc7D0tXTIsda4AzMfjw4ya/aktivointi/tunnelit/IMG29506.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADC1td8ArqWxTFWIUdLVop3a/aktivointi/kaveleminen-uusilla-pinnoilla/DSC32295-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD-8fhwFgCgtF7xwQTWgrAva/aktivointi/kaveleminen-uusilla-pinnoilla/DSC32295.jpg)
 

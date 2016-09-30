@@ -15,15 +15,15 @@ You always need to make sure that the thing you require your dog to jump on or t
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADkthpuEgZpRJQew7UJJsLNa/aktivointi/kiipeaminen-ja-tasapainoilu/DSC29281_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJOWHqAInkj0r1KvIwbzZba/aktivointi/kiipeaminen-ja-tasapainoilu/DSC29281_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD9IO-L_zclVq9a3JdH5wB-a/mikin-kuvat/2/DSC29282-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACnO1N3K4ON_K0KtXB9_dEYa/mikin-kuvat/2/DSC29282.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACD83nQgqlfRBCD19ZQ-0YHa/aktivointi/kiipeaminen-ja-tasapainoilu/DSC29291_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC0zBAKvflBEcZ-1IRMaOPGa/aktivointi/kiipeaminen-ja-tasapainoilu/DSC29291_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACHCdjhzUZioTDTaTGnBRCta/aktivointi/kiipeaminen-ja-tasapainoilu/DSC07458_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAGCvC6dA6BVnYL2zFDmewYa/aktivointi/kiipeaminen-ja-tasapainoilu/DSC07458_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABK3PR7nz1wbwn8OIxrJShwa/mikin-kuvat/2/DSC07458-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABu_rUfb2eBvgfN5C25fZOUa/mikin-kuvat/2/DSC07458.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACIi6kVjNmAxE3yThPBuMYea/aktivointi/kiipeaminen-ja-tasapainoilu/DSC02974_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC5irjS85m6Iwotr2vcMt73a/aktivointi/kiipeaminen-ja-tasapainoilu/DSC02974_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADnEQ3zYc4-O8ZH5u4C5XM7a/aktivointi/kiipeaminen-ja-tasapainoilu/DSC13827_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADl2i0B6NNvUSqWXqP6s62ha/aktivointi/kiipeaminen-ja-tasapainoilu/DSC13827_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAALb8zkBLvnJtoexUQpHBcea/mikin-kuvat/3/DSC13827-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAzr_kbr-2bfWpdS4bMN6qha/mikin-kuvat/3/DSC13827.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACfvEAcSStlYaoDcrAsc16ja/aktivointi/kiipeaminen-ja-tasapainoilu/DSC25473_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADMCIZ4JomFnTnLfZuIzL9ma/aktivointi/kiipeaminen-ja-tasapainoilu/DSC25473_2.jpg)
 

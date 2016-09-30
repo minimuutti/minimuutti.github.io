@@ -3,7 +3,7 @@ title: "Kumpi käsi -temppu"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACnobGNaW0t0rf1HgEW4X5Na/temput/1/DSC29523-245px.jpg
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC9XE0m3C8xO6FWG5eObD9za/aktivointi/kumpi-kasi/DSC29523-245px.jpg
   thumb:
 ---
 
@@ -13,6 +13,6 @@ Sinällään tämä ei ole mikään vaativa temppu, mutta jos 50–100 nappulaak
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABaXhukWDg00ngXjZpPdS1La/temput/1/DSC29521_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADD1UOwOkW4zCuar3u-POPfa/temput/1/DSC29521_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABgOvclDfYan_jLogjgfubra/aktivointi/kumpi-kasi/DSC29521-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADwsaNkahHic6WTIZMLBo43a/aktivointi/kumpi-kasi/DSC29521.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABhDqdFyG1-Z4mb_mk8--cka/temput/1/DSC29523_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADX-hz0acjQTd9Qlc35HIVXa/temput/1/DSC29523_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABefrzfsYCe39BkK3NdBtXHa/aktivointi/kumpi-kasi/DSC29523-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADy3zr1WTYaUfO1U14L0Wwoa/aktivointi/kumpi-kasi/DSC29523.jpg)

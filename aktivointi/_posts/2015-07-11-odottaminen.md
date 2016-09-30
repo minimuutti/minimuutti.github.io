@@ -3,7 +3,7 @@ title: "Odottaminen"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADC5UyPF6A_bkUIH5FGQXG9a/temput/1/DSC29359-245px.jpg
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC9vUsV6n5uCK1r-s6uZaPOa/aktivointi/odottaminen/DSC32591-245px.jpg
   thumb:
 ---
 
@@ -15,6 +15,6 @@ Myöhemmin on tarkoitus saada Miki odottamaan lupaa ottaa sen nenän päälle as
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADtJHPihKp-jYvnVtOiKaGua/temput/1/DSC32591-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADZUwR71Hp2hc7K5JynWMYSa/temput/1/DSC32591.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACjn5cuwFNZdGGeY6ZuZTAfa/aktivointi/odottaminen/DSC29359-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB8VPREXZCX5tPb_e-zgSy-a/aktivointi/odottaminen/DSC29359.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAATJCnY41vHMU4fSZY8-J60a/temput/1/DSC29359_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACx_2MllFzHGJ1teSZo1_Owa/temput/1/DSC29359_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAAsjwlEzQcUbYdLFNXmHyNa/aktivointi/odottaminen/DSC32591-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACwLrrbpcDTirPoxU0EkENTa/aktivointi/odottaminen/DSC32591.jpg)

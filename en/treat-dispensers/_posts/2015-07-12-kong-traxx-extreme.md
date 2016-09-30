@@ -21,11 +21,11 @@ If you also have the Classic Kong, you can make this Traxx toy harder. Just put 
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA53fq1Xi0Wukp89UhjvsDua/aktivointilelut/kongit/DSC30218_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB1yEeD9Z8lP6cGA_qPR7qca/aktivointilelut/kongit/DSC30218_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACXKJbIOzcxCzUeql_oJRPUa/aktivointilelut/kongit/DSC30333_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABxQFEkq5WrR6OSbk85RW29a/aktivointilelut/kongit/DSC30333_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABAz3kRlsaEFTMmSNT6H7RAa/aktivointilelut/kongit/DSC30333-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAmAdt7HqSHPUaqak1bXcMQa/aktivointilelut/kongit/DSC30333.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAZu5CvIwOmnItS7Oq06GSsa/aktivointilelut/kongit/DSC30289_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAByNdpd7W-hif_rBh5vJJkca/aktivointilelut/kongit/DSC30289_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADGVCRfeWZibTsaXdgT16Ooa/aktivointilelut/kongit/DSC30289-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABVly_wbykszgnGpuPmz8W7a/aktivointilelut/kongit/DSC30289.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD1AqtwTdgvQpZ9Y3RBjyoja/aktivointilelut/kongit/DSC30282_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABkMPCxlCH1A7rb2fV2yobDa/aktivointilelut/kongit/DSC30282_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACEWUqjDG9bIHE2YQ-jqWOpa/aktivointilelut/kongit/DSC30282-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADq16JEDe1yiIwIx9IF4ylca/aktivointilelut/kongit/DSC30282.jpg)
 
 I’ve used this toy also in these games:
 

@@ -17,6 +17,6 @@ Alkuun tämän lelun tyhjentämiseen saattoi mennä jopa 15 minuuttia. Nykyään
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADxMwGS2UF4-aiiUlcDL7o8a/aktivointilelut/kongit/DSC34366-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADP_Y6aTpANlavCp4gfYWoEa/aktivointilelut/kongit/DSC34366.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAMAC0JKVGAhP-GGWaxmJYDa/aktivointilelut/kongit/DSC17128_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACayvgMBhn8jOAMQZcwo1u0a/aktivointilelut/kongit/DSC17128_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADzCoLRtXflNu4zfnMjG-BEa/aktivointilelut/kongit/DSC17128-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACU6fPYjXXoF8IhFUx0WB22a/aktivointilelut/kongit/DSC17128.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB9Y23iN55eO4KUp6FpdRH4a/aktivointilelut/kongit/DSC17421_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACe5wZprD18KFujrdydJ80Ba/aktivointilelut/kongit/DSC17421_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAJhl7mTY-DckiR3yWSD2EVa/aktivointilelut/kongit/DSC17421-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABLfGYzKnBoDKP-OzTQMHBVa/aktivointilelut/kongit/DSC17421.jpg)
