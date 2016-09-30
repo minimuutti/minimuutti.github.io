@@ -3,7 +3,7 @@ title: "Climbing and balancing"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACybMg6tPJ9ywdWPl5L18_Na/aktivointi/kiipeaminen-ja-tasapainoilu/DSC29281-245px.jpg
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABDKx20poIhlCCqIRajf7Dfa/mikin-kuvat/2/DSC29282-245px.jpg
   thumb:
 ---
 

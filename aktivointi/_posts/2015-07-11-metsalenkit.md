@@ -3,7 +3,7 @@ title: "Metsälenkit"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB9nuZGug0GoD9CeC46mCZZa/aktivointi/metsalenkit/DSC10631-245px.jpg
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABTMWJxiTpirXTBb_hg-n05a/mikin-kuvat/2/DSC10631-245px.jpg
   thumb:
 ---
 
@@ -15,13 +15,13 @@ Metsässä on usein paljon hyttysiä ja mietin miten voisin helpottaa Mikin olem
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADA0Xbkr8sbJOYXiKbFBpExa/aktivointi/metsalenkit/DSC10631_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADbSvLKr4FoXTHr_ARv3xLDa/aktivointi/metsalenkit/DSC10631_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD9U9SXchKMrZq3PqFMSPz6a/mikin-kuvat/2/DSC10630-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACX5e2lIHZG32hg5Fk8BWgoa/mikin-kuvat/2/DSC10630.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA3rZEy3xIQtKLnjYMELSg3a/aktivointi/metsalenkit/DSC10630_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACiLkQxsf0j6kK1_gwzWfAKa/aktivointi/metsalenkit/DSC10630_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACHbpZ-rcH67Vf6h_Gy5MVpa/mikin-kuvat/2/DSC10631-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACj3wf2cyCw3FJwV-zzkqKca/mikin-kuvat/2/DSC10631.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADGBzAsGxmRiqiBuS51mRm7a/aktivointi/metsalenkit/DSC23761_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACmOUz79XQQEU_CpfX-jTkVa/aktivointi/metsalenkit/DSC23761_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABiiMLAY8rd0d4hcntbAkKZa/mikin-kuvat/2/DSC23761-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJflK8fpv_hV8cACPdNftsa/mikin-kuvat/2/DSC23761.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC2_MMfkUiRqAiWCuXn6upfa/aktivointi/metsalenkit/DSC29282_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABnQB454QG-TDO7MuicMSA-a/aktivointi/metsalenkit/DSC29282_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD9IO-L_zclVq9a3JdH5wB-a/mikin-kuvat/2/DSC29282-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACnO1N3K4ON_K0KtXB9_dEYa/mikin-kuvat/2/DSC29282.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAkoc0zwbifMPHBheyEEuoBa/aktivointi/metsalenkit/DSC10769_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACLyjhju7cJUAOxJQmj_sDca/aktivointi/metsalenkit/DSC10769_2.jpg)
 
