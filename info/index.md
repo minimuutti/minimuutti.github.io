@@ -37,13 +37,14 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 30.9.2016 Lisätty uusia valokuvia kategoriaan; Syksy
+* 30.9.2016 Lisätty uusia valokuvia kategoriaan; Mikin kuvat
+* 30.9.2016 Lisätty uusia valokuvia kategoriaan; Kesä
 * 30.9.2016 Päivitetty aktivointivinkki; Ajanvietettä toipilaalle
+* 30.9.2016 Päivitetty aktivointivinkki; Ikean Drömmar muotit
 * 26.9.2016 Päivitetty aktivointivinkki; Tehtävälaatikot
-* 20.9.2016 Lisätty uusia valokuvia kategoriaan; Kesä
 * 17.9.2016 Lisätty uusi aktivointilelu; Buster Food Cube
-* 17.9.2016 Lisätty uusia valokuvia kategoriaan; Syksy
 * 4.9.2016 Lisätty uusi aktivointivinkki; Itsevarmuusbuusteri
-* 17.8.2016 Lisätty uusia valokuvia kategoriaan; Mikin kuvat
 * 14.8.2016 Lisätty uusi aktivointivinkki; Lelujen piilotus
 * 7.8.2016 Päivitetty aktivointivinkki; Pyyheliina
 * 2.8.2016 Lisätty uusi aktivointivinkki; Ruusu
@@ -58,7 +59,5 @@ Uudet ja viimeksi päivitetyt osiot:
 * 10.5.2016 Lisätty uusi aktivointivinkki; Fleecematto
 * 6.5.2016 Päivitetty aktivointivinkki; Dermosil pullot
 * 6.5.2016 Päivitetty aktivointivinkki; Minitehtäviä
-* 6.5.2016 Lisätty uusi aktivointivinkki; Ikean Drömmar muotit
-* 23.4.2016 Lisätty uusi aktivointivinkki; Onginta
 
 © Susu

@@ -36,13 +36,14 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2016-09-30 New photos added in category; Autumn
+* 2016-09-30 New photos added in category; Pictures of Miki
+* 2016-09-30 New photos added in category; Summer
 * 2016-09-30 Updated activation post; Pastimes for a convalescent
+* 2016-09-30 Updated activation post; Ikea's Drömmar set
 * 2016-09-26 Updated activation post; Taskboxes
-* 2016-09-20 New photos added in category; Summer
 * 2016-09-17 New treat dispenser review; Buster Food Cube
-* 2016-09-17 New photos added in category; Autumn
 * 2016-09-04 New activation post; Confidence booster
-* 2016-08-17 New photos added in category; Pictures of Miki
 * 2016-08-14 New activation post; Toy hunt
 * 2016-08-07 Updated activation post; Towels
 * 2016-08-02 New activation post; Rose
@@ -57,7 +58,5 @@ New and recently updated posts:
 * 2016-05-10 New activation post; Snuffle mat
 * 2016-05-06 Updated activation post; Dermosil bottles
 * 2016-05-06 Updated activation post; Small games
-* 2016-05-06 New activation post; Ikea's Drömmar set
-* 2016-04-23 New activation post; Gone fishin'
 
 © Susu

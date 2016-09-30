@@ -11,7 +11,7 @@ Koirille suunnitellut syömistä hidastavat ruokakupit ovat usein aika kalliita.
 
 Muottien sekaan ripotellaan nappulat ja sen voi antaa koiralle suoraan tai muottien koloihin voi lisäksi laittaa jotain esteitä päälle. Itse olen laittanut esteeksi pieniä [koralleja](http://minimuutti.com/aktivointi/korallit/).
 
-Muottisetti soveltuu yhtä hyvin myös märkäruuan kanssa käytettäväksi. Märkäruuan voi ensin painella pyöreän muottirasian pohjalle, jonka jälkeen painelee muotit ruokaan, takaisin oikeille paikoilleen.
+Muottisetti soveltuu yhtä hyvin myös märkäruuan kanssa käytettäväksi. Märkäruuan voi ensin painella pyöreän muottirasian pohjalle, jonka jälkeen painelee muotit ruokaan, takaisin oikeille paikoilleen. Riisi-kanaseoksen voi myös ripotella muottien päälle.
 
 ---
 
@@ -32,3 +32,7 @@ Muottisetti soveltuu yhtä hyvin myös märkäruuan kanssa käytettäväksi. Mä
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACoAqSJSIwhGS1mKt6Zt45ia/aktivointi/ikean-drommar-muotit/DS16258-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAUq5pWTqnq_f12uNOffiqda/aktivointi/ikean-drommar-muotit/DS16258.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABoprqDzTFhZPREi0e9foJ9a/aktivointi/ikean-drommar-muotit/DS16263-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADzmhVus7NWt_hJvVfhwfjDa/aktivointi/ikean-drommar-muotit/DS16263.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACQimseF7ry9ajHJzZXTXWwa/aktivointi/ajanvietetta-toipilaalle/DS37739-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAzJYUJNNARrcDxTwhJwGuma/aktivointi/ajanvietetta-toipilaalle/DS37739.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABw_3JKRGZyBMnfwZZOCbj3a/aktivointi/ajanvietetta-toipilaalle/DS37744-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACzwuI1ZerlPUNbWO-mtCbWa/aktivointi/ajanvietetta-toipilaalle/DS37744.jpg)
