@@ -37,7 +37,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 27.9.2016 Lisätty uusi aktivointivinkki; Ajanvietettä toipilaalle
+* 30.9.2016 Päivitetty aktivointivinkki; Ajanvietettä toipilaalle
 * 26.9.2016 Päivitetty aktivointivinkki; Tehtävälaatikot
 * 20.9.2016 Lisätty uusia valokuvia kategoriaan; Kesä
 * 17.9.2016 Lisätty uusi aktivointilelu; Buster Food Cube

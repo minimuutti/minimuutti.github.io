@@ -122,3 +122,21 @@ Meillä harvemmin annetaan Mikille mitään ruokaa kupista, mutta kana+riisiseos
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACZjI0VfQ6KmXzlM9-_r2rCa/aktivointilelut/muut/DS37600-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAwxeB6UQr-0nHtrb41fmbma/aktivointilelut/muut/DS37600.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABagYJQlrUU-yNRBZgBClrZa/aktivointilelut/muut/DS37606-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD3mSK_E56s2ZSYB_Fhy1RIa/aktivointilelut/muut/DS37606.jpg)
+
+## Ikean Drömmar
+
+Ikean Drömmar muottisetti maksaa murto-osan tuosta Northmaten ruokakupista, mutta on märkäruuan kanssa vähintään yhtä hyvä, ellei jopa parempi.
+
+Asettelin pestyt muotin osat tuonne setin säilytysrasian pohjalle ja lappasin ruuan sitten siihen päälle.
+
+Mikiltä kesti noin 10 minuuttia syödä kaikki ruoka tästä.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACQimseF7ry9ajHJzZXTXWwa/aktivointi/ajanvietetta-toipilaalle/DS37739-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAzJYUJNNARrcDxTwhJwGuma/aktivointi/ajanvietetta-toipilaalle/DS37739.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABw_3JKRGZyBMnfwZZOCbj3a/aktivointi/ajanvietetta-toipilaalle/DS37744-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACzwuI1ZerlPUNbWO-mtCbWa/aktivointi/ajanvietetta-toipilaalle/DS37744.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAiJK11AZGqGIiJOQFAAszPa/aktivointi/ajanvietetta-toipilaalle/DS37785-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAhqGv9D2hYqoGg4G8OgktNa/aktivointi/ajanvietetta-toipilaalle/DS37785.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAzLDPnBEKeFOyTvAOzkPz8a/aktivointi/ajanvietetta-toipilaalle/DS37794-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAyEiY35E1Sfj65u6b4ReyRa/aktivointi/ajanvietetta-toipilaalle/DS37794.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABhZ_C9Nl3ea5E6FYThCrcra/aktivointi/ajanvietetta-toipilaalle/DS37826-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADAfDbKFpqkyYF4bMEjuaC8a/aktivointi/ajanvietetta-toipilaalle/DS37826.jpg)

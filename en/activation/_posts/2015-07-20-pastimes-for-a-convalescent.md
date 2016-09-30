@@ -124,3 +124,21 @@ We don't usually give any food to Miki from a bowl. When Miki is on this rice an
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACZjI0VfQ6KmXzlM9-_r2rCa/aktivointilelut/muut/DS37600-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAwxeB6UQr-0nHtrb41fmbma/aktivointilelut/muut/DS37600.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABagYJQlrUU-yNRBZgBClrZa/aktivointilelut/muut/DS37606-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD3mSK_E56s2ZSYB_Fhy1RIa/aktivointilelut/muut/DS37606.jpg)
+
+## Ikea's Drömmar
+
+Ikea's Drömmar set is far less expensive than Northmate's Green bowl, but it actually is a great food bowl for wet food.
+
+I washed the set and then assembled it back before I put Miki's food on top.
+
+It took Miki about 10 minutes to eat all the food from this.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACQimseF7ry9ajHJzZXTXWwa/aktivointi/ajanvietetta-toipilaalle/DS37739-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAzJYUJNNARrcDxTwhJwGuma/aktivointi/ajanvietetta-toipilaalle/DS37739.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABw_3JKRGZyBMnfwZZOCbj3a/aktivointi/ajanvietetta-toipilaalle/DS37744-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACzwuI1ZerlPUNbWO-mtCbWa/aktivointi/ajanvietetta-toipilaalle/DS37744.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAiJK11AZGqGIiJOQFAAszPa/aktivointi/ajanvietetta-toipilaalle/DS37785-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAhqGv9D2hYqoGg4G8OgktNa/aktivointi/ajanvietetta-toipilaalle/DS37785.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAzLDPnBEKeFOyTvAOzkPz8a/aktivointi/ajanvietetta-toipilaalle/DS37794-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAyEiY35E1Sfj65u6b4ReyRa/aktivointi/ajanvietetta-toipilaalle/DS37794.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABhZ_C9Nl3ea5E6FYThCrcra/aktivointi/ajanvietetta-toipilaalle/DS37826-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADAfDbKFpqkyYF4bMEjuaC8a/aktivointi/ajanvietetta-toipilaalle/DS37826.jpg)
