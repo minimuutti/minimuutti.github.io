@@ -3,7 +3,7 @@ title: "Namien piilotus puuhun"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD2mk2WrfkGjjP7_JtU9xIta/aktivointi/namien-piilotus-puuhun/DSC29220-245px.jpg
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJJzh6v54YpTBvPq1yeF0Va/mikin-kuvat/2/DSC29249-245px.jpg
   thumb:
 ---
 
@@ -15,9 +15,9 @@ Yleensä piilotan puuhun ihan pieneksi pilkottuja kuivatun kanafileenpaloja ja j
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADd6sMSqH6QodNGqxNTz96qa/aktivointi/namien-piilotus-puuhun/DSC29242_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABqx3Jeu0gtZFfju4OU1Deaa/aktivointi/namien-piilotus-puuhun/DSC29242_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACPWtH3O0reMN3anU3cfMESa/mikin-kuvat/2/DSC29242-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACFQP1nb9DRl50DCII3V1Mfa/mikin-kuvat/2/DSC29242.JPG)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA66Lbzfurk81TsQYKqmAQia/aktivointi/namien-piilotus-puuhun/DSC29249_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA2M1_6XtM3izAmaqqy5gnaa/aktivointi/namien-piilotus-puuhun/DSC29249_2.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABXyGou4eXpik9ez1imuZPna/mikin-kuvat/2/DSC29249-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA75Sj9AqBw5eQEQ3HzssC6a/mikin-kuvat/2/DSC29249.JPG)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABSDMh9dZW4Kq3sd2NdRl_Xa/aktivointi/namien-piilotus-puuhun/DSC23854_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAYGzyzSPYsl9Gp89ykpxy1a/aktivointi/namien-piilotus-puuhun/DSC23854_2.jpg)
 
