@@ -25,4 +25,4 @@ It took Miki about a minute to get the treats out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADLlFGbT3yAL-wnTbjqOEkOa/aktivointi/herkkuwrappi/DSC55871-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAuxoHtluoBLfBOme9qqSJda/aktivointi/herkkuwrappi/DSC55871.jpg)
 
-[![](hhttps://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA5mvcWWbMNjZWnlJZdL7ISa/aktivointi/herkkuwrappi/DSC55779-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAAecPJgAQ0HBljoPIWXIXKa/aktivointi/herkkuwrappi/DSC55779.jpg)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA5mvcWWbMNjZWnlJZdL7ISa/aktivointi/herkkuwrappi/DSC55779-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAAecPJgAQ0HBljoPIWXIXKa/aktivointi/herkkuwrappi/DSC55779.jpg)
