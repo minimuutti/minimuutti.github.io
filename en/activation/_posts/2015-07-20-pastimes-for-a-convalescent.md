@@ -33,7 +33,7 @@ Later on I didn't put the food in the blender anymore but instead put it straigh
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADd_qsIahOSbVuvlMG-_Xfia/aktivointi/ajanvietetta-toipilaalle/DS10565-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAj_78qc9MEFBpoeoZlkBKLa/aktivointi/ajanvietetta-toipilaalle/DS10565.jpg)
 
-To make the tray last longer, you can put it in the freezer. It takes Miki about 10-15 minutes to lick a frozer tray clean depending on the shapes of the tray.
+To make the tray last longer, you can put it in the freezer. It takes Miki about 10-15 minutes to lick a frozen tray clean depending on the shapes of the tray.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAVRFIup5GpBOcM1RxP4oUqa/aktivointi/ajanvietetta-toipilaalle/DS37158-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADmiPQD1kXR7sTkljSy2jdra/aktivointi/ajanvietetta-toipilaalle/DS37158.jpg)
 
@@ -55,7 +55,7 @@ I've put the same pureed mixture on the trays taken from an advent calendar and 
 
 The Kong toys are always convenient but they are essential for convalescent dogs.
 
-I usually put the Kongs in the freezer berofe I give them to Miki. You can put the mixture straight in the Kongs or you can puree the mixture first. I usually add some plain natural yogurt or if you like you can add some pumpkin puree as well.
+I usually put the Kongs in the freezer before I give them to Miki. You can put the mixture straight in the Kongs or you can puree the mixture first. I usually add some plain natural yogurt or if you like you can add some pumpkin puree as well.
 
 When you put puree into a Kong you should put the Kong on a cup before you put it in the freezer to avoid the fluids leaking all over your freezer.
 
@@ -69,7 +69,7 @@ You need to throughly clean the wash balls before you give them to your dog. I w
 
 Wash balls are a great way to entertain your convalescent dog because you can put wet food in them and it takes quite a long for a dog to lick them clean.
 
-I put about 2 spoons of Miki's food to each ball. I took 5 plastic cups and put some food on the bottom of them as well before I placed the wash balls on top. Finally I put them in a plastic container before I gave them to Miki.
+I put about 2 spoons of Miki's food into each ball. I took 5 plastic cups and put some food on the bottom of them as well before I placed the wash balls on top. Finally I put them in a plastic container before I gave them to Miki.
 
 Miki spreads some rice all over when he eats this food from wash balls but fortunately he is so eager to eat that he picks every rice from the floor and I don't have to clean anything :D
 
