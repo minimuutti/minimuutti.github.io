@@ -266,3 +266,7 @@ Mikiltä kesti noin 5 minuuttia saada ne herkut ulos sieltä.
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD6vVo893tHBY0ktTUrPxFCa/aktivointi/paperirullien-hylsyt/DSC41122-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACCL9UET4ZyQpuMQmbS4J6sa/aktivointi/paperirullien-hylsyt/DSC41122.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABH2wdIRJrgTyFmGyvSbqKUa/aktivointi/paperirullien-hylsyt/DSC41270-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC5GOLE6I5YMz9QefRuKOgna/aktivointi/paperirullien-hylsyt/DSC41270.jpg)
+
+Paperirullien hylsyjä on käytetty myös [Palloputket](http://minimuutti.com/aktivointi/palloputket/) tehtävässä.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACAu2WiIDahMkVqGcOxFO2Ua/aktivointi/Palloputket/DS38807-800px.jpg)](http://minimuutti.com/aktivointi/palloputket/)

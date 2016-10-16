@@ -257,3 +257,7 @@ It took Miki about 5 minutes to get the treats out.
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD6vVo893tHBY0ktTUrPxFCa/aktivointi/paperirullien-hylsyt/DSC41122-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACCL9UET4ZyQpuMQmbS4J6sa/aktivointi/paperirullien-hylsyt/DSC41122.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABH2wdIRJrgTyFmGyvSbqKUa/aktivointi/paperirullien-hylsyt/DSC41270-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC5GOLE6I5YMz9QefRuKOgna/aktivointi/paperirullien-hylsyt/DSC41270.jpg)
+
+Empty paper rolls are also used in the [Dumbbells](http://minimuutti.com/en/activation/dumbbells/) game.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACAu2WiIDahMkVqGcOxFO2Ua/aktivointi/Palloputket/DS38807-800px.jpg)](http://minimuutti.com/en/activation/dumbbells/)
