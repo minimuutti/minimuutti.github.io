@@ -74,3 +74,29 @@ Taittelin nameja sisältävän kylpypyyhkeen ja piilotin sen maton reunan alle. 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACR11VqmXlv7UuG49X1ffzTa/aktivointi/pyyheliina/DS30547-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB4w5oQBv5FaQ7uDQg1BSj1a/aktivointi/pyyheliina/DS30547.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAeW3OGjz7aDoz7VGUAaMT5a/aktivointi/pyyheliina/DS30509-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADssYgqhPB0kpsTdPm_JR4Qa/aktivointi/pyyheliina/DS30509.jpg)
+
+#### Tehtävä 7:
+
+Rullasin käsipyyhkeen sisälle ankkafileestä leikatun suikaleen. Taittelin pyyhkeen pitkittäin ja sitten rullasin sen tuollaisen muovihenkarin ympärille.
+
+Pyyhehenkarin voi antaa kokonaan koiralle tai siitä voi pidellä kiinni, riippuen koiran osaamisesta.
+
+Kun pidin henkarista kiinni, niin Miki sai sen yhdellä vetäisyllä irti. Sitten kun annoin paketin Mikille kokonaan niin Mikiltä kesti noin 1-2 minuuttia saada tuo pyyhe irti henkarista.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAoaZ6K0RL1_9uIUqo0FKD1a/aktivointi/minitehtavia/DS15602-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD4_2dA_Dd2OaAsqJOQq5v5a/aktivointi/minitehtavia/DS15602.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAZ2Ba3pnDI48dAdHwDPorha/aktivointi/minitehtavia/DS15614-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACjCLTPXSlbtVwgpyychp9Ea/aktivointi/minitehtavia/DS15614.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA3Ygqt0TAU6cjNJLod_DAca/aktivointi/minitehtavia/DS15647-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADoYdb_wTlhuyI1-1XruL3ta/aktivointi/minitehtavia/DS15647.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC_fvOBfF702OLD866B3z8ia/aktivointi/minitehtavia/DS15669-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABHD1L5hf8EJK6af8qILxjqa/aktivointi/minitehtavia/DS15669.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADw91wO4rC77JyeDkaf4Oeqa/aktivointi/minitehtavia/DS15681-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACIEJniWdE6G_yvkVoUQZJpa/aktivointi/minitehtavia/DS15681.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADLAiDtw0AowKAQTLKWgupta/aktivointi/minitehtavia/DS15687-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABMUe-GrtADtUaEWPGWtFlta/aktivointi/minitehtavia/DS15687.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAArgkYIxb3-mP_Ys7QmdzQma/aktivointi/minitehtavia/DS15714-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAMY0DQwEWqXjFKKn8Lj-uha/aktivointi/minitehtavia/DS15714.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD9pd3kAbYvTKWwovfYrKQea/aktivointi/minitehtavia/DS15629-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABMYkWosY8yvYNmCWa6Ki4Ma/aktivointi/minitehtavia/DS15629.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD3p-nTPkkFBLwXKCTcqdHUa/aktivointi/minitehtavia/DS15639-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAsK9OWk_Y4JztDWZ4gahsLa/aktivointi/minitehtavia/DS15639.jpg)

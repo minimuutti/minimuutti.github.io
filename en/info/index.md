@@ -38,6 +38,8 @@ New and recently updated posts:
 
 * 2016-10-23 New activation post; Twelve cup puzzle
 * 2016-10-23 Updated activation post; Empty paper rolls
+* 2016-10-23 Updated activation post; Towels
+* 2016-10-23 New activation post; Plastic packages
 * 2016-10-18 New photos added in category; Autumn
 * 2016-10-16 New activation post; Dumbbells
 * 2016-10-15 New activation post; Kibble hunt
@@ -49,7 +51,6 @@ New and recently updated posts:
 * 2016-09-17 New treat dispenser review; Buster Food Cube
 * 2016-09-04 New activation post; Confidence booster
 * 2016-08-14 New activation post; Toy hunt
-* 2016-08-07 Updated activation post; Towels
 * 2016-08-02 New activation post; Rose
 * 2016-07-23 New activation post; High roller's alternatives
 * 2016-06-26 New activation post; High roller

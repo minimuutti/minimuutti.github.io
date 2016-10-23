@@ -37,8 +37,11 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+
 * 23.10.2016 Lisätty uusi aktivointivinkki; Kuusi kuppia piilossa
 * 23.10.2016 Päivitetty aktivointivinkki; Paperirullien hylsyt
+* 23.10.2016 Päivitetty aktivointivinkki; Pyyheliina
+* 23.10.2016 Lisätty uusi aktivointivinkki; Muovipakkaukset
 * 18.10.2016 Lisätty uusia valokuvia kategoriaan; Syksy
 * 16.10.2016 Lisätty uusi aktivointivinkki; Palloputket
 * 15.10.2016 Lisätty uusi aktivointivinkki; Nappulajahti
@@ -50,7 +53,6 @@ Uudet ja viimeksi päivitetyt osiot:
 * 17.9.2016 Lisätty uusi aktivointilelu; Buster Food Cube
 * 4.9.2016 Lisätty uusi aktivointivinkki; Itsevarmuusbuusteri
 * 14.8.2016 Lisätty uusi aktivointivinkki; Lelujen piilotus
-* 7.8.2016 Päivitetty aktivointivinkki; Pyyheliina
 * 2.8.2016 Lisätty uusi aktivointivinkki; Ruusu
 * 23.7.2016 Lisätty uusi aktivointivinkki; Tuubin pyörittäjän vaihtoehdot
 * 26.6.2016 Lisätty uusi aktivointivinkki; Tuubin pyöritys
