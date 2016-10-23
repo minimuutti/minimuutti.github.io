@@ -36,6 +36,8 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2016-10-23 New activation post; Twelve cup puzzle
+* 2016-10-23 Updated activation post; Empty paper rolls
 * 2016-10-18 New photos added in category; Autumn
 * 2016-10-16 New activation post; Dumbbells
 * 2016-10-15 New activation post; Kibble hunt
@@ -51,7 +53,6 @@ New and recently updated posts:
 * 2016-08-02 New activation post; Rose
 * 2016-07-23 New activation post; High roller's alternatives
 * 2016-06-26 New activation post; High roller
-* 2016-06-06 Updated activation post; Empty paper rolls
 * 2016-05-29 Updated activation post; Hiding the treats in a tree
 * 2016-05-29 Updated activation post; Denim plait
 * 2016-05-16 New photos added in category; Spring

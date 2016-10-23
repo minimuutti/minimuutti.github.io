@@ -79,6 +79,22 @@ Jos sinulla ei ole tarpeeksi tyhjiä rullia tähän tehtävään, niin kannattaa
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADFaYLUR_ZZFBRVrseSIIhwa/aktivointi/paperirullien-hylsyt/DS21050-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADNOR6ZtMguQvlNIJP3jmKba/aktivointi/paperirullien-hylsyt/DS21050.jpg)
 
+#### Litistetyt hylsyt laatikossa
+
+Valitsin tehtävään hieman hylsyjä leveämmän laatikon ja litistin 10 hylsyä jolloin niistä tuli myös leveämpiä. Tungin litistetyt hylsyt laatikkoon, jonne ne jäivät aika tiukkaan kiinni ja ripottelin sekaan muutamia nappuloita.
+
+Mikiltä kesti alle minuutin käännellä laatikkoa niin että nappulat putosivat ulos.
+
+Tehtävästä saa tehtyä vaikeamman jos vaihtaa nappulat tahmeampiin nameihin, kuten pehmeisiin ankka- tai kanafileen paloihin.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADftrqP9PvxJ3txgxKb4_xIa/aktivointi/paperirullien-hylsyt/DS39330-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABDauqXD-MRtribrPHSVBD7a/aktivointi/paperirullien-hylsyt/DS39330.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACqnytV-5pS8XIW3PpLSYCBa/aktivointi/paperirullien-hylsyt/DS39345-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAXrRgnaf6NAb9wht2lyLH-a/aktivointi/paperirullien-hylsyt/DS39345.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABTKMLu1an4D3vYFlhpYqQka/aktivointi/paperirullien-hylsyt/DS39353-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABGGah2fGtxTUm1g0_dmhT1a/aktivointi/paperirullien-hylsyt/DS39353.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAgnhAO3ZRo_C_qTSWkJIfza/aktivointi/paperirullien-hylsyt/DS39373-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD-ac_H5F93FLU-jGq4dYODa/aktivointi/paperirullien-hylsyt/DS39373.jpg)
+
 #### Rullatut pikkupyyhkeet hylsyjen sisällä
 
 Rullasin jokaisen pikkupyyhkeen sisälle muutaman pienen kuivatun kanafileen palasen, mutta tässä voi käyttää muitakin kuivia nameja. Pyyhkeet mahtuivat rullien sisälle juuri ja juuri, joten isompien namien kanssa pyyhkeet eivät välttämättä olisivat hylsyihin enää mahtuneet.

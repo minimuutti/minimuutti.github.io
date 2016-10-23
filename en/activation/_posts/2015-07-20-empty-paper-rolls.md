@@ -74,6 +74,22 @@ If you don't have enough empty rolls for this game, you can try this similar gam
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADFaYLUR_ZZFBRVrseSIIhwa/aktivointi/paperirullien-hylsyt/DS21050-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADNOR6ZtMguQvlNIJP3jmKba/aktivointi/paperirullien-hylsyt/DS21050.jpg)
 
+#### Flattened rolls in a box
+
+I chose a box that was slightly wider than the rolls. Then I flattened 10 rolls and then they become wider as well. I pushed the rolls tightly into the box and sprinkled some kibble along.
+
+It took Miki under a minute to roll the box so that all the kibble fell out.
+
+You can make this game harder by replacing the kibble with some sticky treats like pieces of semi-moist chicken fillet.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADftrqP9PvxJ3txgxKb4_xIa/aktivointi/paperirullien-hylsyt/DS39330-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABDauqXD-MRtribrPHSVBD7a/aktivointi/paperirullien-hylsyt/DS39330.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACqnytV-5pS8XIW3PpLSYCBa/aktivointi/paperirullien-hylsyt/DS39345-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAXrRgnaf6NAb9wht2lyLH-a/aktivointi/paperirullien-hylsyt/DS39345.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABTKMLu1an4D3vYFlhpYqQka/aktivointi/paperirullien-hylsyt/DS39353-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABGGah2fGtxTUm1g0_dmhT1a/aktivointi/paperirullien-hylsyt/DS39353.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAgnhAO3ZRo_C_qTSWkJIfza/aktivointi/paperirullien-hylsyt/DS39373-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD-ac_H5F93FLU-jGq4dYODa/aktivointi/paperirullien-hylsyt/DS39373.jpg)
+
 #### Rolls with small towels
 
 I cut small pieces of chicken fillet and rolled a couple of pieces in each towel. Then I pushed the towels inside the rolls.
