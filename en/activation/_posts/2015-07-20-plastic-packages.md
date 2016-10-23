@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-You can give plastic packages to you dog but make sure they don't have any loose parts that your dog could accidentally swallow.
+You can give plastic packages to your dog but make sure they don't have any loose parts that your dog could accidentally swallow.
 
 #### Fruit packages
 
