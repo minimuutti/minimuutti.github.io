@@ -36,6 +36,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2016-10-27 New activation post; Snuffle box
 * 2016-10-25 New photos added in category; Winter
 * 2016-10-23 New activation post; Twelve cup puzzle
 * 2016-10-23 Updated activation post; Empty paper rolls

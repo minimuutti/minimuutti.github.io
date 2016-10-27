@@ -37,6 +37,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 27.10.2016 Lisätty uusi aktivointivinkki; Haistelulaatikko
 * 25.10.2016 Lisätty uusia valokuvia kategoriaan; Talvi
 * 23.10.2016 Lisätty uusi aktivointivinkki; Kuusi kuppia piilossa
 * 23.10.2016 Päivitetty aktivointivinkki; Paperirullien hylsyt
