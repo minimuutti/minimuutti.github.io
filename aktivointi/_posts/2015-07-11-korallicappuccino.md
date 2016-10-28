@@ -40,3 +40,20 @@ Muutaman helpon tehtävän jälkeen tein niin, että laitoin edelleen nappulat p
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAPovZLaT1dIeaKPPSGh0tia/aktivointi/nescafe-purkki/DS11636-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAq4L_Y0e4ljz8OEsgnQUsia/aktivointi/nescafe-purkki/DS11636.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAd27nwcABVRAhnf7020Vnca/aktivointi/nescafe-purkki/DS11699-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAACATIJ833LNBWzjLB6Mg27a/aktivointi/nescafe-purkki/DS11699.jpg)
+
+Tehtävää voi muuttaa hieman vaikeammaksi. Laitoin ensin nappulat purkin pohjalle, koralleja siihen päälle suht väljästi ja lopuksi pyöräytin teipin purkin suuaukon yli. Laitoin suuaukon kohdalle kaksi teippiä päällekkäin liimapuolet vastakkain, jotta nappulat ja korallit eivät olisi tarttuneet siihen.
+
+Tehtävä oli Mikille aavistuksen vaikeampi, koska purkkia joutui pyörittelemään enemmän jotta nappulat putosivat ulos, koska teippi esti korallien putoamisen pois nappuloiden tieltä.
+
+Muistathan vahtia koiraasi sen suorittaessa tehtävää, ettei se vahingossa syö tuota teippiä. Teippi pysyy paremmin kiinni kun sen pyöräyttää koko purkin ympäri.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-Srcb3K4aidFstohVo8lya/aktivointi/nescafe-purkki/DS39983-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAAWBdg6SChTKFhvlIZeCO8a/aktivointi/nescafe-purkki/DS39983.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABM-5cAeSpZq5zM41-QbUyfa/aktivointi/nescafe-purkki/DS40009-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABD8RG7v0uicoLM_tPRY7GPa/aktivointi/nescafe-purkki/DS40009.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADPNTVvAN_j2bEAUd3tQPWpa/aktivointi/nescafe-purkki/DS40010-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADGXOhRW0LQO1Qo6nQqW4p3a/aktivointi/nescafe-purkki/DS40010.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABW4p1s59pSGacmEboigGwca/aktivointi/nescafe-purkki/DS40014-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJZcVeNqifjyVxVOq3PssAa/aktivointi/nescafe-purkki/DS40014.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACffMiKlNyznGy3Sr8udGJBa/aktivointi/nescafe-purkki/DS40015-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAucjl7OtYsteCdIDkyPWyVa/aktivointi/nescafe-purkki/DS40015.jpg)
+

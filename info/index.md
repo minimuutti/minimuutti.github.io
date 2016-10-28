@@ -37,6 +37,8 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 28.10.2016 Päivitetty aktivointivinkki; KoralliCappucino
+* 28.10.2016 Päivitetty aktivointivinkki; Köysilaatikko
 * 27.10.2016 Lisätty uusi aktivointivinkki; Haistelulaatikko
 * 25.10.2016 Lisätty uusia valokuvia kategoriaan; Talvi
 * 23.10.2016 Lisätty uusi aktivointivinkki; Kuusi kuppia piilossa
@@ -63,7 +65,5 @@ Uudet ja viimeksi päivitetyt osiot:
 * 15.5.2016 Päivitetty aktivointivinkki; Pilleripurkit
 * 12.5.2016 Lisätty uusi aktivointilelu; Busy Buddy Magic Mushroom
 * 10.5.2016 Lisätty uusi aktivointivinkki; Fleecematto
-* 6.5.2016 Päivitetty aktivointivinkki; Dermosil pullot
-* 6.5.2016 Päivitetty aktivointivinkki; Minitehtäviä
 
 © Susu

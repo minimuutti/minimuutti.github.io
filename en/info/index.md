@@ -36,6 +36,8 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2016-10-28 Updated activation post; Coral cappucino
+* 2016-10-28 Updated activation post; Rope in a box
 * 2016-10-27 New activation post; Snuffle box
 * 2016-10-25 New photos added in category; Winter
 * 2016-10-23 New activation post; Twelve cup puzzle
@@ -62,7 +64,5 @@ New and recently updated posts:
 * 2016-05-15 Updated activation post; Pill jars
 * 2016-05-12 New treat dispenser review; Busy Buddy Magic Mushroom
 * 2016-05-10 New activation post; Snuffle mat
-* 2016-05-06 Updated activation post; Dermosil bottles
-* 2016-05-06 Updated activation post; Small games
 
 © Susu
