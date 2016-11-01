@@ -3,7 +3,7 @@ title: "Muovipakkaukset"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-b13MaZxoIMLEiYY0xgAYa/aktivointi/muovipakkaukset/DS36413-245px.jpg
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABBPAlrb6Rw5tmPCvZW04jta/aktivointi/muovipakkaukset/DS36413-245px.jpg
   thumb:
 ---
 
