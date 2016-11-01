@@ -15,7 +15,11 @@ Yleensä piilotan puuhun ihan pieneksi pilkottuja kuivatun kanafileenpaloja ja j
 
 ---
 
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAxcmw42KyTsbNf_uGl0O8ha/mikin-kuvat/2/DSC29244-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACDWzcA1DRCi16V8sILZBYTa/mikin-kuvat/2/DSC29244.jpg)
+
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACPWtH3O0reMN3anU3cfMESa/mikin-kuvat/2/DSC29242-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACFQP1nb9DRl50DCII3V1Mfa/mikin-kuvat/2/DSC29242.JPG)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC9Oi00dOI7uG9XKOvy7Yk9a/mikin-kuvat/2/DSC29267-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAtvIaiBIkGxp84fl4dR_qfa/mikin-kuvat/2/DSC29267.JPG)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABXyGou4eXpik9ez1imuZPna/mikin-kuvat/2/DSC29249-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA75Sj9AqBw5eQEQ3HzssC6a/mikin-kuvat/2/DSC29249.JPG)
 
