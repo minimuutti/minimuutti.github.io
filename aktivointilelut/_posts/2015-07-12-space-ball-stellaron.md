@@ -30,3 +30,7 @@ Mikiltä kesti noin 2-3 minuuttia saada nuo herkut syötyä.
 Tätä lelua on käytetty myös tehtävässä [Fleece kiepit](http://minimuutti.com/aktivointi/fleecekiepit/):
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABB0qXNBsPMDwaNIQGIghoca/aktivointi/fleecekiepit/DS08123-800px.jpg)](http://minimuutti.com/aktivointi/fleecekiepit/)
+
+ja lelua on käytetty vaikeutuksena [Kong Wobblerin](http://minimuutti.com/aktivointilelut/kong-wobbler/) kanssa:
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-1eJtz-X_hrj3IEKFUraxa/aktivointilelut/kongit/DS41310-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAxK7-0bJyTMWkcpKDb0Y4ca/aktivointilelut/kongit/DS41310.jpg)

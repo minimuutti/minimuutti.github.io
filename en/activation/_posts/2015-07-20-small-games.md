@@ -125,3 +125,17 @@ I put some kibbles on the bottom of the basket and then I put a large jar on top
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC1lns_49_RrRy7y5Bn_7Upa/aktivointi/minitehtavia/DS15225-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC-R5rpuaWVqTcO5pvFRKBba/aktivointi/minitehtavia/DS15225.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADj7b3lEbMFGG9-GyIu4nYSa/aktivointi/minitehtavia/DS15232-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAT0d5fQO_fCD1P5KW4Pl2Da/aktivointi/minitehtavia/DS15232.jpg)
+
+### Makeup bag
+
+This makeup bag is collapsible and it forms a nice hide for the kibble.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAV3k_cdfFgvtMeM7UZmGapa/aktivointi/minitehtavia/DS41961-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACi9ZmvtX7PmnxkTj3JWe_7a/aktivointi/minitehtavia/DS41961.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAQ8zM6GjV8djebnsmaNdcla/aktivointi/minitehtavia/DS41941-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC-w4PQ0n1e7XOXThkHSh2Wa/aktivointi/minitehtavia/DS41941.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOT-7ssFEIHVJrpcBrqTAha/aktivointi/minitehtavia/DS41991-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABRjZLJ1u7IyyhX97VP1Y8ja/aktivointi/minitehtavia/DS41991.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABkLsQkbug0CYtcwbZhPub-a/aktivointi/minitehtavia/DS41953-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACrj3VurqtSZrao3nWOdTl-a/aktivointi/minitehtavia/DS41953.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAABLECEk_hP_GkqGnCkdFdGa/aktivointi/minitehtavia/DS42016-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAZ3TOhQ44_rNr7cD2ZF7jFa/aktivointi/minitehtavia/DS42016.jpg)

@@ -78,3 +78,11 @@ Yksittäiset tehtävät olivat Mikille aika helppoja. Miki kuitenkin joutui päh
 Korallien teko-ohjeen löydät [täältä](http://minimuutti.com/aktivointi/korallit/).
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADy3tkJwrI5BLXcnTmaAg-ma/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__32-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADYxUPMZM_W5CDad2VPXCGNa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__32.jpg)
+
+###### Tehtävä 16: Pesupallot
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABontWshEeSsaaY1HtCQXS9a/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__34-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD4GsDt67VGcps65Kb-D6uoa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__34.jpg)
+
+###### Tehtävä 17: Fleecesuikaleet
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAXqGcPYoPWajkRKjlhd9nWa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__33-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABo4PglkuYlL2ekjHZJWkTFa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__33.jpg)

@@ -30,3 +30,7 @@ It took Miki about 2 to 3 minutes to get the treats out.
 I used this toy also in the game [Fleece wraps](http://minimuutti.com/en/activation/fleece-wraps/):
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABB0qXNBsPMDwaNIQGIghoca/aktivointi/fleecekiepit/DS08123-800px.jpg)](http://minimuutti.com/en/activation/fleece-wraps/)
+
+and this toy has been used to make the [Kong Wobbler](http://minimuutti.com/en/treat-dispensers/kong-wobbler/) toy more difficult:
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-1eJtz-X_hrj3IEKFUraxa/aktivointilelut/kongit/DS41310-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAxK7-0bJyTMWkcpKDb0Y4ca/aktivointilelut/kongit/DS41310.jpg)

@@ -60,6 +60,18 @@ This time I put the kibbles on the bottom of the box and then laid three layers 
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAChbcYFT6ETz6eUFrzzxkO1a/aktivointi/paperirullien-hylsyt/DS21317-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAZjJE5QDE7v62-WUClWm28a/aktivointi/paperirullien-hylsyt/DS21317.jpg)
 
+You can put as many paper rolls as needed to fill a carton package. I put some kibble in two paper rolls and then I pushed them into a carton package. I secured the ends with a piece of tape to make it more difficult.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAGjwvZIh37JW85JvZWyNFBa/aktivointi/paperirullien-hylsyt/DS41301-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD_KYHDXATzqI6V7BrxWj-Ga/aktivointi/paperirullien-hylsyt/DS41301.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAa3EsDU3ANo3JzrDrJRbxYa/aktivointi/paperirullien-hylsyt/DS41327-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA0DYonlzCIS73Jo9wCtXlia/aktivointi/paperirullien-hylsyt/DS41327.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA6sjlmEPosRfzSESxLE7EPa/aktivointi/paperirullien-hylsyt/DS41341-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACx-xj6_MLMilIDqMa-2_x-a/aktivointi/paperirullien-hylsyt/DS41341.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABEDmpfBi83LOl8VFk9WwDZa/aktivointi/paperirullien-hylsyt/DS41363-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACSC3qOsdrfEDMqhVD9M_5Ja/aktivointi/paperirullien-hylsyt/DS41363.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAggll-FbikjnBP2J1cDt1Ya/aktivointi/paperirullien-hylsyt/DS41393-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAyn72liPMH0umnooFUs-8na/aktivointi/paperirullien-hylsyt/DS41393.jpg)
+
 #### Rolls in a box II
 
 I placed about 40 rolls vertically into a box and then sprinkled some kibbles inside the rolls and between them. 

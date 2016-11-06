@@ -15,7 +15,7 @@ You can also alternate the difficulty with the type of the packages that you are
 
 You can use just kibbles (or any other dry treats) but I've used some tastier treats with the kibbles. It's best to put the tastier treats in the smallest and innermost package and the kibbles in the outer packages.
 
-#### Game 1:  3 nested packages
+#### Game 1: 3 nested packages
 
 The destruction process took Miki about 4 minutes :D
 

@@ -37,12 +37,15 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 6.11.2016 Päivitetty aktivointilelu; Kong Wobbler
+* 6.11.2016 Päivitetty aktivointivinkki; Minitehtäviä
+* 6.11.2016 Päivitetty aktivointivinkki; Kaikki munat samassa korissa
+* 6.11.2016 Päivitetty aktivointivinkki; Paperirullien hylsyt
 * 28.10.2016 Päivitetty aktivointivinkki; KoralliCappucino
 * 28.10.2016 Päivitetty aktivointivinkki; Köysilaatikko
 * 27.10.2016 Lisätty uusi aktivointivinkki; Haistelulaatikko
 * 25.10.2016 Lisätty uusia valokuvia kategoriaan; Talvi
 * 23.10.2016 Lisätty uusi aktivointivinkki; Kuusi kuppia piilossa
-* 23.10.2016 Päivitetty aktivointivinkki; Paperirullien hylsyt
 * 23.10.2016 Päivitetty aktivointivinkki; Pyyheliina
 * 23.10.2016 Lisätty uusi aktivointivinkki; Muovipakkaukset
 * 18.10.2016 Lisätty uusia valokuvia kategoriaan; Syksy
@@ -62,7 +65,6 @@ Uudet ja viimeksi päivitetyt osiot:
 * 29.5.2016 Päivitetty aktivointivinkki; Namien piilotus puuhun
 * 29.5.2016 Päivitetty aktivointivinkki; Farkkuletti
 * 16.5.2016 Lisätty uusia valokuvia kategoriaan; Kevät
-* 15.5.2016 Päivitetty aktivointivinkki; Pilleripurkit
 * 12.5.2016 Lisätty uusi aktivointilelu; Busy Buddy Magic Mushroom
 * 10.5.2016 Lisätty uusi aktivointivinkki; Fleecematto
 

@@ -36,12 +36,15 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2016-11-06 Updated a treat dispenser review; Kong Wobbler
+* 2016-11-06 Updated activation post; Small games
+* 2016-11-06 Updated activation post; All eggs in one basket
+* 2016-11-06 Updated activation post; Empty paper rolls
 * 2016-10-28 Updated activation post; Coral cappucino
 * 2016-10-28 Updated activation post; Rope in a box
 * 2016-10-27 New activation post; Snuffle box
 * 2016-10-25 New photos added in category; Winter
 * 2016-10-23 New activation post; Twelve cup puzzle
-* 2016-10-23 Updated activation post; Empty paper rolls
 * 2016-10-23 Updated activation post; Towels
 * 2016-10-23 New activation post; Plastic packages
 * 2016-10-18 New photos added in category; Autumn
@@ -61,7 +64,6 @@ New and recently updated posts:
 * 2016-05-29 Updated activation post; Hiding the treats in a tree
 * 2016-05-29 Updated activation post; Denim plait
 * 2016-05-16 New photos added in category; Spring
-* 2016-05-15 Updated activation post; Pill jars
 * 2016-05-12 New treat dispenser review; Busy Buddy Magic Mushroom
 * 2016-05-10 New activation post; Snuffle mat
 
