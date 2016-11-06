@@ -64,7 +64,6 @@ Uudet ja viimeksi päivitetyt osiot:
 * 23.7.2016 Lisätty uusi aktivointivinkki; Tuubin pyörittäjän vaihtoehdot
 * 26.6.2016 Lisätty uusi aktivointivinkki; Tuubin pyöritys
 * 29.5.2016 Päivitetty aktivointivinkki; Namien piilotus puuhun
-* 29.5.2016 Päivitetty aktivointivinkki; Farkkuletti
 * 16.5.2016 Lisätty uusia valokuvia kategoriaan; Kevät
 * 12.5.2016 Lisätty uusi aktivointilelu; Busy Buddy Magic Mushroom
 * 10.5.2016 Lisätty uusi aktivointivinkki; Fleecematto
