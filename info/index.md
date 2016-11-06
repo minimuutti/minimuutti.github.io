@@ -40,6 +40,7 @@ Uudet ja viimeksi päivitetyt osiot:
 * 6.11.2016 Lisätty uusia valokuvia kategoriaan; Talvi
 * 6.11.2016 Lisätty uusia valokuvia kategoriaan; Mikin kuvat
 * 6.11.2016 Lisätty uusia valokuvia kategoriaan; Syksy
+* 6.11.2016 Lisätty uusi aktivointivinkki; Esteradan miniversio
 * 6.11.2016 Päivitetty aktivointilelu; Kong Wobbler
 * 6.11.2016 Päivitetty aktivointivinkki; Minitehtäviä
 * 6.11.2016 Päivitetty aktivointivinkki; Kaikki munat samassa korissa

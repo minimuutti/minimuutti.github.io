@@ -39,6 +39,7 @@ New and recently updated posts:
 * 2016-11-06 New photos added in category; Winter
 * 2016-11-06 New photos added in category; Pictures of Miki
 * 2016-11-06 New photos added in category; Autumn
+* 2016-11-06 New activation post; Mini obstacle course
 * 2016-11-06 Updated a treat dispenser review; Kong Wobbler
 * 2016-11-06 Updated activation post; Small games
 * 2016-11-06 Updated activation post; All eggs in one basket
