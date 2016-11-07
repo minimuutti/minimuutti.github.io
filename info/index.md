@@ -37,36 +37,36 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 7.11.2016 Lisätty uusi aktivointivinkki; Pyyheraketit
-* 6.11.2016 Lisätty uusia valokuvia kategoriaan; Talvi
-* 6.11.2016 Lisätty uusia valokuvia kategoriaan; Mikin kuvat
-* 6.11.2016 Lisätty uusia valokuvia kategoriaan; Syksy
-* 6.11.2016 Lisätty uusi aktivointivinkki; Esteradan miniversio
-* 6.11.2016 Päivitetty aktivointilelu; Kong Wobbler
-* 6.11.2016 Päivitetty aktivointivinkki; Minitehtäviä
-* 6.11.2016 Päivitetty aktivointivinkki; Kaikki munat samassa korissa
-* 6.11.2016 Päivitetty aktivointivinkki; Paperirullien hylsyt
-* 28.10.2016 Päivitetty aktivointivinkki; KoralliCappucino
-* 28.10.2016 Päivitetty aktivointivinkki; Köysilaatikko
-* 27.10.2016 Lisätty uusi aktivointivinkki; Haistelulaatikko
-* 23.10.2016 Lisätty uusi aktivointivinkki; Kuusi kuppia piilossa
-* 23.10.2016 Päivitetty aktivointivinkki; Pyyheliina
-* 23.10.2016 Lisätty uusi aktivointivinkki; Muovipakkaukset
-* 16.10.2016 Lisätty uusi aktivointivinkki; Palloputket
-* 15.10.2016 Lisätty uusi aktivointivinkki; Nappulajahti
-* 30.9.2016 Lisätty uusia valokuvia kategoriaan; Kesä
-* 30.9.2016 Päivitetty aktivointivinkki; Ajanvietettä toipilaalle
-* 30.9.2016 Päivitetty aktivointivinkki; Ikean Drömmar muotit
-* 26.9.2016 Päivitetty aktivointivinkki; Tehtävälaatikot
-* 17.9.2016 Lisätty uusi aktivointilelu; Buster Food Cube
-* 4.9.2016 Lisätty uusi aktivointivinkki; Itsevarmuusbuusteri
-* 14.8.2016 Lisätty uusi aktivointivinkki; Lelujen piilotus
-* 2.8.2016 Lisätty uusi aktivointivinkki; Ruusu
-* 23.7.2016 Lisätty uusi aktivointivinkki; Tuubin pyörittäjän vaihtoehdot
-* 26.6.2016 Lisätty uusi aktivointivinkki; Tuubin pyöritys
-* 29.5.2016 Päivitetty aktivointivinkki; Namien piilotus puuhun
-* 16.5.2016 Lisätty uusia valokuvia kategoriaan; Kevät
-* 12.5.2016 Lisätty uusi aktivointilelu; Busy Buddy Magic Mushroom
-* 10.5.2016 Lisätty uusi aktivointivinkki; Fleecematto
+* 7.11.2016 Lisätty uusi aktivointivinkki; [Pyyheraketit](http://minimuutti.com/aktivointi/pyyheraketit/)
+* 6.11.2016 Lisätty uusia valokuvia kategoriaan; [Talvi](http://minimuutti.com/luontokuvat/talvi/)
+* 6.11.2016 Lisätty uusia valokuvia kategoriaan; [Mikin kuvat](http://minimuutti.com/kuvia-mikista/)
+* 6.11.2016 Lisätty uusia valokuvia kategoriaan; [Syksy](http://minimuutti.com/luontokuvat/syksy/)
+* 6.11.2016 Lisätty uusi aktivointivinkki; [Esteradan miniversio](http://minimuutti.com/aktivointi/esteradan-miniversio/)
+* 6.11.2016 Päivitetty aktivointilelu; [Kong Wobbler](http://minimuutti.com/aktivointilelut/kong-wobbler/)
+* 6.11.2016 Päivitetty aktivointivinkki; [Minitehtäviä](http://minimuutti.com/aktivointi/minitehtavia/)
+* 6.11.2016 Päivitetty aktivointivinkki; [Kaikki munat samassa korissa](http://minimuutti.com/aktivointi/kaikki-munat-samassa-korissa/)
+* 6.11.2016 Päivitetty aktivointivinkki; [Paperirullien hylsyt](http://minimuutti.com/aktivointi/paperirullien-hylsyt/)
+* 28.10.2016 Päivitetty aktivointivinkki; [KoralliCappucino](http://minimuutti.com/aktivointi/korallicappuccino/)
+* 28.10.2016 Päivitetty aktivointivinkki; [Köysilaatikko](http://minimuutti.com/aktivointi/koysilaatikko/)
+* 27.10.2016 Lisätty uusi aktivointivinkki; [Haistelulaatikko](http://minimuutti.com/aktivointi/haistelulaatikko/)
+* 23.10.2016 Lisätty uusi aktivointivinkki; [Kuusi kuppia piilossa](http://minimuutti.com/aktivointi/kuusi-kuppia-piilossa/)
+* 23.10.2016 Päivitetty aktivointivinkki; [Pyyheliina](http://minimuutti.com/aktivointi/pyyheliina/)
+* 23.10.2016 Lisätty uusi aktivointivinkki; [Muovipakkaukset](http://minimuutti.com/aktivointi/muovipakkaukset/)
+* 16.10.2016 Lisätty uusi aktivointivinkki; [Palloputket](http://minimuutti.com/aktivointi/palloputket/)
+* 15.10.2016 Lisätty uusi aktivointivinkki; [Nappulajahti](http://minimuutti.com/aktivointi/nappulajahti/)
+* 30.9.2016 Lisätty uusia valokuvia kategoriaan; [Kesä](http://minimuutti.com/luontokuvat/kesa/)
+* 30.9.2016 Päivitetty aktivointivinkki; [Ajanvietettä toipilaalle](http://minimuutti.com/aktivointi/ajanvietetta-toipilaalle/)
+* 30.9.2016 Päivitetty aktivointivinkki; [Ikean Drömmar muotit](http://minimuutti.com/aktivointi/ikean-drommar-muotit/)
+* 26.9.2016 Päivitetty aktivointivinkki; [Tehtävälaatikot](http://minimuutti.com/aktivointi/tehtavalaatikot/)
+* 17.9.2016 Lisätty uusi aktivointilelu; [Buster Food Cube](http://minimuutti.com/aktivointilelut/buster-food-cube/)
+* 4.9.2016 Lisätty uusi aktivointivinkki; [Itsevarmuusbuusteri](http://minimuutti.com/aktivointi/itsevarmuusbuusteri/)
+* 14.8.2016 Lisätty uusi aktivointivinkki; [Lelujen piilotus](http://minimuutti.com/aktivointi/lelujen-piilotus/)
+* 2.8.2016 Lisätty uusi aktivointivinkki; [Ruusu](http://minimuutti.com/aktivointi/ruusu/)
+* 23.7.2016 Lisätty uusi aktivointivinkki; [Tuubin pyörittäjän vaihtoehdot](http://minimuutti.com/aktivointi/tuubin-pyorittajan-vaihtoehdot/)
+* 26.6.2016 Lisätty uusi aktivointivinkki; [Tuubin pyöritys](http://minimuutti.com/aktivointi/tuubin-pyoritys/)
+* 29.5.2016 Päivitetty aktivointivinkki; [Namien piilotus puuhun](http://minimuutti.com/aktivointi/namien-piilotus-puuhun/)
+* 16.5.2016 Lisätty uusia valokuvia kategoriaan; [Kevät](http://minimuutti.com/luontokuvat/kevat/)
+* 12.5.2016 Lisätty uusi aktivointilelu; [Busy Buddy Magic Mushroom](http://minimuutti.com/aktivointilelut/busy-buddy-magic-mushroom/)
+* 10.5.2016 Lisätty uusi aktivointivinkki; [Fleecematto](http://minimuutti.com/aktivointi/fleecematto/)
 
 © Susu
