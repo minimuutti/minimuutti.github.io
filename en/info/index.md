@@ -36,6 +36,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2016-11-07 New activation post; Towel rockets
 * 2016-11-06 New photos added in category; Winter
 * 2016-11-06 New photos added in category; Pictures of Miki
 * 2016-11-06 New photos added in category; Autumn
