@@ -36,3 +36,7 @@ If your dog feeds on wet food you can press the food on the bottom of the tray a
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACQimseF7ry9ajHJzZXTXWwa/aktivointi/ajanvietetta-toipilaalle/DS37739-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAzJYUJNNARrcDxTwhJwGuma/aktivointi/ajanvietetta-toipilaalle/DS37739.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABw_3JKRGZyBMnfwZZOCbj3a/aktivointi/ajanvietetta-toipilaalle/DS37744-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACzwuI1ZerlPUNbWO-mtCbWa/aktivointi/ajanvietetta-toipilaalle/DS37744.jpg)
+
+This set has been used also in the [Towel rockets](http://minimuutti.com/en/activation/towel-rockets/) game:
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACvR2uUOYlYtYvaw1Jb030ja/aktivointi/pyyheraketit/DS41785-800px.jpg)](http://minimuutti.com/en/activation/towel-rockets/)
