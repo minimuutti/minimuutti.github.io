@@ -35,7 +35,7 @@ This game may cause your dog to get excited, so you may not want to play this ga
 
 ### Game 3
 
-I put five separate pieces on the floor and put one treat under every piece. Them I let Miki search.
+I put five separate pieces on the floor and hid one treat under every piece.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABehNSuBes1CqAX81BhzCXaa/aktivointi/palapelimatto/DSC47526-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAjs2C12DuGTURSt0ORs4zza/aktivointi/palapelimatto/DSC47526.jpg)
 
