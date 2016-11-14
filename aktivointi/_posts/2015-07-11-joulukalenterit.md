@@ -46,3 +46,11 @@ Laitoin tyhjän muovilevyn koloihin [lohitahnaa](http://clk.tradedoubler.com/cli
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACk7w07OHgU60riAqK-uUYBa/aktivointi/joulukalenterit/DSC60440-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABk_-QHNhdXskDNDG7s9Zb2a/aktivointi/joulukalenterit/DSC60440.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACTG-ux4wWUbPv0V8XfhW3Xa/aktivointi/joulukalenterit/DSC60457-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABgbKFZ9AQXaYt2IjE4Ks0Ua/aktivointi/joulukalenterit/DSC60457.jpg)
+
+Tavarakalenterista peräisin olevaa lokerikkoa on käytetty tehtävässä [Fleecerullat](http://minimuutti.com/aktivointi/fleecerullat/):
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADuibprCezrzWbqbjVIKV_Za/aktivointi/fleecerullat/DS09098-800px.jpg)](http://minimuutti.com/aktivointi/fleecerullat/)
+
+ja myös tehtävässä [Lokerikko](http://minimuutti.com/aktivointi/lokerikko/):
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADDCFAktY3a_YN1t3TJiDEba/aktivointi/lokerikko/DS08655-800px.jpg)](http://minimuutti.com/aktivointi/lokerikko/)
