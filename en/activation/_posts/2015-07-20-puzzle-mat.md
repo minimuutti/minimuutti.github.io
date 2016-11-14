@@ -53,8 +53,6 @@ I joined four of these pieces together and put some treats under it. Then I put 
 
 I stacked five separate pieces and put one kibble in between every layer. This game was too easy, so the next time we played this game I stacked all ten pieces with kibbles in between.
 
-Miki sai etsiä myös palasista kootuista pinoista. Ensimmäisellä kerralla laitoin palasia pinoon vain viisi ja yhden namin jokaiseen väliin. Tämä tehtävä oli Mikille aivan liian helppo, joten toisella kerralla laitoin pinoon kaikki kymmenen palasta.
-
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACHYNAQuMUJpzDTvHs9CDawa/aktivointi/palapelimatto/DSC48053-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAAGJCZGsqtj-8nMv-fLbWMa/aktivointi/palapelimatto/DSC48053.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADHogVQiMvhk8sWcgfT2ioXa/aktivointi/palapelimatto/DSC48055-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABPGHGa4edEaCgjh3kiCqZpa/aktivointi/palapelimatto/DSC48055.jpg)
