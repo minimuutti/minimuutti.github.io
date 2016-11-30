@@ -1,15 +1,45 @@
 ---
-title: "Muovipakkaukset"
+title: "Kartonki- ja muovipakkaukset"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABBPAlrb6Rw5tmPCvZW04jta/aktivointi/muovipakkaukset/DS36413-245px.jpg
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABi4IiqN2uiTM9P_-Wmvt0_a/aktivointi/kartonkipakkaukset/DSC25797-245px.jpg
   thumb:
 ---
 
-Muovisia elintarvikerasioita voi antaa koiralle, kunhan ne on sellaisia ettei niissä ole irtoavia osia jotka koira voisi vahingossa niellä. Jos koirallasi on tapana pureskella ja jäystää kaikkea mitä sille antaa niin tällaiset muoviset pakkaukset kannattaa ehkä jättää antamatta.
+Maitotölkit, kananmunakotelot, muropaketit tai muut elintarvikkeille tarkoitetut pakkaukset voi antaa koiralle tuhottavaksi.
 
-#### Hedelmärasiat
+#Kartonkipakkaukset
+
+Laitan näihin kartonkipakkauksiin useimmiten nappuloita. Nämä ovat Mikille niin helppoja, että teippaan aina kaikki tällaiset rasiat. Teipatun rasian tyhjentämiseen kuluu noin 2 minuuttia pakkauksesta riippuen. Joskus laitan pakkauksiin myös paperipalloja, joiden sisällä namit on, vaikeuttaakseni tehtäviä.
+
+Jos esim. maitotölkki on koirallesi liian vaikea, voit valmiiksi tehdä pienen reiän tölkin kylkeen tai antaa tölkin ilman kierrekorkkia. Maitotölkit kannattaa aina pestä ennen kuin antaa ne koiralle. 
+
+Näitäkin tehtäviä voi vaikeuttaa ripustamalla namipaketin roikkumaan kaiteesta, puun oksasta tai vaikka tikapuista ja koiran on ensin saatava paketti alas. Tämä narulla ripustaminen on meillä vielä testaamatta.
+
+---
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABY-YNPoiV-kKZ1lABfZTWpa/aktivointi/kartonkipakkaukset/DSC25797-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD97IkJ3CmBtNAIAGf7ejz0a/aktivointi/kartonkipakkaukset/DSC25797.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABSYMpQwDgdI8cWDH4HEjCba/aktivointi/kartonkipakkaukset/DSC32143-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAVQepLXtlKBEzFydMZmbRDa/aktivointi/kartonkipakkaukset/DSC32143.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADWN262J5QZOFtEOse9Wd_Na/aktivointi/kartonkipakkaukset/DS04409-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACPE02YXnYilpGSVwTPgnpza/aktivointi/kartonkipakkaukset/DS04409.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC0RwZNgimKobSHF_jfMmawa/aktivointi/kartonkipakkaukset/DS04438-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA9es0G8HdT66nwhzYaU-Rma/aktivointi/kartonkipakkaukset/DS04438.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABs4t-S8We3IrSQYAVg91wha/aktivointi/kartonkipakkaukset/DSC33827-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC6U3xIL_aIwkR6pFnXxUeQa/aktivointi/kartonkipakkaukset/DSC33827.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAuSzjvx5TSGAtuVH86a0_Sa/aktivointi/kartonkipakkaukset/DSC56453-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADkWmREB6weO08F6Y1MF3GYa/aktivointi/kartonkipakkaukset/DSC56453.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACnVjEHWFjR5tp1VA7-qQTSa/aktivointi/kartonkipakkaukset/DSC56545-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACQfZV729wC9_OafzbW8KCca/aktivointi/kartonkipakkaukset/DSC56545.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABkH_kSPKySlKtnkKym8Gr-a/aktivointi/kartonkipakkaukset/DSC57932-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC3kdwHCBglbc3u_rW6yWV0a/aktivointi/kartonkipakkaukset/DSC57932.jpg)
+
+#Muovipakkaukset
+
+Muovisia elintarvikerasioita voi myös antaa koiralle, kunhan ne on sellaisia ettei niissä ole irtoavia osia jotka koira voisi vahingossa niellä. Jos koirallasi on tapana pureskella ja jäystää kaikkea mitä sille antaa niin tällaiset muoviset pakkaukset kannattaa ehkä jättää antamatta.
+
+##### Hedelmärasiat
 
 Hedelmärasioihin olen yleensä laittanut pelkkiä nappuloita ja nappuloiden saaminen ulos kestää Mikiltä noin minuutin tai pari.
 
@@ -25,7 +55,7 @@ Tehtävästä voi tehdä vaikeamman kiinnittämällä pakkaukset palasella maala
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAqSrGcB-NsJcyHkY8V4SPRa/aktivointi/muovipakkaukset/DS36463-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAlBdRc1lggT4x-xLjKbrGEa/aktivointi/muovipakkaukset/DS36463.jpg)
 
-#### Pallopakkaus
+##### Pallopakkaus
 
 Tämä pallopakkaus oli siitä erikoinen, että nuo pallojen kohdat olivat osittain avonaisia. Nappulat olisivat tulleet ulos aivan liian helposti, joten leikkasin tahmeasta ankkafileestä ohuita suikaleita, jotka olivat juuri sopivia tähän.
 

@@ -51,7 +51,6 @@ Uudet ja viimeksi päivitetyt osiot:
 * 27.10.2016 Lisätty uusi aktivointivinkki; [Haistelulaatikko](http://minimuutti.com/aktivointi/haistelulaatikko/)
 * 23.10.2016 Lisätty uusi aktivointivinkki; [Kuusi kuppia piilossa](http://minimuutti.com/aktivointi/kuusi-kuppia-piilossa/)
 * 23.10.2016 Päivitetty aktivointivinkki; [Pyyheliina](http://minimuutti.com/aktivointi/pyyheliina/)
-* 23.10.2016 Lisätty uusi aktivointivinkki; [Muovipakkaukset](http://minimuutti.com/aktivointi/muovipakkaukset/)
 * 16.10.2016 Lisätty uusi aktivointivinkki; [Palloputket](http://minimuutti.com/aktivointi/palloputket/)
 * 15.10.2016 Lisätty uusi aktivointivinkki; [Nappulajahti](http://minimuutti.com/aktivointi/nappulajahti/)
 * 30.9.2016 Lisätty uusia valokuvia kategoriaan; [Kesä](http://minimuutti.com/luontokuvat/kesa/)
