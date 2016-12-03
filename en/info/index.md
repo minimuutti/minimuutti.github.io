@@ -36,10 +36,10 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
-* 2016-11-24 New photos added in category; [Winter](http://minimuutti.com/en/pictures-of-finnish-nature/winter/)
+* 2016-12-03 New photos added in category; [Winter](http://minimuutti.com/en/pictures-of-finnish-nature/winter/)
+* 2016-12-03 New photos added in category; [Autumn](http://minimuutti.com/en/pictures-of-finnish-nature/autumn/)
 * 2016-11-07 New activation post; [Towel rockets](http://minimuutti.com/en/activation/towel-rockets/)
 * 2016-11-06 New photos added in category; [Pictures of Miki](http://minimuutti.com/en/pictures-of-miki/)
-* 2016-11-06 New photos added in category; [Autumn](http://minimuutti.com/en/pictures-of-finnish-nature/autumn/)
 * 2016-11-06 New activation post; [Mini obstacle course](http://minimuutti.com/en/activation/mini-obstacle-course/)
 * 2016-11-06 Updated a treat dispenser review; [Kong Wobbler](http://minimuutti.com/en/treat-dispensers/kong-wobbler/)
 * 2016-11-06 Updated activation post; [Small games](http://minimuutti.com/en/activation/small-games/)
