@@ -37,7 +37,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 3.12.2016 Lisätty uusia valokuvia kategoriaan; [Talvi](http://minimuutti.com/luontokuvat/talvi/)
+* 5.12.2016 Lisätty uusia valokuvia kategoriaan; [Talvi](http://minimuutti.com/luontokuvat/talvi/)
 * 3.12.2016 Lisätty uusia valokuvia kategoriaan; [Syksy](http://minimuutti.com/luontokuvat/syksy/)
 * 7.11.2016 Lisätty uusi aktivointivinkki; [Pyyheraketit](http://minimuutti.com/aktivointi/pyyheraketit/)
 * 6.11.2016 Lisätty uusia valokuvia kategoriaan; [Mikin kuvat](http://minimuutti.com/kuvia-mikista/)
