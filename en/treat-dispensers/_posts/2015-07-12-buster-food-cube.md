@@ -15,7 +15,7 @@ Then the downsides.. the toy is poorly designed on the inside. Majority of the k
 
 The toy is made of hard plastic and it makes a lot of noise on a hardwood floor. On the carpet the noise wasn't as bad but the sound was still quite loud because the kibble bounced inside the hollow cube. 
 
-Unfortunately this toy didn't fill my expectations. If you are about to but this toy I recommend that you skip it and choose something else.
+Unfortunately this toy didn't fill my expectations. If you are about to buy this toy I recommend that you skip it and choose something else.
 
 ---
 
