@@ -37,6 +37,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 29.12.2016 Lisätty uusi aktivointilelu; [Petprojekt Tretbal](http://minimuutti.com/aktivointilelut/petprojekt-tretbal/)
 * 6.12.2016 Lisätty uusia valokuvia kategoriaan; [Talvi](http://minimuutti.com/luontokuvat/talvi/)
 * 3.12.2016 Lisätty uusia valokuvia kategoriaan; [Syksy](http://minimuutti.com/luontokuvat/syksy/)
 * 7.11.2016 Lisätty uusi aktivointivinkki; [Pyyheraketit](http://minimuutti.com/aktivointi/pyyheraketit/)
