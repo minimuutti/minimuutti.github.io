@@ -3,7 +3,7 @@ title: "Luontokuvat"
 layout: category
 ---
 
-Lisää samanaiheisia valokuvia löydät jokaisesta vuodenajasta klikkaamalla pikkukuvat auki.
+Suomalainen luonto eri vuodenaikoina. Lisää valokuvia löydät klikkaamalla pikkukuvat auki.
 
 <div class="tiles">
 	<article class="tile" itemscope="" itemtype="http://schema.org/Article">

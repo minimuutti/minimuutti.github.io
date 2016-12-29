@@ -3,7 +3,7 @@ title: "Pictures of Finnish Nature"
 layout: category
 ---
 
-You can find more pictures by clicking the small icons.
+Beautiful Finnish nature through the four seasons. You can find more pictures by clicking the small icons.
 
 <div class="tiles">
 	<article class="tile" itemscope="" itemtype="http://schema.org/Article">
