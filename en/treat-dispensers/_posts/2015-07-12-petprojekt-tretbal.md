@@ -15,7 +15,7 @@ First I thought that this toy would be too easy for Miki because the toy opens w
 
 The mouth of the size L toy is quite large so you need to use some larger treats with it so that they won't fall straight out.
 
-I use large pieces of a chicken fillet or large cuts from beef strips. These are great because they are easy to stuff on the toy because they are flat and still they quite are hard to get out.
+I use large pieces of a chicken fillet or large cuts from beef strips. These are great because they are easy to stuff into the toy because they are flat and yet they quite are hard to get out.
 
 When I gave the toy to Miki the first time, I used only kibble because I knew that kibble would fall out easily. It was too easy and all the kibble fell almost straight out. But that is necessary for the first time so your dog don't get frustrated with the new toy.
 
