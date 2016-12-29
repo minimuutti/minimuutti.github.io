@@ -7,21 +7,21 @@ image:
   thumb:
 ---
 
-I got carried away again when I got some yarn for christmas present and I crocheted this flying saucer toy to Miki. The diameter of the toy is about 25 cm (10").
+I got carried away again when I got some yarn as a Christmas present and I crocheted this flying saucer toy to Miki. The diameter of the toy is about 25 cm (10").
 
 The greatest thing in making toys to your dog is that a) he doensn't mind the colours - you can use any left over yarns no matter the colour b) your dog will love the toy just as much even if it doesn't come out just perfect :)
 
 I used one size smaller crochet hook than the yarn manufacturer recommended so the toy came out sturdy and durable. You should check that you can machine wash the yarn you are using so the toy will last long and you don't need to hand wash it.
 
-I crocheted the toy in two parts. First I made the bottom similar way as a round potholder is made but at the couple of last rows I decreased the stitches by skipping some so the edges of the "plate" turned upwards.
+I crocheted the toy in two parts. First I made the bottom similar way as a round potholder is made but at the last couple of rows I decreased the stitches by skipping some so the edges of the "plate" turned upwards.
 
-The second "plate" is made similar, but in the beginning I crocheted 50 chain stitches to make a loop, so the second "plate" would have a good size hole on the center to fit Miki's muzzle through. When both plates were ready I attached the halves to each other by overcasting.
+The second "plate" is made similarly, but in the beginning I crocheted 50 chain stitches to make a loop, so the second "plate" would have a good size hole in the center to fit Miki's muzzle through. When both plates were ready I attached the halves to each other by overcasting.
 
 With a couple of first tries I only put few kibble under and on top of the toy so that Miki only sniffed and ate the kibble rather that shredding or tossing the toy all over.
 
-If was like fourth try when I put a handful of kibble inside the toy so they fell easily out when Miki turned the toy around.
+It was probably fourth try when I put a handful of kibble inside the toy so they fell easily out when Miki turned the toy around.
 
-At some point Miki figured out a shortcut (just as I was expecting) and he pushed his muzzle through the hole and ate all the kibble from inside on the spot. I'm about to narrow that hole smaller, so that Miki cannot push her muzzle into the toy anymore but he needs to start turning the toy again :)
+At some point Miki figured out a shortcut (just as I was expecting) and he pushed his muzzle through the hole and ate all the kibble from inside on the spot. I'm about to make that hole smaller, so that Miki cannot push his muzzle into the toy anymore and he needs to start turning the toy again :)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACVYl4mqZIspxkHidewTvBva/aktivointi/lentava-lautanen-ii/DS45155-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADyUpAme1FpeIcwe54w97BNa/aktivointi/lentava-lautanen-ii/DS45155.jpg)
 
