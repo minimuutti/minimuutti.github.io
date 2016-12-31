@@ -37,12 +37,12 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 29.12.2016 Lisätty uusia valokuvia kategoriaan; [Talvi](http://minimuutti.com/luontokuvat/talvi/)
+* 29.12.2016 Lisätty uusia valokuvia kategoriaan; [Talvi](http://minimuutti.com/valokuvaus/luontokuvat/talvi/)
 * 29.12.2016 Lisätty uusi aktivointivinkki; [Lentävä lautanen II](http://minimuutti.com/aktivointi/lentava-lautanen-ii/)
 * 29.12.2016 Lisätty uusi aktivointilelu; [Petprojekt Tretbal](http://minimuutti.com/aktivointilelut/petprojekt-tretbal/)
-* 3.12.2016 Lisätty uusia valokuvia kategoriaan; [Syksy](http://minimuutti.com/luontokuvat/syksy/)
+* 3.12.2016 Lisätty uusia valokuvia kategoriaan; [Syksy](http://minimuutti.com/valokuvaus/luontokuvat/syksy/)
 * 7.11.2016 Lisätty uusi aktivointivinkki; [Pyyheraketit](http://minimuutti.com/aktivointi/pyyheraketit/)
-* 6.11.2016 Lisätty uusia valokuvia kategoriaan; [Mikin kuvat](http://minimuutti.com/kuvia-mikista/)
+* 6.11.2016 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](http://minimuutti.com/valokuvaus/kuvia-mikista/)
 * 6.11.2016 Lisätty uusi aktivointivinkki; [Esteradan miniversio](http://minimuutti.com/aktivointi/esteradan-miniversio/)
 * 6.11.2016 Päivitetty aktivointilelu; [Kong Wobbler](http://minimuutti.com/aktivointilelut/kong-wobbler/)
 * 6.11.2016 Päivitetty aktivointivinkki; [Minitehtäviä](http://minimuutti.com/aktivointi/minitehtavia/)
@@ -55,7 +55,7 @@ Uudet ja viimeksi päivitetyt osiot:
 * 23.10.2016 Päivitetty aktivointivinkki; [Pyyheliina](http://minimuutti.com/aktivointi/pyyheliina/)
 * 16.10.2016 Lisätty uusi aktivointivinkki; [Palloputket](http://minimuutti.com/aktivointi/palloputket/)
 * 15.10.2016 Lisätty uusi aktivointivinkki; [Nappulajahti](http://minimuutti.com/aktivointi/nappulajahti/)
-* 30.9.2016 Lisätty uusia valokuvia kategoriaan; [Kesä](http://minimuutti.com/luontokuvat/kesa/)
+* 30.9.2016 Lisätty uusia valokuvia kategoriaan; [Kesä](http://minimuutti.com/valokuvaus/luontokuvat/kesa/)
 * 30.9.2016 Päivitetty aktivointivinkki; [Ajanvietettä toipilaalle](http://minimuutti.com/aktivointi/ajanvietetta-toipilaalle/)
 * 30.9.2016 Päivitetty aktivointivinkki; [Ikean Drömmar muotit](http://minimuutti.com/aktivointi/ikean-drommar-muotit/)
 * 26.9.2016 Päivitetty aktivointivinkki; [Tehtävälaatikot](http://minimuutti.com/aktivointi/tehtavalaatikot/)
@@ -66,7 +66,7 @@ Uudet ja viimeksi päivitetyt osiot:
 * 23.7.2016 Lisätty uusi aktivointivinkki; [Tuubin pyörittäjän vaihtoehdot](http://minimuutti.com/aktivointi/tuubin-pyorittajan-vaihtoehdot/)
 * 26.6.2016 Lisätty uusi aktivointivinkki; [Tuubin pyöritys](http://minimuutti.com/aktivointi/tuubin-pyoritys/)
 * 29.5.2016 Päivitetty aktivointivinkki; [Namien piilotus puuhun](http://minimuutti.com/aktivointi/namien-piilotus-puuhun/)
-* 16.5.2016 Lisätty uusia valokuvia kategoriaan; [Kevät](http://minimuutti.com/luontokuvat/kevat/)
+* 16.5.2016 Lisätty uusia valokuvia kategoriaan; [Kevät](http://minimuutti.com/valokuvaus/luontokuvat/kevat/)
 * 12.5.2016 Lisätty uusi aktivointilelu; [Busy Buddy Magic Mushroom](http://minimuutti.com/aktivointilelut/busy-buddy-magic-mushroom/)
 * 10.5.2016 Lisätty uusi aktivointivinkki; [Fleecematto](http://minimuutti.com/aktivointi/fleecematto/)
 

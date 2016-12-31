@@ -17,7 +17,7 @@ This site introduces ideas how you can drain your dog's excess energy in various
 
 If you find this site useful and you want to support me, you can donate free amount via Paypal - the link is located on the [**Info**](http://minimuutti.com/en/info/) -site. Alternatively you can send bitcoins to the adress shown on the [**Info**](http://minimuutti.com/en/info/) –site.
 
-This site also contains my favourite photographs about [**Miki**](http://minimuutti.com/en/pictures-of-miki/) and [**Finnish nature**](http://minimuutti.com/en/pictures-of-finnish-nature/). You can buy full resolution photos  without the watermark on [**500px.com**](https://500px.com/search?q=minimuutticom&type=market).
+This site also contains my favourite photographs about [**Miki**](http://minimuutti.com/en/photography/pictures-of-miki/), [**Finnish nature**](http://minimuutti.com/en/photography/finnish-nature/) and [**Other things**](http://minimuutti.com/en/photography/abstract-other). You can buy full resolution photos  without the watermark on [**500px.com**](https://500px.com/search?q=minimuutticom&type=market).
 
 ### First about Miki and something about me too
 
@@ -25,7 +25,7 @@ Miki (means small in inuite language) was born on August 2012. He is a mixed-bre
 
 Alaskan Malamutes have been bred to pull heavy sledges in harsh conditions without getting tired. Malamutes are one of the smartest dog breeds and they are very clever as well.
 
-Miki’s nickname is "wolf". Miki is not a wolf-dog hybrid, but he is primal and certainly looks like a small wolf, so we call him wolf. Both kids and adults spot Miki amongst other dogs because of his looks. At least once in a week we hear someone call him wolf. You can look pictures of Miki in [here](/en/pictures-of-miki/).
+Miki’s nickname is "wolf". Miki is not a wolf-dog hybrid, but he is primal and certainly looks like a small wolf, so we call him wolf. Both kids and adults spot Miki amongst other dogs because of his looks. At least once in a week we hear someone call him wolf. You can look pictures of Miki in [here](http://minimuutti.com/en/photography/pictures-of-miki/).
 
 I usually describe Miki as energetic, lives his life to the fullest, he really loves humans (friends or complete strangers) and he is always eager to do almost anything and he likes to try new things head on. But, there’s a backside of all this.. he almost never drains out of energy. He just keeps going and going and going.
 
@@ -52,6 +52,6 @@ I got the idea for this site, because I couldn’t find enough mental activation
 
 I hope you enjoy the journey with Minimute and I hope that these pages can help your daily life with your own energetic dog.
 
-If you like to watch pictures of Finnish nature, check out the [Pictures of Finnish Nature](/en/pictures-of-finnish-nature/).
+If you like to watch pictures of Finnish nature, check out the [Pictures of Finnish Nature](http://minimuutti.com/en/photography/finnish-nature/).
 
 The journey with Minimute has just begun!

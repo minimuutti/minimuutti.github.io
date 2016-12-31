@@ -45,24 +45,13 @@
     image:
 
 - fin:
-    title: Kuvia Mikistä
-    url: /kuvia-mikista/
+    title: Valokuvaus
+    url: /valokuvaus/
     excerpt:
     image:
   en:
-    title: Pictures of Miki
-    url: /en/pictures-of-miki/
-    excerpt:
-    image:
-
-- fin:
-    title: Luontokuvat
-    url: /luontokuvat/
-    excerpt:
-    image:
-  en:
-    title: Pictures of Finnish Nature
-    url: /en/pictures-of-finnish-nature/
+    title: Photography
+    url: /en/photography/
     excerpt:
     image:
 

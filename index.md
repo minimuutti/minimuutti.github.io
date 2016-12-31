@@ -19,8 +19,7 @@ Sivusto sisältää vinkkejä vilkkaiden koirien energian kuluttamiseksi. Kaikki
 
 [**Info**](http://minimuutti.com/info/) -sivulta löydät myös lahjoitusvaihtoehdot mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani. Voit tehdä lahjoituksen Paypalin kautta, Bitcoineina tai käyttää [**Info**](http://minimuutti.com/info/) -sivulta löytyvää linkkiä kun seuraavan kerran asioit [**Zooplus.fi**](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/)) -verkkokaupassa.
 
-Sivustolta löytyy myös **[luontokuvia](http://minimuutti.com/luontokuvat/)** sekä kuvia **[Mikistä](http://minimuutti.com/kuvia-mikista/)**. Voit ostaa täyden resoluution valokuvia ilman vesileimaa [**500px.com**](https://500px.com/search?q=minimuutticom&type=market) -sivustolta.
-
+Sivustolla on myös **[Valokuvaus](http://minimuutti.com/valokuvaus/)** -osio, jossa voit katsella **[luontokuvia](http://minimuutti.com/valokuvaus/luontokuvat/)**, **[Mikin kuvia](http://minimuutti.com/valokuvaus/kuvia-mikista/)** sekä **[muita kuvia](http://minimuutti.com/valokuvaus/abstraktit-muut)**. Voit ostaa täyden resoluution valokuvia ilman vesileimaa [**500px.com**](https://500px.com/search?q=minimuutticom&type=market) -sivustolta.
 
 ### Mikistä ja vähän myös kirjoittajasta
 
@@ -28,7 +27,7 @@ Miki (inuiittikieltä, tarkoittaa pientä) on elokuussa 2012 syntynyt alaskanmal
 
 Alaskanmalamuutti on jalostettu vetämään raskaita kuormia vaativissa olosuhteissa väsymättä. Malamuutit ovat yksi älykkäimmistä koiraroduista ja ne ovat myös erittäin nokkelia. Erittäin hyvin kirjoitettu alaskanmalamuutin rotukuvaus löytyy [malamuutti comin](http://malamuutti.com/index5.php?page=rotu) sivuilta.
 
-Mikin hellittelynimenä käytetään usein "wulffia". Sutta Mikissä ei ole sen enempää kuin muissakaan koirissa (tarkoitan, että Miki ei todellakaan ole mikään koirasusi; sudet kuuluvat vapaana luontoon), mutta Mikin ulkonäön perusteella sekä sen alkukantaisuuden perusteella se on wulffi. Lapset usein ulkona huomaavat Mikin muiden koirien joukosta. Vähintään kerran viikossa kuulemme niin lasten kuin aikuistenkin kutsuvan sitä sudeksi. Kuvia Mikistä voit käydä katsomassa [täällä](/kuvia-mikista/).
+Mikin hellittelynimenä käytetään usein "wulffia". Sutta Mikissä ei ole sen enempää kuin muissakaan koirissa (tarkoitan, että Miki ei todellakaan ole mikään koirasusi; sudet kuuluvat vapaana luontoon), mutta Mikin ulkonäön perusteella sekä sen alkukantaisuuden perusteella se on wulffi. Lapset usein ulkona huomaavat Mikin muiden koirien joukosta. Vähintään kerran viikossa kuulemme niin lasten kuin aikuistenkin kutsuvan sitä sudeksi. Kuvia Mikistä voit käydä katsomassa [täällä](http://minimuutti.com/valokuvaus/kuvia-mikista/).
 
 Kuvailen Mikiä usein näillä sanoilla: elämänhaluinen, sydämellinen, todella ihmisrakas, erittäin älykäs ja aina innokas tekemään ja kokeilemaan uutta. Tuo voimakas elämänhalu ja innokkuus tuovat mukanaan sen kääntöpuolen, että virtaa vaan riittää ja riittää ja riittää. Mutta toisaalta se on juuri se, mikä tekee koirasta "hyvän".
 
@@ -64,6 +63,6 @@ Sain idean tähän sivustoon siitä, kun en netistä löytänyt aktivointivinkke
 
 Toivottavasti viihdyt Minimuutin matkassa ja tämä sivusto antaa sinulle vinkkejä aktivoida omaa vilkasta koiraasi ja helpottaa sinun sekä koirasi arkea.
 
-Mikäli pidät suomalaisista luontokuvista, niin kannattaa käydä katsomassa myös "[Luontokuvat](/luontokuvat/)" -osio.
+Mikäli pidät suomalaisista luontokuvista, niin kannattaa käydä katsomassa myös [Luontokuvat](http://minimuutti.com/valokuvaus/luontokuvat/) -osio.
 
 Minimuutin matkassa mennään ja lujaa mennäänkin!
