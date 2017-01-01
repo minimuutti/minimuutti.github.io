@@ -23,7 +23,7 @@ I knew that I couldn't toss him kibble the whole night so I froze him a Kong toy
 
 We had closed all the blinds so he couldn't see the fireworks. I was so proud of Miki that even if he stressed a bit he was still able to lick the Kong clean in our livingroom floor despite of all the noise.
 
-As the evening went on Miki was able to sleep in the middle of the livingroom floor (instead of whining and cowering somewhere as before). He was a bit alert as you can see in the photos as he's ears are up and a bit in a "radar mode" but still he remained mainly calm the whole evening.
+As the evening went on Miki was able to sleep in the middle of the livingroom floor (instead of whining and cowering somewhere as before). He was a bit alert as you can see in the photos as his ears are up and a bit in a "radar mode" but still he remained mainly calm the whole evening.
 
 As the time approached to midnight I took a bag of Miki's favourite treats and fed him the treats from about 23:55 to 00:05 when the most of the rockets were fired. Miki was able to concentrate to the treats he was given  the whole time and I couldn't have been more happier about that :)
 
