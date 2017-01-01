@@ -15,11 +15,13 @@ Sivusto sisältää vinkkejä vilkkaiden koirien energian kuluttamiseksi. Kaikki
 
 [**Temput**](http://minimuutti.com/temput/) –kategoriassa on listattuna Mikin osaamat sekä opetteluvaiheessa olevat temput, jotta sinä saisit ideoita omalle koirallesi opetettavista tempuista.
 
+[**Blogista**](http://minimuutti.com/blogi) löytyy ajankohtaisia kuulumisia sekä muita kirjoituksia.
+
 [**Info**](http://minimuutti.com/info/) –linkin takaa löydät listan viimeksi lisätyistä posteista, yhteistyökumppaneiden linkit sekä yhteystiedot.
 
 [**Info**](http://minimuutti.com/info/) -sivulta löydät myös lahjoitusvaihtoehdot mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani. Voit tehdä lahjoituksen Paypalin kautta, Bitcoineina tai käyttää [**Info**](http://minimuutti.com/info/) -sivulta löytyvää linkkiä kun seuraavan kerran asioit [**Zooplus.fi**](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/)) -verkkokaupassa.
 
-Sivustolla on myös **[Valokuvaus](http://minimuutti.com/valokuvaus/)** -osio, jossa voit katsella **[luontokuvia](http://minimuutti.com/valokuvaus/luontokuvat/)**, **[Mikin kuvia](http://minimuutti.com/valokuvaus/kuvia-mikista/)** sekä **[muita kuvia](http://minimuutti.com/valokuvaus/abstraktit-muut)**. Voit ostaa täyden resoluution valokuvia ilman vesileimaa [**500px.com**](https://500px.com/search?q=minimuutticom&type=market) -sivustolta.
+Sivustolla on myös [**Valokuvaus**](http://minimuutti.com/valokuvaus/) -osio, jossa voit katsella [**luontokuvia**](http://minimuutti.com/valokuvaus/luontokuvat/), [**Mikin kuvia**](http://minimuutti.com/valokuvaus/kuvia-mikista/) sekä [**muita kuvia**](http://minimuutti.com/valokuvaus/abstraktit-muut). Voit ostaa täyden resoluution valokuvia ilman vesileimaa [**500px.com**](https://500px.com/search?q=minimuutticom&type=market) -sivustolta.
 
 ### Mikistä ja vähän myös kirjoittajasta
 
@@ -41,7 +43,7 @@ Asumme kerrostalossa Mikin kanssa, jota moni pitää sulana hulluutena. Useimmat
 
 Helppo koira Miki ei todellakaan ole. Kerran eräs marjojenpoimintareissu metsässä kesti neljä tuntia. Kotiin tultuamme Miki lysähti suoraan eteisen matolle nukkumaan ja ehdin jo ajatella, että kerrankin tehtiin sellainen lenkki josta kaveri väsähti. No, kymmenen minuutin makoilun jälkeen Miki tuli ihmettelemään että nyt on nukkumiset nukuttu, mitäs sitten tehtäisiin :D 
 
-Ennen kun Miki tuli meille, uskoin laumanjohtajuuteen kuten Cesar Millan opettaa. Mutta tutkittuani asioita ja kokeiltuani positiivisia koulutusmenetelmiä sekä naksutinkoulutusta, paluuta vanhaan ei enää ole. Mikäli olet kiinnostunut naksutinkoulutuksesta, niin suosittelen lämpimästi lukemaan kirjan: [Naksutinkoulutusta koirallesi](http://www.canis.fi/tuotteet.html?id=0/3) kirjoittajina Morten Egtvedt ja Cecilie Koste.
+Kun Miki tuli meille pentuna, uskoin laumanjohtajuuteen kuten Cesar Millan opettaa. Mutta tutkittuani asioita ja kokeiltuani positiivisia koulutusmenetelmiä sekä naksutinkoulutusta, paluuta vanhaan ei enää ole. Mikäli olet kiinnostunut naksutinkoulutuksesta, niin suosittelen lämpimästi lukemaan kirjan: [Naksutinkoulutusta koirallesi](http://www.canis.fi/tuotteet.html?id=0/3) kirjoittajina Morten Egtvedt ja Cecilie Koste.
 
 Mikäli pidät pohjoisista koiraroduista, etkä vielä ole nähnyt elokuvaa Eight Below (suom. Seikkailu Etelänavalla), niin suosittelen vuokraamaan ja katsomaan sen. Elokuva pohjautuu tositapahtumaan, jossa vetokoirat jäävät etelänavalle oman onnensa nojaan selviytymään talven yli. Elokuva itsessään on ehkä vähän nuoremmille suunnattu, mutta voi että ne vetokoirat ovat lumoavia. Sitaatti elokuvasta, kuvaten alaskanmalamuuttia: "All brawn and absolutely no brain" (vapaa suomennos: täyttä voimaa eikä ollenkaan aivoja). Vaikka malamuutit ovatkin oikeasti todella älykkäitä, niin hauskalla tavalla tuo kuitenkin kuvaa malamuuttia, koska ainakin Miki välillä "unohtaa" voimansa. Esimerkiksi silloin kun se veti polkupyörän springerin mutkalle.
 

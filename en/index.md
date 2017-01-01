@@ -13,6 +13,8 @@ This site introduces ideas how you can drain your dog's excess energy in various
 
 [**Tricks**](http://minimuutti.com/en/tricks/) –category contais all the tricks and cues Miki knows by now and also something that we are working with right now.
 
+[**Blog**](http://minimuutti.com/en/blog) contains some updates and other articles I wanted to share with you.
+
 [**Info**](http://minimuutti.com/en/info/) –site contains list of the latest updates and contact information.
 
 If you find this site useful and you want to support me, you can donate free amount via Paypal - the link is located on the [**Info**](http://minimuutti.com/en/info/) -site. Alternatively you can send bitcoins to the adress shown on the [**Info**](http://minimuutti.com/en/info/) –site.
