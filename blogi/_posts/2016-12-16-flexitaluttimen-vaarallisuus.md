@@ -16,4 +16,5 @@ Flexitaluttimen lukitus antoi periksi ja koira syöksyi autotielle kohti Mikiä 
 Jokainen meistä rakastaa koiraansa ja viimeistään nyt on aika vaihtaa vaaralliset flexitaluttimet tavalliseen talutushihnaan.
 
 R.I.P.
- 
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABiB5VA9n9xYcshKgImXR5za/blogi/Image.jpg)
