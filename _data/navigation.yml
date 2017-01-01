@@ -56,6 +56,17 @@
     image:
 
 - fin:
+    title: Blogi
+    url: /blogi/
+    excerpt:
+    image:
+  en:
+    title: Blog
+    url: /en/blog/
+    excerpt:
+    image:
+
+- fin:
     title: info
     url: /info/
     excerpt:
