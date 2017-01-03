@@ -100,3 +100,5 @@ Kun kello läheni puoltayötä niin hain pussillisen Mikin lempiherkkuja ja syö
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB1K5wRAzNskzVjkOkCzcrGa/mikin-kuvat/3/DS45910-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADSTsCqQojJgMYEkojxVHjCa/mikin-kuvat/3/DS45910.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC6bmocUGiCLg_czGcDzzw7a/mikin-kuvat/3/DS45933-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA7Io8gRTegRZ7UnoZKPvnJa/mikin-kuvat/3/DS45933.jpg)
+
+1.1.2017

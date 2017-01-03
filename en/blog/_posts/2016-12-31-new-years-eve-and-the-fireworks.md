@@ -100,3 +100,5 @@ As the time approached to midnight I took a bag of Miki's favourite treats and f
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB1K5wRAzNskzVjkOkCzcrGa/mikin-kuvat/3/DS45910-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADSTsCqQojJgMYEkojxVHjCa/mikin-kuvat/3/DS45910.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC6bmocUGiCLg_czGcDzzw7a/mikin-kuvat/3/DS45933-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA7Io8gRTegRZ7UnoZKPvnJa/mikin-kuvat/3/DS45933.jpg)
+
+2017-01-01

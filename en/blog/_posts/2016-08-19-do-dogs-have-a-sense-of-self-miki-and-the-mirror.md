@@ -18,3 +18,5 @@ It appeared to me like he was trying to figure out if he was looking at himself.
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_Rmt_mX3CDYEIhgb3AuuSa/blogi/IMG_20160726_101217-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACuKFxAIIkf5uM5E6g1zpjfa/blogi/IMG_20160726_101217.jpg)
 
 This photo doens't relate to that event.
+
+2016-08-19

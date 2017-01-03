@@ -37,8 +37,12 @@ Ovatko reaktiiviset koirat vain erityisherkkiä? Mitä mieltä sinä olet?
 
 Alla olevissa kuvissa miki on noin puolen vuoden ikäinen ja se hyökkäilee hihnassa karkottaakseen vastaantulevan koiran. Tällöin uskoin vielä laumanjohtajuuteen ja kuten kuvista hyvin näkyy, kieltäminen ja toruminen "väärästä" käytöksestä ei ollut kovinkaan tehokasta. Itse asiassa se oli täysin hyödytöntä ja lisäksi teki tilanteesta Mikille vieläkin epämieluisamman.
 
-Nykyään koulutan vain palkitsemalla Mikiä oikeasta käytöksestä ja remmirähjääminen on loppunut lähes kokonaan.
-
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC80Wo6zFPJagZpmg8annrRa/blogi/IMG_1932-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVajsX37Dc0eRi9bzdjz5ka/blogi/IMG_1932.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABo1wCTNlpJke7QVu3GM1oca/blogi/IMG_1943-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABRJQcDiObw8D_z8sdj9oQCa/blogi/IMG_1943.jpg)
+
+Nykyään koulutan vain palkitsemalla Mikiä oikeasta käytöksestä ja remmirähjääminen on loppunut lähes kokonaan.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAQMHX8z0YLbfsxMHeBU9Bha/blogi/DSC25924-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACmltZ2mQa8PUPQEvNk1p5Va/blogi/DSC25924.jpg)
+
+8.8.2016

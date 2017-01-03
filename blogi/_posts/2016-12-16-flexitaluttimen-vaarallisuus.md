@@ -17,4 +17,6 @@ Jokainen meistä rakastaa koiraansa ja viimeistään nyt on aika vaihtaa vaarall
 
 R.I.P.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABiB5VA9n9xYcshKgImXR5za/blogi/Image.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABiB5VA9n9xYcshKgImXR5za/blogi/Image.jpg)
+
+16.12.2016
