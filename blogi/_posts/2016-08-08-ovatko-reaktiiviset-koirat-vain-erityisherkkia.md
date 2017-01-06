@@ -25,7 +25,7 @@ Mitä sitten pitäisi tehdä?
 
 Kun huomaan oman ämpärini olevan täyttymässä niin ensimmäisenä yritän päästä pois tilanteesta. Kaikista tärkeintä on tietysti olla joutumatta tuollaisiin tilanteisiin, mutta tosiasia on se, että elämässä vaan on joitakin  pakollisia tilanteita, joita ei voi välttää. Silloin pyrin suunnittelemaan tilanteet etukäteen mahdollisimman vähän kuormittavaksi.
 
-Kun kävelytät reaktiivista koiraasi niin koira on todennäköisesti talutushihnassa. Kun koira on sidottu hihnaan, se ei voi välttää vastaantulevia koiria, rullalautailijoita, pyöräilijöitä tai vilkkaita ja kovaäänisiä lapsia jota vastaan se hihnassa viedään. Tässä kohtaa tärkeintä on opetella koirien kehonkieli, jotta koirasi voi kertoa sinulle (sinä *ymmärrät milloin* koirasi kertoo sinulle) milloin se on saanut tarpeekseen ja sen pitää päästä pois tilanteesta.
+Kun kävelytät reaktiivista koiraasi, niin koira on todennäköisesti talutushihnassa. Kun koira on sidottu hihnaan, se ei voi välttää vastaantulevia koiria, rullalautailijoita, pyöräilijöitä tai vilkkaita ja kovaäänisiä lapsia jota vastaan se hihnassa viedään. Tässä kohtaa tärkeintä on opetella koirien kehonkieli, jotta koirasi voi kertoa sinulle (sinä *ymmärrät milloin* koirasi kertoo sinulle) milloin se on saanut tarpeekseen ja sen pitää päästä pois tilanteesta.
 
 Jos sinä et ymmärrä koirasi tarvetta päästä pois, niin ainoa asia mitä koiraraukka voi enää tehdä on yrittää karkottaa vastaantulijat keinolla millä hyvänsä - haukkumalla, näyttämällä hampaita, murisemalla, näykkimällä ilmaa ja hyökkäilemällä hihnassa. Tämä käytös on koiralle erittäin palkitsevaa, koska lopulta vastaantulijat ohittavat teidät ja menevät pois - juuri sitä mitä koirasi alunperin halusikin.
 
