@@ -37,13 +37,14 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 6.1.2017 Lisätty uusia valokuvia kategoriaan; [Talvi](http://minimuutti.com/valokuvaus/luontokuvat/talvi/)
+* 7.1.2017 Lisätty uusia valokuvia kategoriaan; [Talvi](http://minimuutti.com/valokuvaus/luontokuvat/talvi/)
+* 7.1.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](http://minimuutti.com/valokuvaus/kuvia-mikista/)
+* 7.1.2017 Lisätty uusia valokuvia kategoriaan; [Abstraktit ja muut](http://minimuutti.com/valokuvaus/abstraktit-muut/)
+* 7.1.2017 Lisätty uusia valokuvia kategoriaan; [Syksy](http://minimuutti.com/valokuvaus/luontokuvat/syksy/)
 * 1.1.2017 Lisätty uusia posteja [Blogiin](http://minimuutti.com/blogi)
 * 29.12.2016 Lisätty uusi aktivointivinkki; [Lentävä lautanen II](http://minimuutti.com/aktivointi/lentava-lautanen-ii/)
 * 29.12.2016 Lisätty uusi aktivointilelu; [Petprojekt Tretbal](http://minimuutti.com/aktivointilelut/petprojekt-tretbal/)
-* 3.12.2016 Lisätty uusia valokuvia kategoriaan; [Syksy](http://minimuutti.com/valokuvaus/luontokuvat/syksy/)
 * 7.11.2016 Lisätty uusi aktivointivinkki; [Pyyheraketit](http://minimuutti.com/aktivointi/pyyheraketit/)
-* 6.11.2016 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](http://minimuutti.com/valokuvaus/kuvia-mikista/)
 * 6.11.2016 Lisätty uusi aktivointivinkki; [Esteradan miniversio](http://minimuutti.com/aktivointi/esteradan-miniversio/)
 * 6.11.2016 Päivitetty aktivointilelu; [Kong Wobbler](http://minimuutti.com/aktivointilelut/kong-wobbler/)
 * 6.11.2016 Päivitetty aktivointivinkki; [Minitehtäviä](http://minimuutti.com/aktivointi/minitehtavia/)
