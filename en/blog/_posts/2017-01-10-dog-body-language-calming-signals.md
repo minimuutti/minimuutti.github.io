@@ -102,7 +102,7 @@ Here you can see Miki yawning because of stress.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABi_JRIZrNNbYrHfrq6TU4qa/blogi/IMG26670-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB6FIoYohS1iw2dC8GVvntXa/blogi/IMG26670.jpg)
 
-And here he most likely yawns because he is tired because went to sleep.
+And here he most likely yawns because he is tired because he went to sleep.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADHE7ERZcRYhatTisdrKe5Sa/blogi/DSC26803-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADaF9HHWZ2rbgbKzXPFOzaBa/blogi/DSC26803.jpg)
 
