@@ -37,11 +37,11 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 11.1.2017 Lisätty uusi postaus [Blogiin](http://minimuutti.com/blogi)
 * 7.1.2017 Lisätty uusia valokuvia kategoriaan; [Talvi](http://minimuutti.com/valokuvaus/luontokuvat/talvi/)
 * 7.1.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](http://minimuutti.com/valokuvaus/kuvia-mikista/)
 * 7.1.2017 Lisätty uusia valokuvia kategoriaan; [Abstraktit ja muut](http://minimuutti.com/valokuvaus/abstraktit-muut/)
 * 7.1.2017 Lisätty uusia valokuvia kategoriaan; [Syksy](http://minimuutti.com/valokuvaus/luontokuvat/syksy/)
-* 1.1.2017 Lisätty uusia posteja [Blogiin](http://minimuutti.com/blogi)
 * 29.12.2016 Lisätty uusi aktivointivinkki; [Lentävä lautanen II](http://minimuutti.com/aktivointi/lentava-lautanen-ii/)
 * 29.12.2016 Lisätty uusi aktivointilelu; [Petprojekt Tretbal](http://minimuutti.com/aktivointilelut/petprojekt-tretbal/)
 * 7.11.2016 Lisätty uusi aktivointivinkki; [Pyyheraketit](http://minimuutti.com/aktivointi/pyyheraketit/)
