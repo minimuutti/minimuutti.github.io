@@ -1,5 +1,5 @@
 ---
-title: "Body language in dogs - calming signals"
+title: "Dog body language - calming signals"
 layout: article
 image:
   feature:
