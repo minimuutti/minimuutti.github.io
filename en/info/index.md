@@ -36,10 +36,10 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2017-01-15 New photos added in category; [Abstract & other](http://minimuutti.com/en/photography/abstract-other/)
 * 2017-01-11 New post added into the [Blog](http://minimuutti.com/en/blog) 
 * 2017-01-07 New photos added in category; [Winter](http://minimuutti.com/en/photography/finnish-nature/winter/)
 * 2017-01-07 New photos added in category; [Pictures of Miki](http://minimuutti.com/en/photography/pictures-of-miki/)
-* 2017-01-07 New photos added in category; [Abstract & other](http://minimuutti.com/en/photography/abstract-other/)
 * 2017-01-07 New photos added in category; [Autumn](http://minimuutti.com/en/photography/finnish-nature/autumn/)
 * 2016-12-29 New activation post; [Flying saucer II](http://minimuutti.com/en/activation/flying-saucer-ii/)
 * 2016-12-29 New treat dispenser; [Petprojekt Tretbal](http://minimuutti.com/en/treat-dispensers/petprojekt-tretbal/)
