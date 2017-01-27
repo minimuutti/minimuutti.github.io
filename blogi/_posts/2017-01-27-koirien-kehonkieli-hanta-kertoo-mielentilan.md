@@ -61,7 +61,7 @@ Koiran hännän korkeutta katsoessa tulee katsoa hännän tyveä. Esimerkiksi t�
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACWM7mOeLuCEEeXQtTWAwnta/blogi/IMG22933-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABmASlHY5pQEIOcP4HP_9yXa/blogi/IMG22933.jpg)
 
-Kuten tästä seuraavasta kuvasta näkyy Miki antenni onkin nyt täysin suunnattu kohti tähtiä.
+Kuten tästä seuraavasta kuvasta näkyy Mikin antenni onkin nyt täysin suunnattu kohti tähtiä.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAVKkj0u1NkY8H5b2G8BUPMa/blogi/IMG22936-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACrXhSFtvqMyuoPZIWRAQE2a/blogi/IMG22936.jpg)
 
@@ -75,13 +75,13 @@ Tässä seuraavassa kuvassa näkyy, kun Mikille yhtäkkiä heitetään lumipallo
 
 ##### Häntä jalkojen välissä
 
-Kun koiran häntä laskee alaspäin, kiihtyneisyys vaihtuu rauhallisuudeksi ja koiran mielentila vaihtuu johtajasta seuraajaksi (ja koira saattaa myös alistua toiselle koiralle). Ääripäänä on se, kun koiran häntä laskee mahdollisimman alas, eli se on jalkojen välissä ja hännänpää osoittaa koiran mahaa kohti. Häntä voi myös olla täysin vatsaa vasten. Koira on tällöin erittäin pelokas ja yrittää tehdä itsestään mahdollisimman pienen - älä satuta minua, olen vain pieni harmiton koira. Koiran selkä on tällöin usein myös kaarella, eli sen peppu putoaa laskevan hännän mukana alaspäin.
+Kun koiran häntä laskee alaspäin, kiihtyneisyys vaihtuu rauhallisuudeksi ja koiran mielentila vaihtuu johtajasta seuraajaksi (ja koira saattaa myös alistua toiselle koiralle). Ääripäänä on se, kun koiran häntä laskee mahdollisimman alas, eli se on jalkojen välissä ja hännänpää osoittaa koiran mahaa kohti. Häntä voi myös olla täysin vatsaa vasten. Koira on tällöin erittäin pelokas ja yrittää suojella sukuelimiään ja tehdä itsestään mahdollisimman pienen - älä satuta minua, olen vain pieni harmiton koira. Koiran selkä on tällöin usein myös kaarella, eli sen peppu putoaa laskevan hännän mukana alaspäin.
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACLVhzieSSR96NUw4se0Xaxa/blogi/hannat5.jpg)
 
 Mikistä ei ole olemassa yhtään kuvaa, jossa sillä olisi häntä jalkojen välissä. Miki on vain muutaman kerran elämässään pelännyt niin paljon, että sen häntä on mennyt jalkojen väliin ja ne eivät todellakaan ole olleet tilanteita joissa olisi ollut mahdollista tai edes järkevää kuvata.
 
-Tällaisia tilanteita ovat olleet ne kerrat, kun olemme olleet Mikin kanssa ulkona, kun lähistöllä on alkanut ilotulitus. Kerran myös kun Miki oli pentu, niin eräältä vanhalta rouvalta pääsi hoidossa oleva Tanskandoggi irti ja se syöksyi Mikiä kohti. Mikin häntä meni silloin täysin vatsaa vasten ja Miki litistyi maahan melkein yhtä matalaksi kuin pannukakku tehdessään itsestään niin pienen kuin vain mahdollista. Onneksi rouva sai sitten koiransa kiinni ja Miki selvisi ilman fyysisiä vammoja (niistä henkisistä vammoista ei tässä nyt puhuta).
+Tällaisia tilanteita ovat olleet ne kerrat, kun olemme olleet Mikin kanssa ulkona, kun lähistöllä on alkanut ilotulitus. Kerran myös kun Miki oli pentu, niin eräältä vanhalta rouvalta pääsi hoidossa oleva tanskandoggi irti ja se syöksyi Mikiä kohti. Mikin häntä meni silloin täysin vatsaa vasten ja Miki litistyi maahan tehdessään itsestään niin pienen kuin vain mahdollista. Onneksi rouva sai sitten koiransa kiinni ja Miki selvisi ilman fyysisiä vammoja (niistä henkisistä vammoista ei tässä nyt puhuta).
 
 ## Heilumissuunta
 
@@ -159,7 +159,7 @@ Tässä Miki on vielä pentu ja se on erittäin iloinen lelusta, joka ei näy ku
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACSiZd6sdjNwQ1dQVOEbwR0a/blogi/IMG_2342-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADaBHZbWE9IkEtuYVObKfk2a/blogi/IMG_2342.jpg)
 
-Jos häntä heiluu hitaasti ja se näyttää samalla jäykältä, niin koira käytännössä tällöin heiluttaa punaista lippua sanoen: älä tule lähemmäksi. Jos kuitenkin lähestyt sitä se saattaa näykkäistä korostaakseen asiaansa. Sama juttu, kun olet koirasi kanssa lenkillä, jos vastaantuleva koira heiluttaa punaista lippua niin sen lähelle ei kannata mennä, se saattaa näykkäistä koiraasi.
+Jos häntä heiluu hitaasti ja se (ja koko koira) näyttää jäykältä, niin koira käytännössä tällöin heiluttaa punaista lippua sanoen: älä tule lähemmäksi. Jos kuitenkin lähestyt sitä se saattaa näykkäistä korostaakseen asiaansa. Sama juttu, kun olet koirasi kanssa lenkillä, jos vastaantuleva koira heiluttaa punaista lippua niin sen lähelle ei kannata mennä, se saattaa näykkäistä koiraasi.
 
 ### Älä osta hännätöntä koiraa
 
