@@ -31,6 +31,10 @@ Ystävällinen ja rento häntä näyttää suunnilleen tältä, eli sen tyvi on 
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAK6kFkGeRILyg_7gMKm9Mha/blogi/hannat3.jpg)
 
+Joillakin roduilla rento häntä voi näyttää myös tältä, mutta hännän pää osoittaa silloin koirasta poispäin:
+
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABiwJkScM8qSibdBhDbJvaya/blogi/hannat4.jpg)
+
 Mikillä on kippura häntä, joten Mikillä neutraali/iloinen hännän asento on yleensä kippurassa selän päällä:
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABRKh1dMcqLvm_F5N224OYla/blogi/DSC07372-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABfIqVfoQLp65bIqLg6son6a/blogi/DSC07372.jpg)

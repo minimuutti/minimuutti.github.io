@@ -31,6 +31,10 @@ Friendly and relaxed tail looks somewhat like this, the base of the tail is para
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAK6kFkGeRILyg_7gMKm9Mha/blogi/hannat3.jpg)
 
+Some breeds may just hang their tail when it's relaxed, but the tip of the tail points outwards:
+
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABiwJkScM8qSibdBhDbJvaya/blogi/hannat4.jpg)
+
 Miki has a curly tail, so he's friendly when the tail is curled over his back:
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABRKh1dMcqLvm_F5N224OYla/blogi/DSC07372-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABfIqVfoQLp65bIqLg6son6a/blogi/DSC07372.jpg)
