@@ -65,7 +65,7 @@ Kuten tästä seuraavasta kuvasta näkyy Miki antenni onkin nyt täysin suunnatt
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAVKkj0u1NkY8H5b2G8BUPMa/blogi/IMG22936-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACrXhSFtvqMyuoPZIWRAQE2a/blogi/IMG22936.jpg)
 
-Tässä on myös hauska kuvasarja, ensimmäisessä kuvassa Miki duunailee omiaan ja haistelee lunta. Sen häntä on melko rento.
+Tässä on myös hauska kuvasarja, ensimmäisessä kuvassa Miki duunailee omiaan ja haistelee lunta. Sen häntä osoittaa alaspäin.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAP0vFgT5luBFc5mYhHpEFra/blogi/IMG_2963-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAwvCHdNzt1BkEk50CHu73Ma/blogi/IMG_2963.jpg)
 

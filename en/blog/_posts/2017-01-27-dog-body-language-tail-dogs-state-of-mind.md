@@ -65,7 +65,7 @@ And as you can see in this photo Miki's antenna now points to the stars above.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAVKkj0u1NkY8H5b2G8BUPMa/blogi/IMG22936-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACrXhSFtvqMyuoPZIWRAQE2a/blogi/IMG22936.jpg)
 
-This is also a fun set of two photos. In this first picture Miki wanders in the snow sniffing and his tail is quite relaxed.
+This is also a fun set of two photos. In this first picture Miki wanders in the snow sniffing and his tail is pointed downwards.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAP0vFgT5luBFc5mYhHpEFra/blogi/IMG_2963-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAwvCHdNzt1BkEk50CHu73Ma/blogi/IMG_2963.jpg)
 
