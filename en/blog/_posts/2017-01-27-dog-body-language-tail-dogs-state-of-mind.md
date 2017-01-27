@@ -47,7 +47,7 @@ Miki has a curly tail, so he's friendly when the tail is curled over his back:
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADc4gSVwUWmBx8AnRlkxSrja/blogi/hannat2.jpg)
 
-Dogs move their tails up and down. Or in fact it's adrenaline that moves the tail in general. When the tail moves upwards it can be a sign of self confidence, asserting a leading position, aggression, agitation, excitement or it can be a warning to stay away.
+Dogs move their tails up and down. Or in fact it's adrenaline that moves the tail in general. When the tail moves upwards it can be a sign of alertness, self confidence, asserting a leading position, aggression, agitation, excitement or it can be a warning to stay away.
 
 If the tail is vertical and stiff, the dog is very agitated and he might be aggressive as well. If a dog moves a vertical tail stiffly and very slowly it's like he's holding a red flag saiyng Stay away. When a vertical tail moves so quickly it seems to be shivering the dog is very agitated and must not be approached.
 
