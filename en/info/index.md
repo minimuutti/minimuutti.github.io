@@ -36,13 +36,16 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 1017-01-27 New post added into the Blog; [Dog body language: tail - a dog's state of mind](http://minimuutti.com/en/blog/dog-body-language-tail-dogs-state-of-mind/)
 * 2017-01-15 New photos added in category; [Abstract & other](http://minimuutti.com/en/photography/abstract-other/)
-* 2017-01-11 New post added into the [Blog](http://minimuutti.com/en/blog) 
+* 2017-01-11 New post added into the Blog; [Dog body language - calming signals](http://minimuutti.com/en/blog/dog-body-language-calming-signals/)
 * 2017-01-07 New photos added in category; [Winter](http://minimuutti.com/en/photography/finnish-nature/winter/)
 * 2017-01-07 New photos added in category; [Pictures of Miki](http://minimuutti.com/en/photography/pictures-of-miki/)
 * 2017-01-07 New photos added in category; [Autumn](http://minimuutti.com/en/photography/finnish-nature/autumn/)
+* 2017-01-01 New post added into the Blog; [New years eve and the fireworks](http://minimuutti.com/en/blog/new-years-eve-and-the-fireworks/)
 * 2016-12-29 New activation post; [Flying saucer II](http://minimuutti.com/en/activation/flying-saucer-ii/)
 * 2016-12-29 New treat dispenser; [Petprojekt Tretbal](http://minimuutti.com/en/treat-dispensers/petprojekt-tretbal/)
+* 2016-12-16 New post added into the Blog; [Dangers of retractable leashes](http://minimuutti.com/en/blog/dangers-of-retractable-leashes/)
 * 2016-11-07 New activation post; [Towel rockets](http://minimuutti.com/en/activation/towel-rockets/)
 * 2016-11-06 New activation post; [Mini obstacle course](http://minimuutti.com/en/activation/mini-obstacle-course/)
 * 2016-11-06 Updated a treat dispenser review; [Kong Wobbler](http://minimuutti.com/en/treat-dispensers/kong-wobbler/)
@@ -61,14 +64,5 @@ New and recently updated posts:
 * 2016-09-30 Updated activation post; [Ikea's Drömmar set](http://minimuutti.com/en/activation/ikeas-drommar-set/)
 * 2016-09-26 Updated activation post; [Taskboxes](http://minimuutti.com/en/activation/taskboxes/)
 * 2016-09-17 New treat dispenser review; [Buster Food Cube](http://minimuutti.com/en/treat-dispensers/buster-food-cube/)
-* 2016-09-04 New activation post; [Confidence booster](http://minimuutti.com/en/activation/confidence-booster/)
-* 2016-08-14 New activation post; [Toy hunt](http://minimuutti.com/en/activation/toy-hunt/)
-* 2016-08-02 New activation post; [Rose](http://minimuutti.com/en/activation/rose/)
-* 2016-07-23 New activation post; [High roller's alternatives](http://minimuutti.com/en/activation/high-rollers-alternatives/)
-* 2016-06-26 New activation post; [High roller](http://minimuutti.com/en/activation/high-roller/)
-* 2016-05-29 Updated activation post; [Hiding the treats in a tree](http://minimuutti.com/en/activation/hiding-the-treats-in-a-tree/)
-* 2016-05-16 New photos added in category; [Spring](http://minimuutti.com/en/photography/finnish-nature/spring/)
-* 2016-05-12 New treat dispenser review; [Busy Buddy Magic Mushroom](http://minimuutti.com/en/treat-dispensers/busy-buddy-magic-mushroom/)
-* 2016-05-10 New activation post; [Snuffle mat](http://minimuutti.com/en/activation/snuffle-mat/)
 
 © Susu
