@@ -19,7 +19,7 @@ Tässä postissa tarkastellaan kolmea asiaa: hännän suhteellista korkeutta sek
 
 ## Hännän korkeus
 
-Hännän korkeutta katsottaessa eri rotuisia koiria ei suoraan voi verrata keskenään, koska eri rotuisilla koirilla hännän luonnollinen asento vaihtelee. Sen sijaan on aina katsottava onko koiran häntä rodun luonnollista hännänasentoa pystymmässä tai alempana.
+Hännän korkeutta katsottaessa eri rotuisia koiria ei voi verrata keskenään, koska eri rotuisilla koirilla hännän luonnollinen asento vaihtelee. Sen sijaan on aina katsottava onko koiran häntä rodun luonnollista hännänasentoa pystymmässä tai alempana.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACo9mpL9KOeFXXnFtkLPhGga/blogi/hannat1-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABqZ96tda-A5bBquSELWlEAa/blogi/hannat1.jpg)
 

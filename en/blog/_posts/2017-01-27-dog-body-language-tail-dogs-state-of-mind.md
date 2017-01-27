@@ -19,7 +19,7 @@ Different wags are quite easy to learn. For the safety of your family and for ot
 
 ## Height of the tail
 
-You can't always compare tails' height with different dog breeds because every breed carries their tail differently when it's in a neutral position. What you need to do is compare the height within the breed - is the tail higher or lower compared to the neutral tail carriage of that breed?
+You can't compare tails' height between different dog breeds because every breed carries their tail differently when it's in a neutral position. What you need to do is compare the height within the breed - is the tail higher or lower compared to the neutral tail carriage of that breed?
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACo9mpL9KOeFXXnFtkLPhGga/blogi/hannat1-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABqZ96tda-A5bBquSELWlEAa/blogi/hannat1.jpg)
 
