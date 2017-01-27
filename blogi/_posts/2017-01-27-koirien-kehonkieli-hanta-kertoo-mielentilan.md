@@ -15,7 +15,7 @@ Virheellisesti luullaan, että häntää heiluttava koira on aina ystävällinen
 
 Koiran hännän liikkeiden eri tarkoitukset on helppo oppia. Niihin ei liity mitään piiloviestintää, vaan hännän näyttäminen tietyllä tavalla tarkoittaa aina samaa asiaa. Oman perheen sekä muiden turvallisuuden takaamiseksi ne kannattaa jokaisen koiranomistajan opetella, koska niistä pystyy lukemaan koirien ajatuksia kuin avointa kirjaa - ja siten myös välttämään ikävät tilanteet.
 
-Koirien hännänasentoa tarkastellessa katsotaan kolmea asiaa: hännän suhteellista korkeutta sekä heilumisen suuntaa ja nopeutta. Tarkastellaan seuraavaksi näitä seikkoja yksitellen.
+Tässä postissa tarkastellaan kolmea asiaa: hännän suhteellista korkeutta sekä heilumisen suuntaa ja nopeutta. Tarkastellaan seuraavaksi näitä seikkoja yksitellen.
 
 ## Hännän korkeus
 
