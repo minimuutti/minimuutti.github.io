@@ -13,7 +13,7 @@ Koiran häntä kertoo koiran mielentilan. Hännän heilutus ei automaattisesti t
 
 Virheellisesti luullaan, että häntää heiluttava koira on aina ystävällinen tai iloinen. Tämä harhaluulo on valitettavasti myös lapsilla ja se on yksi yleisimmistä syistä siihen, että lapsi joutuu koiran näykkäisemäksi. Koirat heiluttavat häntäänsä kyllä silloinkin, kun ne ovat iloisia, mutta koirat heiluttavat häntäänsä myös esimerkiksi varoituksena; älä tule lähemmäs. 
 
-Koiran hännän liikkeiden eri tarkoitukset on helppo oppia. Niihin ei liity mitään piiloviestintää, vaan hännän näyttäminen tietyllä tavalla tarkoittaa aina samaa asiaa. Oman perheen sekä muiden turvallisuuden takaamiseksi ne kannattaa jokaisen koiranomistajan opetella, koska niistä pystyy lukemaan koirien ajatuksia kuin avointa kirjaa - ja siten myös välttämään ikävät tilanteet.
+Koiran hännän liikkeiden eri tarkoitukset on melko helppo oppia. Oman perheen sekä muiden turvallisuuden takaamiseksi ne kannattaa jokaisen koiranomistajan opetella, koska niistä pystyy lukemaan koirien ajatuksia kuin avointa kirjaa - ja siten myös välttämään ikävät tilanteet.
 
 Tässä postissa tarkastellaan kolmea asiaa: hännän suhteellista korkeutta sekä heilumisen suuntaa ja nopeutta. Tarkastellaan seuraavaksi näitä seikkoja yksitellen.
 
