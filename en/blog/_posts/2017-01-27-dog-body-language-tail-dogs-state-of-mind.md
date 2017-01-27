@@ -27,7 +27,7 @@ You can't always compare tails' height with different dog breeds because every b
 
 Every breed has its own neutral tail position. Miki has a curly tail so the neutral position is when the tail is curled over its back. And for example greyhounds' tail is in neutral position when it hangs between the legs. When a dog has its tail on the neutral position, he's friendly and safe to approach.
 
-Friendly and relaxed tail looks somewhat like this, it's parallel to the dogs back or a little lower:
+Friendly and relaxed tail looks somewhat like this, the base of the tail is parallel to the dogs back or a little lower:
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAK6kFkGeRILyg_7gMKm9Mha/blogi/hannat3.jpg)
 

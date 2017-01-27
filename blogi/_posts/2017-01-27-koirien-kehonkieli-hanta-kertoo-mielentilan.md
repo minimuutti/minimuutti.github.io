@@ -27,7 +27,7 @@ Hännän korkeutta katsottaessa eri rotuisia koiria ei suoraan voi verrata keske
 
 Jokaisella koiralla on neutraali, luonnollinen hännän asento. Esimerkiksi kippurahäntäisillä koirilla häntä lepää selän päällä kippurassa ja vastakohtana vinttikoirien häntä on luonnollisessa asennossa, kun se roikkuu jalkojen välissä. Kun koiran häntä on sen luonnollisessa asennossa, niin koira on ystävällinen/iloinen ja sitä voi lähestyä.
 
-Ystävällinen ja rento häntä näyttää suunnilleen tältä, eli se on enintään koiran selkälinjan korkeudella tai hieman alempana:
+Ystävällinen ja rento häntä näyttää suunnilleen tältä, eli sen tyvi on enintään koiran selkälinjan korkeudella tai hieman alempana:
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAK6kFkGeRILyg_7gMKm9Mha/blogi/hannat3.jpg)
 
