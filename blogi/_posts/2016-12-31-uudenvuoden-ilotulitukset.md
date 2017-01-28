@@ -17,6 +17,8 @@ Aloin vastaehdollistamaan Mikiä ilotulituksen ääniin jokaisen ilotulituksen a
 
 Miki ei rakasta mitään muuta niin paljon kuin sitä, että se saa etsiä tai jahdata ruokaa. Jokaisen ilotulituksen alkaessa otin desin verran nappuloita ja menimme Mikin kanssa ikkunattomaan eteiseen. Sitten rauhallisesti vierittelin sille nappuloita lattiaa pitkin saalistettavaksi ja jatkoin tätä koko ilotulituksen ajan ja lopetin vasta äänten loppuessa. Teimme näin joka ikisen ilotulituksen kanssa.
 
+Sinä voit harjoitella koirasi kanssa myös niin, että soitat ilotulituksen ääntä nauhalta. Ensimmäisillä kerroilla ääni tulee pitää hiljaisena ja äänenvoimakkuutta voi lisätä myöhemmin. Ilotulituksen ääniä löydät esimerkiksi Youtubesta.
+
 H-hetki, eli 31.12.2016 tuli. Veimme Mikin lenkille hyvissä ajoin iltapäivällä ja tein Mikin kanssa paljon rauhallisia aktivointitehtäviä päivän aikana, jotta Miki olisi illalla mahdollisimman rauhallinen.
 
 Tiesin, ettei ole mahdollista heitellä sille nappuloita koko iltaa, joten pakastin Mikille maksapateeta sisältävän Kongin. Vastaehdollistamisessa ajoitus on erittäin tärkeää. Koska tiesin ilotulituksen alkavan kello 18:00, niin annoin Kongin Mikille kello 17:58 - juuri ennen ilotulituksen alkamista.

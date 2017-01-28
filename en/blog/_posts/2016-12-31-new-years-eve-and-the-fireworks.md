@@ -17,6 +17,8 @@ I started counter conditioning him to the sound of fireworks every time there wa
 
 Miki loves nothing more than to chase or to search for his food. Every time the fireworks started I took a half a cup of kibble, took Miki with me to the windowless hallway and calmly tossed the kibble one by one within the close range for Miki to chase them. I continued doing this during the whole time of the fireworks and stopped doing it when the firing stopped. We repeated this every single time the fireworks went on.
 
+You can also desensitize your dog to the sounds of fireworks by playing the sounds from Youtube. In the couple of first sessions you need to keep the volume as low as possible and you can increase the volume later.
+
 As 31.12.2016 came we took Miki on his walk in the afternoon and I also provided him a lot of mental activation during the day so that he would have been as calm as possible in the evening.
 
 I knew that I couldn't toss him kibble the whole night so I froze him a Kong toy full of liver paté. I know that timing is very important in counter conditioning and I also knew that the general public is allowed to fire rockets starting at 18:00. I gave the Kong toy to Miki at 17:58 - just in time before the fireworks went off.
