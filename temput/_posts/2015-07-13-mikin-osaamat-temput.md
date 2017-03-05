@@ -9,13 +9,13 @@ image:
 
 ### Tässä on lueteltuna Mikin tällä hetkellä osaamat temput ja muut vihjeelliset toiminnot
 
-* istu (istuu ja nousee vasta luvalla)
+* istu (istuu ja nousee vasta luvalla) Tämä on opetettu Mikille kahdesti, sekä sanallisella vihjeellä että käsimerkillä.
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACMq10bmbWT94wRGJQGxUBca/aktivointi/etsinta-useista-laatikoista/DSC29381-245px.jpg)
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAZS41Om0VssIC0L2CTx5uxa/aktivointi/puhelinluetteloviuhka/DSC25474-245px.jpg)
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD9OCFb2cM0EQ6ohIOULAY1a/mikin-kuvat/2/IMG23238-245px.jpg)
 
-* maahan (menee maahan ja nousee vasta luvalla)
+* maahan (menee maahan ja nousee vasta luvalla). Tämä on opetettu Mikille kahdesti, sekä sanallisella vihjeellä että käsimerkillä.
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVbkrETT0lhCM3haowH0M_a/temput/1/DSC34514-245px.jpg)
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADwrfH9aHb5LWz9HDClr3Q-a/temput/2/DSC26604-245px.jpg)
@@ -193,12 +193,14 @@ image:
 ![](https://lh3.googleusercontent.com/q5OgzY-3-i-D7COoPtJb5-7abot6oAQChjUbeIB346o=w245)
 
 * ei sinne (jos menossa esim. kivetyksen yli autotielle > kääntyy takaisin)
-* pyöri (pyörii ympyrää myötäpäivään)
+* pyöri (pyörii ympyrää myötäpäivään, ei sanallista vihjettä, vain käsimerkki)
 
 ![](https://lh3.googleusercontent.com/ZD1PTOR3YylUBeTKmulmd1y4rR9ctzNmoBGyzqcumno=w245)
 ![](https://lh3.googleusercontent.com/jbhwRb_kF6IiTvwrRRLhYYhu6G-B3k_uDvc4rDZ_lQM=w245)
 ![](https://lh3.googleusercontent.com/T4_nHc6dlY-01qB9u6jtXCMzO2iG0PsyfJwaUeP3a0U=w245)
 ![](https://lh3.googleusercontent.com/6ZgZZi9vuj9S4KH_sbCLQtVXULsfqWA8AN0zf6U8tYc=w245)
+
+* kieri (Miki kierähtää selänkautta ympäri, ei sanallista vihjettä, vain käsimerkki)
 
 * kaada (kaataa lattialla olevan esineen tai esineet)
 
@@ -231,7 +233,7 @@ image:
 ![](https://lh3.googleusercontent.com/OSFi3p17bYXODb8RC85Fo8Hbm8vsM4IMjOJ0dFXe2Ow=w245)
 
 * vaaka (menee vaa'an päälle seisomaan)
-* mangusti (nousee istuma-asennosta istumaan pystyasentoon)
+* mangusti (nousee istuma-asennosta istumaan pystyasentoon, ei sanallista vihjettä, vain käsimerkki)
 
 ![](https://lh3.googleusercontent.com/8OjwWKDL2fhVFu8ssZ-hxJIHul93Tyv39qhBrgW_-1g=w245)
 ![](https://lh3.googleusercontent.com/_D9Ecyr906vcBYuNW_WjtcLgGjQrzqO4VLRaEEkHLi4=w245)
@@ -260,6 +262,14 @@ image:
 
 ![](https://lh3.googleusercontent.com/nX9B7fzY4iEZEWPTI1QWIAJj9vP407VE1_MKHfFZRpM=w245)
 ![](https://lh3.googleusercontent.com/xysIQYZqu4ECkxK-YJmO-LWemrz0BXkGJFKNwRT4aD8=w245)
+
+* siivoa (Miki tuo kaikki lattialla lojuvat lelut yksitellen, ei sanallista vihjettä, vain käsimerkki).
+
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACHGJwvQ99r6xW9KElk7kdra/temput/1/DSC41729-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACY3ubMeDsBZKQDgD3vL6nTa/temput/1/DSC41730-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAHOy252upeUWvtIu2Nxlcua/temput/1/DSC41731-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAMV6r7XPachx0yzEYy8wEJa/temput/1/DSC41823-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_naHPy5jVIyH9fEmT5QDqa/temput/1/DSC41849-245px.jpg)
 
 * vapaa
 

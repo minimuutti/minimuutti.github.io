@@ -39,6 +39,7 @@ Uudet ja viimeksi päivitetyt osiot:
 
 * 5.3.2017 Lisätty uusia valokuvia kategoriaan; [Abstraktit ja muut](http://minimuutti.com/valokuvaus/abstraktit-muut/)
 * 5.3.2017 Lisätty uusia valokuvia kategoriaan; [Kevät](http://minimuutti.com/valokuvaus/luontokuvat/kevat/)
+* 5.3.2017 Päivitetty [Mikin osaamat temput](http://minimuutti.com/temput/mikin-osaamat-temput/)
 * 27.1.2017 Lisätty uusi postaus Blogiin; [Koirien kehonkieli - häntä kertoo mielentilan](http://minimuutti.com/blogi/koirien-kehonkieli-hanta-kertoo-mielentilan/)
 * 11.1.2017 Lisätty uusi postaus Blogiin; [Koirien kehonkieli - rauhoittavat signaalit](http://minimuutti.com/blogi/koirien-kehonkieli-rauhoittavat-signaalit/)
 * 7.1.2017 Lisätty uusia valokuvia kategoriaan; [Talvi](http://minimuutti.com/valokuvaus/luontokuvat/talvi/)

@@ -8,7 +8,7 @@ Uusien temppujen opettelu vaatii koiralta aivotyötä ja se on yksi parhaimmista
 
 Jos sinulla sattuu olemaan erityisherkkä ja energinen koira kuten Miki on, niin olet saattanut huomata että koirasi kierrokset nousevat taivaisiin heti, kun haet koulutusnameja tai otan klikkerin käteesi. Itse yritän aina aloittaa Mikin koulutustuokiot kun Miki on rauhallinen ja pyrin myös lopettamaan kouluttamisen ennen kuin sen kierrokset nousevat liikaa.
 
-Olen huomannut, että myös puhuminen nostaa Mikin kierroksia. Vasta viime aikoina olen ymmärtänyt kouluttaa uusia temppuja Mikille pelkällä käsimerkillä sanallisen vihjeen sijaan ja yllättäen Miki oppii uusia temppuja entistä nopeammin koska sen kierrokset eivät nouse yhtä paljon.
+Olen huomannut, että myös puhuminen nostaa Mikin kierroksia. Vasta viime aikoina olen ymmärtänyt kouluttaa uusia temppuja Mikille pelkällä käsimerkillä sanallisen vihjeen sijaan ja yllättäen Miki oppii uusia temppuja entistä nopeammin koska sen kierrokset eivät nouse läheskään yhtä paljon.
 
 Tässä on muutamia hyviä linkkejä, mistä saa ideoita ja vinkkejä temppujen kouluttamiseen:
 
@@ -16,7 +16,7 @@ Tässä on muutamia hyviä linkkejä, mistä saa ideoita ja vinkkejä temppujen 
 * [https://www.youtube.com/user/kikopup/videos](https://www.youtube.com/user/kikopup/videos "Youtube/kikopup")
 * [https://www.youtube.com/user/tab289/videos](https://www.youtube.com/user/tab289/videos "Youtube/tab289")
 
-Miki osaa tällä hetkellä tehdä 70 toimintoa tai temppua vihjeestä ja joitain uusia on myös työn alla.
+Miki osaa tällä hetkellä tehdä yli 70 toimintoa tai temppua vihjeestä ja joitain uusia on myös työn alla.
 
 Olen myös laittanut tänne sellaisia temppuja, joiden opettamista Mikille ei vielä ole aloitettu. Laitoin ne tänne siksi, jotta sinä saisit vinkkejä koirallesi opetettavista tempuista.
 

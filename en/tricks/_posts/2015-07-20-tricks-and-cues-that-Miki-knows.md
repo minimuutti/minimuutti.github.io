@@ -9,13 +9,13 @@ image:
 
 ### Here are the tricks and cues Miki knows for now. First there is the Finnish word for it, followed by the same in English. 
 
-* istu / sit (gets up only with permission)
+* istu / sit (gets up only with permission, I taught this twice to Miki with verbal clue and a hand signal)
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACMq10bmbWT94wRGJQGxUBca/aktivointi/etsinta-useista-laatikoista/DSC29381-245px.jpg)
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAZS41Om0VssIC0L2CTx5uxa/aktivointi/puhelinluetteloviuhka/DSC25474-245px.jpg)
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD9OCFb2cM0EQ6ohIOULAY1a/mikin-kuvat/2/IMG23238-245px.jpg)
 
-* maahan / lay down (gets up only with permission)
+* maahan / lay down (gets up only with permission, I taught this twice to Miki with verbal clue and a hand signal)
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVbkrETT0lhCM3haowH0M_a/temput/1/DSC34514-245px.jpg)
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADwrfH9aHb5LWz9HDClr3Q-a/temput/2/DSC26604-245px.jpg)
@@ -130,7 +130,7 @@ image:
 
 ![](https://lh3.googleusercontent.com/kwM7qRJ6RPFfBiJhzLzmYaV9Orqu2LdFTfmU9RRal7s=w245)
 
-* nuku vaan / continue to sleep
+* nuku vaan / continue sleeping
 
 ![](https://lh3.googleusercontent.com/XwOTvMwWrTfgOTweQNJ7Ie-ItekuRxUVWWAIJDmzYyE=w245)
 
@@ -154,7 +154,7 @@ image:
 
 ![](https://lh3.googleusercontent.com/fiQPWPo0ZDdAWwFiTzpe1HKSSdz-T18qyjISnN_Pt3U=w245)
 
-* ota Kongi / take the Kong
+* ota Kongi / take the Kong (Miki picks up a Kong toy out of the way)
 * matto / rug (rolls a rug open)
 
 ![](https://lh3.googleusercontent.com/tzwMVo8JQPRmlQskzMVPIMw3Hy0PievUQ6ZtaswkPrU=w245)
@@ -193,12 +193,14 @@ image:
 ![](https://lh3.googleusercontent.com/q5OgzY-3-i-D7COoPtJb5-7abot6oAQChjUbeIB346o=w245)
 
 * ei sinne / don’t go there
-* pyöri / spin (spins clockwise)
+* spin (spins clockwise, no verbal clue - only a hand signal)
 
 ![](https://lh3.googleusercontent.com/ZD1PTOR3YylUBeTKmulmd1y4rR9ctzNmoBGyzqcumno=w245)
 ![](https://lh3.googleusercontent.com/jbhwRb_kF6IiTvwrRRLhYYhu6G-B3k_uDvc4rDZ_lQM=w245)
 ![](https://lh3.googleusercontent.com/T4_nHc6dlY-01qB9u6jtXCMzO2iG0PsyfJwaUeP3a0U=w245)
 ![](https://lh3.googleusercontent.com/6ZgZZi9vuj9S4KH_sbCLQtVXULsfqWA8AN0zf6U8tYc=w245)
+
+* roll over (Miki rolls over, no verbal clue - only a hand signal)
 
 * kaada / push over
 
@@ -231,7 +233,7 @@ image:
 ![](https://lh3.googleusercontent.com/OSFi3p17bYXODb8RC85Fo8Hbm8vsM4IMjOJ0dFXe2Ow=w245)
 
 * vaaka / scale (stands on a scale)
-* mangusti / meercat (sits in up position)
+* meercat (sits in up position, no verbal clue - only a hand signal)
 
 ![](https://lh3.googleusercontent.com/8OjwWKDL2fhVFu8ssZ-hxJIHul93Tyv39qhBrgW_-1g=w245)
 ![](https://lh3.googleusercontent.com/_D9Ecyr906vcBYuNW_WjtcLgGjQrzqO4VLRaEEkHLi4=w245)
@@ -260,6 +262,14 @@ image:
 
 ![](https://lh3.googleusercontent.com/nX9B7fzY4iEZEWPTI1QWIAJj9vP407VE1_MKHfFZRpM=w245)
 ![](https://lh3.googleusercontent.com/xysIQYZqu4ECkxK-YJmO-LWemrz0BXkGJFKNwRT4aD8=w245)
+
+* clean up (Miki cleans up all his toys one by one, no verbal clue - only a hand signal)
+
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACHGJwvQ99r6xW9KElk7kdra/temput/1/DSC41729-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACY3ubMeDsBZKQDgD3vL6nTa/temput/1/DSC41730-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAHOy252upeUWvtIu2Nxlcua/temput/1/DSC41731-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAMV6r7XPachx0yzEYy8wEJa/temput/1/DSC41823-245px.jpg)
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_naHPy5jVIyH9fEmT5QDqa/temput/1/DSC41849-245px.jpg)
 
 * vapaa / free
 
