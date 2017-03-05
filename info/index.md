@@ -37,8 +37,9 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 5.3.2017 Lisätty uusia valokuvia kategoriaan; [Abstraktit ja muut](http://minimuutti.com/valokuvaus/abstraktit-muut/)
+* 5.3.2017 Lisätty uusia valokuvia kategoriaan; [Kevät](http://minimuutti.com/valokuvaus/luontokuvat/kevat/)
 * 27.1.2017 Lisätty uusi postaus Blogiin; [Koirien kehonkieli - häntä kertoo mielentilan](http://minimuutti.com/blogi/koirien-kehonkieli-hanta-kertoo-mielentilan/)
-* 15.1.2017 Lisätty uusia valokuvia kategoriaan; [Abstraktit ja muut](http://minimuutti.com/valokuvaus/abstraktit-muut/)
 * 11.1.2017 Lisätty uusi postaus Blogiin; [Koirien kehonkieli - rauhoittavat signaalit](http://minimuutti.com/blogi/koirien-kehonkieli-rauhoittavat-signaalit/)
 * 7.1.2017 Lisätty uusia valokuvia kategoriaan; [Talvi](http://minimuutti.com/valokuvaus/luontokuvat/talvi/)
 * 7.1.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](http://minimuutti.com/valokuvaus/kuvia-mikista/)

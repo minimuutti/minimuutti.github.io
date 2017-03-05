@@ -36,8 +36,9 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2017-03-05 New photos added in category; [Abstract & other](http://minimuutti.com/en/photography/abstract-other/)
+* 2017-03-05 New photos added in category; [Spring](http://minimuutti.com/en/photography/finnish-nature/spring/)
 * 1017-01-27 New post added into the Blog; [Dog body language: tail - a dog's state of mind](http://minimuutti.com/en/blog/dog-body-language-tail-dogs-state-of-mind/)
-* 2017-01-15 New photos added in category; [Abstract & other](http://minimuutti.com/en/photography/abstract-other/)
 * 2017-01-11 New post added into the Blog; [Dog body language - calming signals](http://minimuutti.com/en/blog/dog-body-language-calming-signals/)
 * 2017-01-07 New photos added in category; [Winter](http://minimuutti.com/en/photography/finnish-nature/winter/)
 * 2017-01-07 New photos added in category; [Pictures of Miki](http://minimuutti.com/en/photography/pictures-of-miki/)
