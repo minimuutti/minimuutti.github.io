@@ -37,6 +37,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 15.3.2017 Lisätty uusi postaus Blogiin; [Koirani ei motivoidu ruokapalkasta](http://minimuutti.com/blogi/koirani-ei-motivoidu-ruokapalkasta/)
 * 6.3.2017 Lisätty uusia valokuvia kategoriaan; [Abstraktit ja muut](http://minimuutti.com/valokuvaus/abstraktit-muut/)
 * 5.3.2017 Lisätty uusia valokuvia kategoriaan; [Kevät](http://minimuutti.com/valokuvaus/luontokuvat/kevat/)
 * 5.3.2017 Päivitetty [Mikin osaamat temput](http://minimuutti.com/temput/mikin-osaamat-temput/)
