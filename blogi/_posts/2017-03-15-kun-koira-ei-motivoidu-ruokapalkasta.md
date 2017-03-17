@@ -1,5 +1,5 @@
 ---
-title: "Koirani ei motivoidu ruokapalkasta"
+title: "Kun koira ei motivoidu ruokapalkasta"
 layout: article
 image:
   feature:
