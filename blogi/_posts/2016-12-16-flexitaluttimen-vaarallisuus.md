@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Flexitaluttimet ovat oikeasti vaarallisia ja valitettavasti olen joutunut todistamaan koiranomistajan pahimman painajaisen, joka johtui Flexitaluttimen käyttämisestä.
+Flexitaluttimet ovat oikeasti vaarallisia ja valitettavasti olen joutunut todistamaan koiranomistajan pahimman painajaisen, joka johtui Flexitaluttimen käytöstä.
 
 Ohitimme lenkilämme koiran, joka oli autotien toisella puolella. Toinen koira sai raivarit, kun Mikin kanssa ohitimme heidät. Koira alkoi hyökkäillä ja vetää hihnassa meitä kohti omistajan pidellessä kiinni flexistä kaikin voimin.
 
