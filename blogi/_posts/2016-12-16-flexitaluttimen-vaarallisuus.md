@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Ohitimme juuri lenkilämme koiran, joka oli autotien toisella puolella. Toinen koira sai raivarit, kun Mikin kanssa ohitimme heidät ja omistaja piteli flexistä kaikin voimin kiinni.
+Flexitaluttimet ovat oikeasti vaarallisia ja valitettavasti olen joutunut todistamaan koiranomistajan pahimman painajaisen, joka johtui Flexitaluttimen käyttämisestä.
+
+Ohitimme lenkilämme koiran, joka oli autotien toisella puolella. Toinen koira sai raivarit, kun Mikin kanssa ohitimme heidät. Koira alkoi hyökkäillä ja vetää hihnassa meitä kohti omistajan pidellessä kiinni flexistä kaikin voimin.
 
 Sitten tapahtui se kaikista pahin mitä voi tapahtua...
 
