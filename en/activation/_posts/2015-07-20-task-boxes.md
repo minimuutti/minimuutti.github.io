@@ -1,5 +1,5 @@
 ---
-title: "Taskboxes"
+title: "Task boxes"
 layout: article
 image:
   feature:
@@ -7,13 +7,13 @@ image:
   thumb:
 ---
 
-Taskboxes are great for dogs that like to dig or search for their food. Also you don't need any specific packages on items for these games but you can use almost anything that is available. You can see some examples listed below.
+Task boxes are great for dogs that like to dig or search for their food. Also you don't need any specific packages on items for these games but you can use almost anything that is available. You can see some examples listed below.
 
-You can adjust these games to fit your dog's level and it's important to start with something easy. Taskboxes with bottles and paper balls are easier. Taskboxes with multiple kibble dispenser toys, cans with lids and taped packages are for advanced dogs only.
+You can adjust these games to fit your dog's level and it's important to start with something easy. Task boxes with bottles and paper balls are easier. Task boxes with multiple kibble dispenser toys, cans with lids and taped packages are for advanced dogs only.
 
 Depending of the content in the box it takes Miki 10-50 minutes to find all his food.
 
-### 1. Taskbox with paper balls
+### 1. Task box with paper balls
 
 You need a good size cardboard box and a magazine or two that and some kibble. You need to take the staples out of the magazines, so that your dog doesn’t accidentally eat them.
 
@@ -35,9 +35,9 @@ At first time you may wanna use thicker piece of paper, like the covers of the m
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACMo0LXX0P5wSJjmj0frQc3a/aktivointi/tehtavalaatikko-paperipalloilla/DS06228-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACjK9RNDc4DTIgUWxRMMJW7a/aktivointi/tehtavalaatikko-paperipalloilla/DS06228.jpg)
 
-### 2. Taskbox with bottles
+### 2. Task box with bottles
 
-This time I assembled a taskbox with various bottles and dog treat tubes. I used kibble and some dry treats for this game because moist and sticky treats would have been too hard to get out.
+This time I assembled a task box with various bottles and dog treat tubes. I used kibble and some dry treats for this game because moist and sticky treats would have been too hard to get out.
 
 I put 2 water bottles, 3 kitchen soap bottles, 12 yoghurt bottles and 5 dog treat tubes in the box. You can use any plastic bottles, like water bottles, soda bottles, yoghurt bottles, kitchen soap bottles, ketchup bottles or juice bottles for this game. All bottles should be thoroughly cleaned before they are given to a dog to play. You shouldn't give any bottles to your dog that have had any toxic substances or chemicals in them.
 
@@ -63,7 +63,7 @@ It took Miki about 30 minutes to get all the kibble and treats out of which the 
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA1uxuEdXw89P7nSpkyeDzka/aktivointi/tehtavalaatikko-pulloilla/DSC52918-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJeY8wtH90tmbeAD_0hjafa/aktivointi/tehtavalaatikko-pulloilla/DSC52918.jpg)
 
-### 3. Taskbox, hardened version - only for advanced dogs
+### 3. Task box, hardened version - only for advanced dogs
 
 You need one big cardboard box with a lid, three or four small carton packages, like a cereal box, a porridge package and a cardboard egg carton, magazine (staples taken out), some masking tape, kibble and a few treats.
 
@@ -71,7 +71,7 @@ I start by making 40 to 50 paper balls, one or two kibble or a treat in each. Th
 
 You can put other small tasks in the big box as well, like [DVD case](http://minimuutti.com/en/activation/dvd-case/), a treat dispenser toy, [magazine roll](http://minimuutti.com/en/activation/magazine-roll/), [textile ball](http://minimuutti.com/en/activation/textile-ball/) or even these [lava lamps](http://minimuutti.com/en/activation/lava-lamps/).
 
-This taskbox is harder because of the lid in the big box. Your dog has to open the lid each time he wants to get something out from it. When sometimes the big box’s lid remains open, I simply close it so Miki needs to open it again.
+This task box is harder because of the lid in the big box. Your dog has to open the lid each time he wants to get something out from it. When sometimes the big box’s lid remains open, I simply close it so Miki needs to open it again.
 
 ---
 
@@ -97,11 +97,11 @@ Picture about the box trick
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD6_UmU-uFOpm-wMCJ7QsDUa/temput/1/DSC27270_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAna8L0dyOdmh264m6hFBw3a/temput/1/DSC27270_2.jpg)
 
-### 4. Hardest taskbox ever - only for dogs that are experienced and well motivated to search for their food 
+### 4. Hardest task box ever - only for dogs that are experienced and well motivated to search for their food 
 
 Miki seemed to have way too much energy when we were on our daily walk, so I had to make him a good mental challenge to drain that excess energy.
 
-I made this - the hardest taskbox ever, which included:
+I made this - the hardest task box ever, which included:
 
 - 6 plastic cups, 6 paper cups, 4 tennis balls and 2 Classic Kong toys, combined to six [double cones](http://minimuutti.com/en/activation/cones/)
 - 2 [cups with lids](http://minimuutti.com/en/activation/cans-with-lids/)
