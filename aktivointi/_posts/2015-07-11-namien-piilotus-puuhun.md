@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Piilotan Mikilleusein nameja puunrungon koloihin. Esimerkiksi lehmuksen tai hopeapajun rungossa on sopivia koloja joihin nameja voi laittaa.
+Piilotan Mikille usein nameja puunrungon koloihin. Esimerkiksi lehmuksen tai hopeapajun rungossa on sopivia koloja joihin nameja voi laittaa.
 
 Puuhun kiipeäminen on myös hyvä tapa aktivoida koiraa, mikäli lenkkipolun varrelta sattuu löytymään sopivia puita. Näissä myös piilotan namit puun runkoon, mutta Mikin on ensin kiivettävä puuhun saadakseen namit.
 
