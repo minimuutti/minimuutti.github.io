@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Tämä tehtävä on siitä kiva, että sen vaikeustaso on helppo mukauttaa oman koiran osaamiseen.
+Tämä tehtävä on siitä kiva, sen vaikeustasoa on helppo mukauttaa oman koiran osaamiseen.
 
 Tein nämä tehtävät joulukalenterista saatuun lokerikkoon. Mikäli sinulla ei satu olemaan tällaista lokerikkoa, niin voit käyttää tässä yhtä hyvin puhdistettua työkalulaatikon, viehelaatikon tai vaikka korulaatikon lokerikkoa.
 

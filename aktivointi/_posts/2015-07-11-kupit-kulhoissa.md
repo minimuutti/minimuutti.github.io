@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Tätä leikkiä voi muunnella melkein loputtomasti. Tarvitset tähän vähintään kaksia erikokoisia kuppeja, mukeja, purkkeja tai kulhoja jotka mahtuvat sisäkkäin. Mitä tiiviimmin kupit menevät sisäkkäin, sitä vaikeampi tehtävästä tulee. Käytin näissä tehtävissä nappuloita, mutta tähän voi ihan hyvin käyttää mitä tahansa pieniä nameja.
+Tätä leikkiä voi muunnella melkein loputtomasti. Tarvitset tähän vähintään kaksia erikokoisia kuppeja, mukeja, purkkeja tai kulhoja jotka mahtuvat sisäkkäin.
+
+Mitä tiiviimmin kupit menevät sisäkkäin, sitä vaikeampi tehtävästä tulee. Käytin näissä tehtävissä nappuloita, mutta tähän voi ihan hyvin käyttää mitä tahansa pieniä nameja.
 
 Alla on kuvattu monia erilaisia tapoja laittaa kuppeja, kulhoja ja purkkeja sisäkkäin. Olen käyttänyt tehtävissä Ikean Kalas mukeja ja kulhoja, kertakäyttömukeja sekä matalia jogurttipurkkeja.
 

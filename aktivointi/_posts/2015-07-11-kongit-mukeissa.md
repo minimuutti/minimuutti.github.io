@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Jos aktivointilelut ovat liian helppoja, niin niihin pystyy usein kehittelemään vaikeutuksia yhdistelemällä niitä muiden esineiden kanssa.
+
 Ensin laitoin mukiin vajaan kourallisen nappuloita. Tämän jälkeen laitoin saman verran nappuloita pinkin Kong Genius Leon sisään ja sitten tungin Kongin tiukasti mukin sisään.
 
 Mikiltä kesti noin 4 minuuttia saada kaikki nappulat syötyä.

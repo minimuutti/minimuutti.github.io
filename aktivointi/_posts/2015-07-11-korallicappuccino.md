@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Valitsin Nescafe purkin tähän tehtävään sen keskellä olevan kavennuksen vuoksi.
+Valitsin Nescafe purkin tähän tehtävään sen keskellä olevan kavennuksen vuoksi. Purkki on täytetty virkatuilla koralleilla.
 
 Käyttämäni korallit olivat myös hieman pienempiä, noin 5-6 cm läpimitaltaan. Korallien teko-ohjeen löydät [täältä](http://minimuutti.com/aktivointi/korallit/).
 

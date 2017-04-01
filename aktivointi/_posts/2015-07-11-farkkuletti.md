@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACCbwVhSL25ggboCWiz_6G0a/aktivointi/farkkuletti/DS02297-245px.jpg
   thumb:
 ---
-Näihin tehtäviin tarvitset roskiin menevät farkut tai muuta kestävää kangasta, fleeceä kannattaa myös kokeilla.
+Näihin tehtäviin tarvitset roskiin menevät farkut tai muuta kestävää kangasta kuten fleeceä.
 
 #### Farkkuletti
 

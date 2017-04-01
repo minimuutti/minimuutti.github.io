@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Tein tällaisia laavalampun näköisiä tötteröitä käyttämällä Ikean Kalas muovimukeja sekä kertakäyttömukeja. Laitoin jokaiseen kertakäyttömukiin muutaman nappulan ja sitten työnsin tuon muovimukin siihen päälle kanneksi.
+Tein tällaisia laavalampun näköisiä tötteröitä käyttämällä Ikean Kalas muovimukeja sekä kertakäyttömukeja.
+
+Laitoin jokaiseen kertakäyttömukiin muutaman nappulan ja sitten työnsin tuon muovimukin siihen päälle kanneksi.
 
 Mikiltä kesti noin kolme minuuttia saada kaikki namit ulos näistä kuudesta laavalampusta.
 

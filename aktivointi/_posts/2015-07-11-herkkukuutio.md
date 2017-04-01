@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Tämä herkkukuutio päihittää kaupasta ostetut kalliit aktivointilelut mennen tullen.
+
 Tähän tarvitset 8 x 8cm kokoisen vahvan pahvirasian, maalarinteippiä, tennispallon ja jotain kuivia nameja. Rasian voi tehdä myös itse 24 x 32cm kokoisesta pahvinpalasta. Piirsin viivottimella 8 cm levyisiä ruutuja ja sitten askasteluveitsellä leikkasin kuution irti (alimmainen kuva). Sama onnistunee yhtä hyvin myös saksilla. Yhdelle sivulle leikkasin vielä askarteluveitsellä pienen reiän, josta namien on tarkoitus tulla ulos.
 
 Tämän jälkeen taittelin ja teippasin sivut kiinni, lukuunottamatta yhtä sivua. Tässä vaiheessa laitoin kuution sisälle tennispallon ja teippasin sitten myös viimeisen sivun kiinni.

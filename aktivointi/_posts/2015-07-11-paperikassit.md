@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Paperikassit voi hyvin antaa koiran tuhottavaksi, kunhan niissä ei ole mitään metallisia yksityiskohtia.
+Paperikassit voi hyvin antaa koiran tuhottavaksi, kunhan niissä ei ole mitään metallisia osia.
 
 Annoin Mikille kaksi tällaista samanlaista pientä paperikassia. Laitoin kassien sisälle sekä nappuloita, että muutaman pienen kanafileen palasen. Jos haluat tehdä tehtävästä hieman vaikeamman, voit sulkea pussin maalarinteipillä.
 

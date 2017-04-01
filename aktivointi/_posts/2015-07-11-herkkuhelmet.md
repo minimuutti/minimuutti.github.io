@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Herkkuhelmissä nameja on pujotettu naruun, joka on solmittu puunoksaan kiinni.
+
 Pujotin kaksinkertaisen villalangan neulalla herkkujen läpi helminauhaksi. Tähän kannattaa käyttää jotain sitkeitä herkkuja, jotta ne eivät suoraan putoile pois tuosta langasta. Itse käytin 
 Racinel Pihvitikkupaloja, ankkafileen paloja sekä kanafileen paloja. Jokainen lanka oli noin kaksi metriä pitkä eli kaksin kerroin taitettuna noin metrin pituinen.
 

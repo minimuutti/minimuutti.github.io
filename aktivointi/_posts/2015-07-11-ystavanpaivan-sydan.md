@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Miki sai ystävänpäivälahjaksi kaksi tällaista ystävänpäivän sydäntä.
+Miki sai ystävänpäivälahjaksi kaksi tällaista herkkuja sisältävää ystävänpäivän sydäntä.
 
 Tehtävää varten tarvitset pahvia, jokaista sydäntä varten 2 nippusidettä sekä jotain ohuita ja tahmeita herkkuja.
 

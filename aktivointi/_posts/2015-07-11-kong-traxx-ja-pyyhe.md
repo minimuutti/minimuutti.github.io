@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Kuinka monta kivaa tehtävää saakaan tehtyä rengaslelulla ja pyyhkeellä. Näihin tehtäviin voit Kong Traxx lelun sijasta käyttää muitakin koirien rengasleluja. Tehtäviin tarvitset renkaan lisäksi yhden tai kaksi pientä pyyhettä sekä jotain nameja. 
+Kuinka monta kivaa tehtävää saakaan tehtyä rengaslelulla ja pyyhkeellä.
+
+Näihin tehtäviin voit Kong Traxx lelun sijasta käyttää muitakin koirien rengasleluja. Tehtäviin tarvitset renkaan lisäksi yhden tai kaksi pientä pyyhettä sekä jotain nameja. 
 
 Jokaisessa tehtävässä olen ensin avannut pyyhkeen, laittanut pyyhkeen pitkälle sivulle muutamia pieniä nameja tai ankkafileen siivun ja rullannut pyyhkeen pitkittäin pitkäksi pötköksi. Tässä on joitain erilaisia tapoja yhdistää pyyhe renkaaseen:
 

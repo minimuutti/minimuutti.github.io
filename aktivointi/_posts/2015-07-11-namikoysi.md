@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Vanhoja ja kulahtaneita köysileluja ei kannata heittää roskiin vaan niitä voi käyttää herkkujen piilottamiseen. Tässä kannattaa käyttää jotain kovia ja kapeita nameja, jotka on helppo työntää tuonne köyden koloihin. Itse käytin kuivatuista [kanafileestä](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/puruliuskat/rocco/171756)) leikattuja suikaleita.
+Vanhoja ja kulahtaneita köysileluja ei kannata heittää roskiin vaan niitä voi käyttää herkkujen piilottamiseen.
+
+Tässä kannattaa käyttää jotain kovia ja kapeita nameja, jotka on helppo työntää tuonne köyden koloihin. Itse käytin kuivatuista [kanafileestä](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/puruliuskat/rocco/171756)) leikattuja suikaleita.
 
 Mikiltä kesti yli 20 minuuttia saada kaikki herkut ulos tuosta pitkulan mallisesta köydestä. Ympyrän mallisesta köydestä herkut hävisivät noin kolmessa minuutissa.
 

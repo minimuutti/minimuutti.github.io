@@ -7,9 +7,11 @@ image:
   thumb:
 ---
 
-Tähän tarvitset vain kaksi koria tai laatikkoa, jotka mahtuvat sisäkkäin sekä nappuloita tai mitä tahansa muita nameja. Itse käytin muovista säilytyskoria ja pahvilaatikkoa sekä nappuloita.
+Tähän tarvitset vain kaksi koria tai laatikkoa, jotka mahtuvat sisäkkäin.
 
-Nappulat laitetaan isomman laatikon pohjalle ja siihen laitetaan tämä pienempi laatikko tai kori päälle alassuin. Mikiltä kesti alle minuutti saada nappulat ulos laatikosta.
+Lisäksi tarvitset nappuloita tai mitä tahansa muita nameja. Itse käytin muovista säilytyskoria ja pahvilaatikkoa sekä nappuloita. Nappulat laitetaan isomman laatikon pohjalle ja siihen laitetaan tämä pienempi laatikko tai kori päälle alassuin.
+
+Mikiltä kesti alle minuutti saada nappulat ulos laatikosta.
 
 Tätä tehtävää voi vaikeuttaa laittamalla nappulat vaikka rutatun pyyhkeen sisälle, ennen kuin sen laittaa tuonne laatikkoon. Laatikkoon voi halutessaan piilottaa myös jonkin pienen tehtävän, esimerkiksi namia sisältävän kartonkipakkauksen, namia sisältäviä paperipalloja tai vaikka Kongin, kunhan se mahtuu tuon pienemmän laatikon alle.
 

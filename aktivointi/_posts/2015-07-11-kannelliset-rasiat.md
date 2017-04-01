@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Tämä tehtävä vaatii koiralta aika paljon, joten nämä sopivat parhaiten koirille, joilla on jo kokemusta erilaisista tehtävistä.
+
 Helsingin sanomissa oli artikkeli koirilla ja susilla Amerikassa tehdystä testistä. Testissä oli 10 sutta ja 20 koiraa. Puolet koirista oli koiratarhoista ja puolet oli lemmikkikoiria.
 
 Jokaiselle eläimelle annettiin sama tehtävä ja saman verran aikaa (2 minuuttia) tehtävän ratkaisemiseen. Tehtävänä oli avata kannellinen rasia, jonka sisällä oli herkkupala. Yritin etsiä tutkimuksesta lisätietoa selvittääkseni millainen tämä testissä käytetty rasia oli, tuloksetta.

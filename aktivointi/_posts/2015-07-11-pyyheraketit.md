@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Pyyheraketit tehdään pikkupyyhkeistä ja piparkakkumuoteista.
+
 Jokaista pyyherakettia varten tarvitset pyyheliinan sekä piparkakkumuotin. Piparkakkumuotin puuttuessa voit käyttää muutakin rinkulaa, esimerkiksi rannerengasta, isoa hiusdonitsia tai tyhjästä talouspaperirullasta leikattua rinkulaa. Itse käytin [Ikean Drömmar](http://minimuutti.com/aktivointi/ikean-drommar-muotit/) -setistä peräisin olevia muovisia muotteja.
 
 Laitoin ensin pyyhkeen keskelle yhden namin ja sitten vedin pyyhkeen tuo namikohta edellä muotista läpi. Pienemmille pyyhkeille valitsin pienet muotit ja tuolle isommalle pyyhkeelle hieman isomman muotin.

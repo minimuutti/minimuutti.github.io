@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Tähän kannattaa valita käytöstä poistettu pyyheliina sekä kuivia nameja.
+Pyyheliinoilla saa tehtyä todella paljon erilaisia tehtäviä.
+
+Näihin tehtäviin kannattaa valita käytöstä poistettuja pyyhkeitä (esim. siivouspyyhkeitä) sekä kuivia nameja.
 
 #### Tehtävä 1:
 

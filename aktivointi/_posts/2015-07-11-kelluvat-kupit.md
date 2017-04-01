@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Laitoin vadin täyteen vettä ja laitoin siihen kellumaan 5 jogurttipurkkia. Näihin jogurttipurkkeihin laitoin jokaiseen muutaman nappulan. Tässä voit käyttää mitä tahansa kulhoa tai vaikka lasten uima-allasta, mutta tätä leikkiä ei kannata leikkiä muualla kuin kylpyhuoneessa tai pihalla.
+Laitoin vadin täyteen vettä ja laitoin siihen kellumaan 5 jogurttipurkkia. Näihin jogurttipurkkeihin laitoin jokaiseen muutaman nappulan.
+
+Tässä voit käyttää mitä tahansa kulhoa tai vaikka lasten uima-allasta, mutta tätä leikkiä ei kannata leikkiä muualla kuin kylpyhuoneessa tai pihalla.
 
 Tehtävä oli Mikille yllättävän vaikea, tai oikeastaan jännittävä. Kelluvat kupit olivat sen verran jännittäviä, että Miki päätti pelastaa ne vedestä pois :D No, vaatihan sekin aivotyöskentelyä.
 

@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Koirat rakastavat etsimistä, koska siinä ne pääsevät käyttämään nenäänsä. Laatikoista etsiminen on Mikin mielestä superkivaa.
+
 Lattialle asetetaan 10–15 erikokoista avonaista laatikkoa (tai toki voi käyttää myös kulhoja tai kuppeja), sellaisia joista ei näy läpi. Miki istuu huoneen reunalla odottamassa, kun laitan vain yhden namin johonkin näistä laatikoista, jonka jälkeen kehotan Mikiä etsimään.
 
 Mutta eikö Miki näe mihin laatikkoon sen pudotan? Ei. Otan namin taskusta ja pidän sitä piilossa kämmeneni sisällä. Sitten käyn mukamas pudottamassa namin jokaiseen laatikkoon. Kolautan jokaisen laatikon pohjaa samalla kun mukamas pudotan sen namin, niin Miki ei voi äänestäkään päätellä mihin laatikkoon nami on oikeasti pudonnut. Ja tosiaan pudotan sen satunnaisesti yhteen näistä monista laatikoista, joka kerran laatikkoa vaihtaen.

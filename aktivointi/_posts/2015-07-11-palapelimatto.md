@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Lasten leluosastolta löydetystä palapelimatosta on tehty Mikille monia hauskoja tehtäviä. Pienille lapsille tarkoitetut lelut ovat usein melko turvallisia myös koirille, koska ne on testattu myrkyllisten kemikaalien varalta, sekä niistä harvoin irtoilee mitään pieniä osia, jotka koira saattaisi vahingossa niellä.
+Lasten leluosastolta löydetystä palapelimatosta on tehty Mikille monia hauskoja tehtäviä.
+
+Pienille lapsille tarkoitetut lelut ovat usein melko turvallisia myös koirille, koska ne on testattu myrkyllisten kemikaalien varalta, sekä niistä harvoin irtoilee mitään pieniä osia, jotka koira saattaisi vahingossa niellä.
  
 ### Tehtävä 1
 

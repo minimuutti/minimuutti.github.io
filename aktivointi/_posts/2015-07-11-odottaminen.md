@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Odottaminen voi olla toisille koirille vaikeaa.
+Odottaminen voi olla toisille koirille vaikeaa, kuten se on välillä myös Mikille.
 
 Tällä hetkellä Miki malttaa odottaa, kun asettelen nameja sen eteen tai tassujen päälle ja namit saa syödä vasta luvalla.
 

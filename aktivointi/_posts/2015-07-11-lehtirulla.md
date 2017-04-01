@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Tähän lehtirullaan tarvitset vain aikakaus- tai mainoslehden, maalarinteippiä sekä jotain ohuita ja tahmeita nameja, jotta ne eivät putoile ulos. Puolikosteat [kanafileen](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/puruliuskat/rocco/171756)) tai ankkafileen siivut ovat tähän erinomainen valinta. Juuston tai kinkkuleikkeleen siivut olisivat varmasti sopineet yhtä hyvin. Ja kannattaa valita sellainen lehti, jossa ei ole niittejä vaan sivut on liimattu.
+Tähän lehtirullaan tarvitset vain aikakaus- tai mainoslehden, maalarinteippiä sekä jotain ohuita ja tahmeita nameja, jotta ne eivät putoile ulos.
+
+Puolikosteat [kanafileen](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/puruliuskat/rocco/171756)) tai ankkafileen siivut ovat tähän erinomainen valinta. Juuston tai kinkkuleikkeleen siivut olisivat varmasti sopineet yhtä hyvin. Ja kannattaa valita sellainen lehti, jossa ei ole niittejä vaan sivut on liimattu.
 
 Leikkasin muutaman fileen pieniksi suikaleiksi ja asettelin ne sivujen väleihin suht lähelle lehden keskiosaa. Sitten vaan rullasin lehden ja kiinnitin sen molemmista päistä maalarinteipillä.
 

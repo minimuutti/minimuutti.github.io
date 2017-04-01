@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Tätä varten tarvitset jonkun putkilon, pienen pyyhkeen tai sanomalehteä sekä mitä tahansa nameja. Itse käytin 30 x 8 cm kokoista pahvista putkiloa, mutta tähän käy yhtä hyvin vaikka pätkä muovista sadevesiputkea tai viemäriputkea. Näitä muoviputkien hukkapaloja kannattaa tiedustella rautakaupoista. Pahvisia putkiloita voi käydä tiedustelemassa pohjapiirustuksia kopioivista liikkeistä, kuten minä tein. Tyhjiä paperiputkiloita lentää heillä päivittäin roskiin ja sain sieltä putkilot ilmaiseksi :)
+Tätä varten tarvitset jonkun putkilon, pienen pyyhkeen tai sanomalehteä sekä mitä tahansa nameja.
+
+Itse käytin 30 x 8 cm kokoista pahvista putkiloa, mutta tähän käy yhtä hyvin vaikka pätkä muovista sadevesiputkea tai viemäriputkea. Näitä muoviputkien hukkapaloja kannattaa tiedustella rautakaupoista. Pahvisia putkiloita voi käydä tiedustelemassa pohjapiirustuksia kopioivista liikkeistä, kuten minä tein. Tyhjiä paperiputkiloita lentää heillä päivittäin roskiin ja sain sieltä putkilot ilmaiseksi :)
 
 Tälläisten putkiloiden puuttuessa voi yhtä hyvin kokeilla Pringles tuubia.
 

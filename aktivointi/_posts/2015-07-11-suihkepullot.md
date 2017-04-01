@@ -6,6 +6,8 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACPKCSkJHdKk8C1-n23z5gAa/aktivointi/suihkepullot/DS00081-245px.jpg
   thumb:
 ---
+Suihkepullot ovat ajastaan jälkeen jääneitä koiran koulutuksessa, mutta aktivointileluiksi ne sopivat täydellisesti.
+
 Tässä tehtävässä voi käyttää kaikkia sellaisia suihkepulloja, missä on ollut vain vettä tai ne ovat kokonaan käyttämättömiä. Pesuainekäytössä olleita pulloja ei tule koiralle antaa edes pestynä.
 
 Laitoin pyöreisiin pulloihin nappuloita, mutta tässä voi yhtä hyvin käyttää muitakin kuivia nameja mitkä mahtuvat pullon suuaukosta sisään.

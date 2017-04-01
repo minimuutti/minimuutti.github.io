@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Pullot ovat hyviä aktivointileluja, koska niitä on aina saatavilla.
+
 Ensimmäisellä kerralla laitoin limupulloon muutaman nakin pätkän. Miki innostui kuitenkin puremaan pullon suuaukon lyttyyn ja päätti sitten tehdä reiän kylkeen, jotta sai namit ulos. Ehkä olisi kannattanut aloittaa nappuloilla niin ne olisivat tulleet helpommin ulos.
 
 Kokeiltiin sitten myöhemmin nappuloilla ja pullo oli tyhjennetty noin 30 sekunnissa. Huomasin netissä jonkun suosittelevan kokeilemaan tätä myös suljetulla pullolla, jossa koira joutuisi ensin opettelemaan tuon korkin avaamista, mutta tiedän että Mikillä ei kärsivällisyys kuitenkaan riittäisi korkin avaamiseen, eli tätä ei olla testattu. Vaarana on myös että koira tulee syöneeksi tuon korkin tai palan siitä.

@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Tyhjistä joulukalentereista saa kivaa tekemistä koiralle.
+Tyhjistä joulukalentereista saa monenlaista kivaa tekemistä koiralle.
 
 Suklaa on koirille myrkyllistä, joten ennenkuin kalenterin antaa koiralle, se tulee avata ja katsoa ettei sisällä ole mitään jäämiä suklaasta ja mahdolliset jäämät tulee ensin pestä pois.
 

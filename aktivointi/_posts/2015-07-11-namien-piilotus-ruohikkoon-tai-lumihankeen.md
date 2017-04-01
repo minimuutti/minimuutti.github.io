@@ -7,9 +7,9 @@ image:
   thumb:
 ---
 
-Namien etsiminen ulkona kannattaa myös aloittaa ensin helpoilla tehtävillä, koska ulkona on paljon muitakin hajuja ja houkutuksia. Nameja voi alkuun heittää vaikka vaan jalkakäytävälle, hiekkatielle ja sen jälkeen lyhyeen nurmikkoon.
+Namien etsiminen ulkona kannattaa myös aloittaa ensin helpoilla tehtävillä, koska ulkona on paljon muitakin hajuja ja houkutuksia.
 
-Myöhemmin nameja voi sitten heittää villiintyneeseen heinikkoon, lumihankeen tai vaikka piilottaa sammaleen alle.
+Nameja voi alkuun heittää vaikka vaan jalkakäytävälle, hiekkatielle ja sen jälkeen lyhyeen nurmikkoon. Myöhemmin nameja voi sitten heittää villiintyneeseen heinikkoon, lumihankeen tai vaikka piilottaa sammaleen alle.
 
 Etsiminen hämärässä tai pimeässä on tietenkin koiralle vaikeampaa, koska koira joutuu luottamaan enemmän  pelkkään hajuaistiinsa.
 

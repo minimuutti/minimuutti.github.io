@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Tämän tehtävän valmistelu vaatii hieman aikaa, mutta Mikin mielestä tehtävä oli superkiva, joten suosittelen lämpimästi kokeilemaan tätä oman koirasi kanssa. Mikistä huomasi kuinka sen lamppu syttyi tässä tehtävässä ja kuinka ylpeä se oli itsestään keksittyään mitä tässä pitää tehdä :)
+Tämän tehtävän valmistelu vaatii hieman aikaa, mutta Mikin mielestä tehtävä oli superkiva, joten suosittelen lämpimästi kokeilemaan tätä oman koirasi kanssa.
+
+Mikistä huomasi kuinka sen lamppu syttyi tässä tehtävässä ja kuinka ylpeä se oli itsestään keksittyään mitä tässä pitää tehdä :)
 
 Tehtävän idea on se, että putkilon keskelle on tehty viilto, johon on työnnetty pala pahvia. Namit pudotetaan tuolta yläpuolelta tämän pahvin palasen päälle ja koiran tulee keksiä vetää tuo pahvi ulos, jotta namit sitten putoilevat lattialle.
 

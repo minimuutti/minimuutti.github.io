@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Olen pitkään halunnut tehdä tällaisen estelaatikon Mikille, onneksi viikonloppuna oli aikaa askarrella. Tämä on ainoa kerta kun sanon, että älä kokeile tätä kotona. Tai kokeile, jos sinulla on viisi tuntia ylimääräistä aikaa eikä ole mitään parempaakaan tekemistä. Melko todennäköisesti laatikko ei kovin montaa sessiota kestä :D
+Olen pitkään halunnut tehdä tällaisen estelaatikon Mikille, onneksi viikonloppuna oli aikaa askarrella.
+
+Tämä on ainoa kerta kun sanon, että älä kokeile tätä kotona. Tai kokeile, jos sinulla on viisi tuntia ylimääräistä aikaa eikä ole mitään parempaakaan tekemistä. Melko todennäköisesti laatikko ei kovin montaa sessiota kestä :D
 
 En ala tässä tarkemmin selittämään miten tämä laatikko on kasattu. Mikäli haluat tälläisen koirallesi askarrella, niin noista kuvista varmaan saat ideoita omaan laatikkoosi. Tuo laatikko kannattaa olla suht matala, jotta koira yltää syömään kaikki sinne piilotetut herkut. Ja ennen kun aloitat tämän estelaatikon rakentamisen, niin teippiä kannattaa varata tarpeeksi :D
 

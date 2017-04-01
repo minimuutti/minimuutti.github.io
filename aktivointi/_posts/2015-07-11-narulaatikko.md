@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Narulaatikko on yksi muunnelma syömistä hidastavasta ruokakupista.
+
 Tätä varten tarvitset pahvilaatikon ja maalarinteippiä tai muovisen säilytyskorin missä on reikiä kyljissä, villalankaa, sakset, neulan, sekä mitä tahansa nameja.
 
 Valitsin tähän pahvisen kenkälaatikon josta leikkasin kannen pois ja laitoin laatikon ympärille kierroksen maalarinteippiä vahvikkeeksi. Sitten tein saksenkärjillä reikiä laatikon kummallekin kyljelle vähän eri korkeuksille. Tämän jälkeen pujottelin villalankaa useamman kierroksen noista tekemistäni reijistä, aloittaen kulmasta. Lankaa kului noin viisi metriä. Päätin pujottelemisen samaan kulmaan mistä olin aloittanut ja solmin langan alku- ja loppupään yhteen.

@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Reikäinen pahvilaatikko on kuin valtavan kokoinen syömistä hidastava ruokakuppi.
+
 Tarvitset tähän kannellisen pahvilaatikon, teippiä ja mitä tahansa nameja tai nappuloita. Tähän kannattaa valita matala laatikko, 10 cm korkea oli Mikille juuri sopiva. Reiät kannattaa tehdä sen kokoisiksi, että koiran kuono yltää pohjaan asti, kun se laittaa kuonon noihin reikiin. 
 
 Piirsin tämän laatikon pohjaan 5 ympyrää käyttäen apuna tyhjää namiämpäriä. Sitten leikkasin pohjaan reiät askarteluveitsellä, mutta se onnistuu varmasti myös saksilla. Tämän jälkeen teippasin laatikon kannen sekä raunat kiinni ja ripottelin laatikkoon nappuloita.

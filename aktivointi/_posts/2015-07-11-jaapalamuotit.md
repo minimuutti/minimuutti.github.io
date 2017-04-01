@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Jääpalamuoteista voi tarjoilla nappuloita tai muita pieniä nameja monella tavalla. Käytin tässä kumisia jääpalamuotteja, mutta tavalliset muoviset jääpalamuotit käyvät varmasti yhtä hyvin.
+Jääpalamuoteista voi tarjoilla nappuloita tai muita pieniä nameja monella tavalla. Käytin tässä kumisia jääpalamuotteja, mutta tavalliset muoviset jääpalamuotit käyvät yhtä hyvin.
 
 Ensiksi laitoin jääpalamuotit lattialle ja laitoin yhden nappulan jokaiseen koloon. Seuraavalla kerralla käänsin jääpalamuotit ylösalaisin ja ripottelin nappulat sinne väleihin. Kolmannella kerralla laitoin muotit ylösalaisin, mutta laitoinkin nappulat piiloon muottien alle. Neljännellä kerralla laitoin muotit korkeareunaiseen pahvilaatikkoon.
 
