@@ -36,10 +36,10 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2017-04-15 New photos added in category; [Spring](http://minimuutti.com/en/photography/finnish-nature/spring/)
 * 2017-03-31 Updated activation post; [Towel lasagna](http://minimuutti.com/en/activation/towel-lasagna/)
 * 2017-03-15 New post added into the Blog; [No food motivation?](http://minimuutti.com/en/blog/no-food-motivation/)
 * 2017-03-06 New photos added in category; [Abstract & other](http://minimuutti.com/en/photography/abstract-other/)
-* 2017-03-05 New photos added in category; [Spring](http://minimuutti.com/en/photography/finnish-nature/spring/)
 * 2017-03-05 Updated [Tricks and commands that Miki knows](http://minimuutti.com/en/tricks/tricks-and-cues-that-Miki-knows/)
 * 1017-01-27 New post added into the Blog; [Dog body language: tail - a dog's state of mind](http://minimuutti.com/en/blog/dog-body-language-tail-dogs-state-of-mind/)
 * 2017-01-11 New post added into the Blog; [Dog body language - calming signals](http://minimuutti.com/en/blog/dog-body-language-calming-signals/)
