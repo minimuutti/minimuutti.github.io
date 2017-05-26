@@ -1,5 +1,5 @@
 ---
-title: "Pelkääkö koirasi kynsienleikkaamista?"
+title: "Pelkääkö koirasi kynsien leikkaamista?"
 layout: article
 image:
   feature:
