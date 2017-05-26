@@ -69,8 +69,6 @@ Or if you know your dog is going to have some operation that requires the dog to
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAUenVBHGZoNwh8CSnYeYRKa/aktivointi/siedattaminen-sheippaamalla/IMG23810-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAsgacxlhcMwl9yGtBuQ5Upa/aktivointi/siedattaminen-sheippaamalla/IMG23810.jpg)
-
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADpjCws7YMyivjSPhMgnUZWa/aktivointi/siedattaminen-sheippaamalla/DSC58327-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_yaFPJE1Qd_EKP5T3KwZ8a/aktivointi/siedattaminen-sheippaamalla/DSC58327.jpg)
 
 I also desensitized Miki to wear this furry cap :)
