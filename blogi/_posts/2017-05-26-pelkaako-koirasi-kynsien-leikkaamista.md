@@ -1,10 +1,12 @@
 ---
-title: "Siedättäminen"
+title: "Pelkääkö koirasi kynsienleikkaamista?"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACaO1IEjLsEJ5J7EPhxCbG-a/aktivointi/siedattaminen-sheippaamalla/IMG29753-245px.jpg
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACkzng6_Bi93v3iGpZk6LCEa/aktivointi/siedattaminen-sheippaamalla/DS55752_-245px.jpg
   thumb:
+redirect_from:
+  - /aktivointi/siedattaminen/
 ---
 
 Jos koirasi pelkää jotain tai haluat ehkäistä pelkäämistä, niin kannattaa opetella siedättämään asioita koirallesi.
@@ -76,3 +78,5 @@ Mikäli koirasi on menossa sellaiseen toimenpiteeseen mikä vaatii kaulurin pit�
 Siedätin Mikin myös pitämään tätä karvahattua :)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACfchGzuqPJctUMfTfPA0yba/aktivointi/siedattaminen-sheippaamalla/IMG29753-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACylf-rkESpk1M0Mi1TIGzSa/aktivointi/siedattaminen-sheippaamalla/IMG29753.jpg)
+
+26.5.2017

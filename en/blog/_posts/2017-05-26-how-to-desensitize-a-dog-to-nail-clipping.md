@@ -1,10 +1,12 @@
 ---
-title: "Desensitizing"
+title: "How to desensitize a dog to nail clipping"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACaO1IEjLsEJ5J7EPhxCbG-a/aktivointi/siedattaminen-sheippaamalla/IMG29753-245px.jpg
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACkzng6_Bi93v3iGpZk6LCEa/aktivointi/siedattaminen-sheippaamalla/DS55752_-245px.jpg
   thumb:
+redirect_from:
+  - /en/activation/desensitizing/
 ---
 
 If your dog is scared of something or you want to prevent him from being scared then you must learn how to desensitize your dog to different things.
@@ -74,3 +76,5 @@ Or if you know your dog is going to have some operation that requires the dog to
 I also desensitized Miki to wear this furry cap :)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACfchGzuqPJctUMfTfPA0yba/aktivointi/siedattaminen-sheippaamalla/IMG29753-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACylf-rkESpk1M0Mi1TIGzSa/aktivointi/siedattaminen-sheippaamalla/IMG29753.jpg)
+
+2017-05-26
