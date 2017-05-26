@@ -1,5 +1,5 @@
 ---
-title: "Desensitizing"
+title: "Siedättäminen"
 layout: article
 image:
   feature:
@@ -7,61 +7,63 @@ image:
   thumb:
 ---
 
-If your dog is scared of something or you want to prevent him from being scared then you must learn how to desensitize your dog to different things.
+Jos koirasi pelkää jotain tai haluat ehkäistä pelkäämistä, niin kannattaa opetella siedättämään asioita koirallesi.
 
-Let's say your dog has an issue with you cutting his nails. When you're about to cut his nails he panics from the moment he sees you going for the nail clippers.
+Siedättämisessä koiralle tuodaan esimerkiksi sen pelkäämää asia niin vähitellen, ettei pelkoreaktiota synny.
 
-If your dog is REALLY scared and for example hides under a sofa it's best to get rid of the nail clippers and buy some other tool, like nail tongs. If your dog's fear is mild you can continue using the same tools as before.
+Ajatellaan vaikka sellaista, että koirasi pelkää kynsien leikkaamista. Se on tottunut yhdistämään kynsienleikkuun kynsisaksiin sekä esimerkiksi kylpyhuoneeseen – se pelkää heti, kun haet kynsisakset ja menet kylpyhuoneeseen niiden kanssa. Jos koirasi TODELLA pelkää kynsisaksia  (esimerkiksi piiloutuu sängyn alle nähdessään ne) ­osta tilalle joku toinen väline, vaikkapa kynsipihdit. Jos koirasi pelko on lievää, niin voit ihan hyvin jatkaa samoilla välineillä kuin ennenkin.
 
-When your dog is calm you can start desensitizing your dog to the new tongs. Notice that your dog doesn't yet know what they are for so don't feed your dog's fear and remember to stay calm and positive near the new tool.
+Sitten kun koirasi on rauhallinen, ala totuttamaan sitä näihin uusiin pihteihin. Huomaa, ettei koirasi vielä tiedä mitä pihdeillä tehdään, joten sen asenne niihin on todennäköisesti neutraali tai kiinnostunut. Älä ruoki koirasi pelkoa, vaan muista itsekin suhtautua uuteen kynsipihteihin sekä opetustilanteeseen rauhallisesti ja neutraalisti.
 
-Remember to start the desensitizing process early, at least a couple of weeks before your dog's nails needs to be trimmed. If you have always cut your dog nails on the bathroom floor I recommend that you start the training for example in the livingroom.
+Tämän vanhan mörön pois kouluttaminen kannattaa aloittaa ajoissa, eli vähintään paria viikkoa ennen, kun koirasi kynnet pitää leikata. Jos ennen leikkasit koirasi kynnet kylpyhuoneessa, niin aloittakaa harjoitukset vaikka olohuoneen lattialla.
 
-I took these photos in one session, because Miki doesn't have any issues with cutting his nails. In reality these steps would take at least 20 training sessions.
+Otin nämä valokuvat yhdellä kerralla, koska Mikillä ei ole mitään ongelmia kynsien leikkaamisessa. Todellisuudessa tässä kannattaa varautua ainakin 20 harjoituskertaan.
 
-Put the tongs on the floor but don't do anything with them - just let them be there and reward your dog for being calm. Your dog may wan't to sniff them and that's okay. You can reward him for doing that as well.
+Laita pihdit lattialle ja anna koirasi tutustua niihin. Palkitse koiraasi, kun se on rauhallinen pihtien ollessa lattialla. 
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAP1EqpGWQQ8jWPYqOJPYkKa/aktivointi/siedattaminen-sheippaamalla/DS55361-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACz4iWh2wTWA9lyZAv7xBuPa/aktivointi/siedattaminen-sheippaamalla/DS55361.jpg)
 
-The next step is to touch the tongs on the floor with your hand and reward your dog when he's calm.
+Seuraavaksi voit koskettaa lattialla olevia pihtejä ennen kuin palkkaat koiran.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAih5gX6hyRmz4MGiRPeTD6a/aktivointi/siedattaminen-sheippaamalla/DS55368-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABvLAkYUvcQpt5QY0Z0XAjya/aktivointi/siedattaminen-sheippaamalla/DS55368.jpg)
 
-After that you can pick the tongs up and and put them down and reward your dog just like before.
+Myöhemmin voit ottaa pihdit käteesi ja laskea ne takaisin lattialle samalla palken koiraa rauhallisuudesta. 
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACm4oJ77r6JFBYsHqE7TJv0a/aktivointi/siedattaminen-sheippaamalla/DS55467-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABmRD88ZqG31IUDJFF0jGA9a/aktivointi/siedattaminen-sheippaamalla/DS55467.jpg)
 
-The next step is to ask your dog to give a paw when the tongs are on the floor and reward him for doing that calmly.
+Pikkuhiljaa voit edetä harjoituksessa niin, että pyydät koiraasi antamaan tassua pihtien ollessa lattialla.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABHXRPdJHKh_uXsm-DYJj70a/aktivointi/siedattaminen-sheippaamalla/DS55485-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABui9-M21KQ_RrPaQDLgyf8a/aktivointi/siedattaminen-sheippaamalla/DS55485.jpg)
 
-Later on you can touch the tongs that are on the floor when your dog gives a paw and slowly make progress towards you taking the tongs to your hand while your dog's paw is in your hand.
+Seuraavaksi voit pyytää koiraa antamaan tassua ja vain koskettaa lattialla olevia pihtejä.
+
+Kun olette edenneet harjoituksissa tähän, niin seuraavaksi voit pyytää antamaan tassua ja samalla otat pihdit käteesi lattialta ilman, että teet niillä mitään ja lasket ne takaisin. Toista useita kertoja ja palkkaa koiraasi rauhallisuudesta. 
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABGGz0rCxPOdVhfrI9ozkwYa/aktivointi/siedattaminen-sheippaamalla/DS55613-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACGALsF7YgUFgaodM6d-r2ra/aktivointi/siedattaminen-sheippaamalla/DS55613.jpg)
 
-It's very important you desensitize him to the tongs slowly. If you rush your dog might get scared and then you are back in square one. It's best to keep the training sessions short - just 1 to 3 minutes at a time. And remember to reward him with something that he really enjoys.
+Älä vaikeuta harjoitusta kerralla liikaa, vaan etene pienin askelin. Harjoittele vaikka vain pari minuuttia päivittäin, jotta tilanne pysyy koiralle mieluisana. Ja palkkaa koiraa sellaisella, mistä se oikeasti pitää. Jos kiirehdit liikaa niin koirasi saattaa pelästyä ja olette taas lähtöruudussa.
 
-When you have advanced and you can hold your dog's paw while holding the tongs you can move forward. Now you can start touching your dog's paw gently with the tongs or stroke his paw with them.
+Kun tämä sujuu hyvin, niin jatka kuten aiemmin, mutta kosketa koiran tassua lempeästi pihdeillä ja palkkaa koiraasi. Voit myös silittää pihdeillä koiran tassua.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA15oGD4M-kvJA-7fpbAMOja/aktivointi/siedattaminen-sheippaamalla/DS55706-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAwrJhXKDudquDKMHIP7C3ya/aktivointi/siedattaminen-sheippaamalla/DS55706.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_hW5kx5VEeGMRlQ90jaOTa/aktivointi/siedattaminen-sheippaamalla/DS55829-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC99niv-4H6KDzAWp4tqPqua/aktivointi/siedattaminen-sheippaamalla/DS55829.jpg)
 
-Later on you can clip the air with the tongs near your dog's paw but don't try to cut his nails yet.
+Myöhemmin voit edetä harjoituksissa niin, että naksuttelet pihdeillä ilmaa lähellä koiran tassua.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADbCM_b7zQ5O6tt1gVsGZ2sa/aktivointi/siedattaminen-sheippaamalla/DS55712-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAnMCfu_9R6EKJ6Z5XPqrU5a/aktivointi/siedattaminen-sheippaamalla/DS55712.jpg)
 
-If your dog wants to sniff the tongs let him do that in his own pace.
+Jos koirasi haluaa tutkia pihtejä tarkemmin niin anna sen tehdä se kaikessa rauhassa.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAaVBi8FCHXX9Il9cmSxjmJa/aktivointi/siedattaminen-sheippaamalla/DS55732-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAug8No4hlEUazgnJnuR1wua/aktivointi/siedattaminen-sheippaamalla/DS55732.jpg)
 
-When you master the previous steps you can start cutting the nails. It's best to start as slowly as possible and cut only one nail per training session and reward your dog heavily when you do.
+Vasta useiden harjoitusten jälkeen kannattaa oikeasti alkaa leikkaamaan koiran kynsiä ja silloinkin kannattaa leikata vain yksi kynsi per harjoituskerta ja koira kannattaa palkita sen lempiherkuilla.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACC4eDvLJG2ikR7NE39SR_7a/aktivointi/siedattaminen-sheippaamalla/DS55752-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA9K3H_lpnVMPRyNI0V1b8ma/aktivointi/siedattaminen-sheippaamalla/DS55752.jpg)
 
-You can use this type of training to desensitize your dog to almost everything. If your dog barks at the doorbell you can always change the doorbell to a new one that has different ringing tune and start from there.
+Samaa koulutusmallia voi käyttää melkein mihin tahansa siedätykseen, esimerkiksi jos koirasi haukkuu vaikka ovikelloa. Voit vaikkapa ostaa tilalle uuden ovikellon, jossa on erilainen ääni, kuin vanhassa ovikellossa ja lähteä kouluttamaan koirallesi rauhallista suhtautumista ovikelloon aivan puhtaalta pöydältä.
 
-Or if you know your dog is going to have some operation that requires the dog to wear a protective collar, you may want to desensitize your dog to wear the protective collar before the actual operation.
+Mikäli koirasi on menossa sellaiseen toimenpiteeseen mikä vaatii kaulurin pitämistä, niin kaulurikin kannattaa siedättää sitä ennen.
 
 ---
 
@@ -69,6 +71,6 @@ Or if you know your dog is going to have some operation that requires the dog to
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADpjCws7YMyivjSPhMgnUZWa/aktivointi/siedattaminen-sheippaamalla/DSC58327-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_yaFPJE1Qd_EKP5T3KwZ8a/aktivointi/siedattaminen-sheippaamalla/DSC58327.jpg)
 
-I also desensitized Miki to wear this furry cap :)
+Siedätin Mikin myös pitämään tätä karvahattua :)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACfchGzuqPJctUMfTfPA0yba/aktivointi/siedattaminen-sheippaamalla/IMG29753-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACylf-rkESpk1M0Mi1TIGzSa/aktivointi/siedattaminen-sheippaamalla/IMG29753.jpg)
