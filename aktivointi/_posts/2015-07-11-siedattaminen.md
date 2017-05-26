@@ -19,6 +19,8 @@ Tämän vanhan mörön pois kouluttaminen kannattaa aloittaa ajoissa, eli vähin
 
 Otin nämä valokuvat yhdellä kerralla, koska Mikillä ei ole mitään ongelmia kynsien leikkaamisessa. Todellisuudessa tässä kannattaa varautua ainakin 20 harjoituskertaan.
 
+#### Näin se tehdään...
+
 Laita pihdit lattialle ja anna koirasi tutustua niihin. Palkitse koiraasi, kun se on rauhallinen pihtien ollessa lattialla. 
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAP1EqpGWQQ8jWPYqOJPYkKa/aktivointi/siedattaminen-sheippaamalla/DS55361-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACz4iWh2wTWA9lyZAv7xBuPa/aktivointi/siedattaminen-sheippaamalla/DS55361.jpg)
