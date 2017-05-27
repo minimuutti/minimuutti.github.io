@@ -9,9 +9,7 @@ image:
 
 If your dog is scared of nail clipping there's a way to desensitize him. It can be done quite easily but you must be patient.
 
-Your know your dog has an issue with you cutting his nails, when he panics from the moment he sees you going for the nail clippers.
-
-If your dog is REALLY scared and for example hides under a sofa it's best to get rid of the nail clippers and buy some other tool, like nail tongs. If your dog's fear is mild you can continue using the same tools as before.
+Your know your dog has an issue with you cutting his nails, when he panics from the moment he sees you going for the nail clippers. If your dog is REALLY scared and for example hides under a sofa it's best to get rid of the nail clippers and buy some other tool, like nail tongs. If your dog's fear is mild you can continue using the same tools as before.
 
 When your dog is calm you can start desensitizing your dog to the new tongs. Notice that your dog doesn't yet know what they are for so don't feed your dog's fear and remember to stay calm and positive near the new tool.
 
