@@ -5,11 +5,9 @@ image:
   feature:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACkzng6_Bi93v3iGpZk6LCEa/aktivointi/siedattaminen-sheippaamalla/DS55752_-245px.jpg
   thumb:
-redirect_from:
-  - /en/activation/desensitizing/
 ---
 
-If your dog is scared of something or you want to prevent him from being scared then you must learn how to desensitize your dog to different things.
+If your dog is scared of nail clipping there's a way to desensitize him. It can be done quite easily but you must be patient.
 
 Let's say your dog has an issue with you cutting his nails. When you're about to cut his nails he panics from the moment he sees you going for the nail clippers.
 

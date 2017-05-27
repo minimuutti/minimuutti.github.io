@@ -5,8 +5,6 @@ image:
   feature:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACkzng6_Bi93v3iGpZk6LCEa/aktivointi/siedattaminen-sheippaamalla/DS55752_-245px.jpg
   thumb:
-redirect_from:
-  - /aktivointi/siedattaminen/
 ---
 
 Pelon voi siedättää pois helposti, kunhan on kärsivällinen. Siedättämisessä koiralle tuodaan sen pelkäämää asiaa niin pienissä määrin, ettei pelkoreaktiota synny.
