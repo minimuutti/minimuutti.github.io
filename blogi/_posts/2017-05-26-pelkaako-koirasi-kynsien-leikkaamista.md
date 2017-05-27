@@ -27,7 +27,7 @@ Seuraavaksi voit koskettaa lattialla olevia pihtejä ennen kuin palkkaat koiran.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAih5gX6hyRmz4MGiRPeTD6a/aktivointi/siedattaminen-sheippaamalla/DS55368-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABvLAkYUvcQpt5QY0Z0XAjya/aktivointi/siedattaminen-sheippaamalla/DS55368.jpg)
 
-Myöhemmin voit ottaa pihdit käteesi ja laskea ne takaisin lattialle samalla palken koiraa rauhallisuudesta. 
+Myöhemmin voit ottaa pihdit käteesi ja laskea ne takaisin lattialle samalla palkaten koiraa rauhallisuudesta. 
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACm4oJ77r6JFBYsHqE7TJv0a/aktivointi/siedattaminen-sheippaamalla/DS55467-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABmRD88ZqG31IUDJFF0jGA9a/aktivointi/siedattaminen-sheippaamalla/DS55467.jpg)
 
