@@ -19,7 +19,7 @@ I took these photos in one session, because Miki doesn't have any issues with cu
 
 #### Here's how to do it
 
-Put the tongs on the floor but don't do anything with them - just let them be there and reward your dog for being calm. Your dog may wan't to sniff them and that's okay. You can reward him for doing that as well.
+Put the tongs on the floor but don't do anything with them - just let them be there and reward your dog for being calm. Your dog may want to sniff them and that's okay. You can reward him for doing that as well.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAP1EqpGWQQ8jWPYqOJPYkKa/aktivointi/siedattaminen-sheippaamalla/DS55361-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACz4iWh2wTWA9lyZAv7xBuPa/aktivointi/siedattaminen-sheippaamalla/DS55361.jpg)
 
