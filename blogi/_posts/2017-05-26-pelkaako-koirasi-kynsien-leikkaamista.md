@@ -9,11 +9,9 @@ redirect_from:
   - /aktivointi/siedattaminen/
 ---
 
-Jos koirasi pelkää jotain tai haluat ehkäistä pelkäämistä, niin kannattaa opetella siedättämään asioita koirallesi.
+Pelon voi siedättää pois helposti, kunhan on kärsivällinen. Siedättämisessä koiralle tuodaan sen pelkäämää asiaa niin pienissä määrin, ettei pelkoreaktiota synny.
 
-Siedättämisessä koiralle tuodaan esimerkiksi sen pelkäämää asia niin vähitellen, ettei pelkoreaktiota synny.
-
-Ajatellaan vaikka sellaista, että koirasi pelkää kynsien leikkaamista. Se on tottunut yhdistämään kynsienleikkuun kynsisaksiin sekä esimerkiksi kylpyhuoneeseen – se pelkää heti, kun haet kynsisakset ja menet kylpyhuoneeseen niiden kanssa. Jos koirasi TODELLA pelkää kynsisaksia  (esimerkiksi piiloutuu sängyn alle nähdessään ne) ­osta tilalle joku toinen väline, vaikkapa kynsipihdit. Jos koirasi pelko on lievää, niin voit ihan hyvin jatkaa samoilla välineillä kuin ennenkin.
+Ajatellaan nyt sellaista, että koirasi pelkää kynsien leikkaamista. Se on tottunut yhdistämään kynsienleikkuun kynsisaksiin sekä esimerkiksi kylpyhuoneeseen – se pelkää heti, kun haet kynsisakset ja menet kylpyhuoneeseen niiden kanssa. Jos koirasi TODELLA pelkää kynsisaksia  (esimerkiksi piiloutuu sängyn alle nähdessään ne) ­osta tilalle joku toinen väline, vaikkapa kynsipihdit. Jos koirasi pelko on lievää, niin voit ihan hyvin jatkaa samoilla välineillä kuin ennenkin.
 
 Sitten kun koirasi on rauhallinen, ala totuttamaan sitä näihin uusiin pihteihin. Huomaa, ettei koirasi vielä tiedä mitä pihdeillä tehdään, joten sen asenne niihin on todennäköisesti neutraali tai kiinnostunut. Älä ruoki koirasi pelkoa, vaan muista itsekin suhtautua uuteen kynsipihteihin sekä opetustilanteeseen rauhallisesti ja neutraalisti.
 
