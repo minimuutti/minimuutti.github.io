@@ -36,8 +36,8 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2017-05-29 New photos added in category; [Spring](http://minimuutti.com/en/photography/finnish-nature/spring/)
 * 2017-05-26 New post added into the Blog; [How to desensitize a dog to nail clipping](http://minimuutti.com/en/blog/how-to-desensitize-a-dog-to-nail-clipping/)
-* 2017-04-15 New photos added in category; [Spring](http://minimuutti.com/en/photography/finnish-nature/spring/)
 * 2017-03-31 Updated activation post; [Towel lasagna](http://minimuutti.com/en/activation/towel-lasagna/)
 * 2017-03-15 New post added into the Blog; [No food motivation?](http://minimuutti.com/en/blog/no-food-motivation/)
 * 2017-03-06 New photos added in category; [Abstract & other](http://minimuutti.com/en/photography/abstract-other/)

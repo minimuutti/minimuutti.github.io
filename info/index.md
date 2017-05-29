@@ -37,8 +37,8 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 29.5.2017 Lisätty uusia valokuvia kategoriaan; [Kevät](http://minimuutti.com/valokuvaus/luontokuvat/kevat/)
 * 26.5.2017 Lisätty uusi postaus Blogiin; [Pelkääkö koirasi kynsien leikkaamista?](http://minimuutti.com/blogi/pelkaako-koirasi-kynsien-leikkaamista/)
-* 15.4.2017 Lisätty uusia valokuvia kategoriaan; [Kevät](http://minimuutti.com/valokuvaus/luontokuvat/kevat/)
 * 31.3.2017 Päivitetty aktivointivinkki; [Pyyhelasagne](http://minimuutti.com/aktivointi/pyyhelasagne/)
 * 15.3.2017 Lisätty uusi postaus Blogiin; [Koirani ei motivoidu ruokapalkasta](http://minimuutti.com/blogi/koirani-ei-motivoidu-ruokapalkasta/)
 * 6.3.2017 Lisätty uusia valokuvia kategoriaan; [Abstraktit ja muut](http://minimuutti.com/valokuvaus/abstraktit-muut/)
