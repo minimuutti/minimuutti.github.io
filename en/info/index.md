@@ -36,6 +36,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2017-06-11 New photos added in category; [Summer](http://minimuutti.com/en/photography/finnish-nature/summer/)
 * 2017-06-10 New post added into the Blog; [Moving with your dog](http://minimuutti.com/en/blog/moving-with-your-dog/)
 * 2017-05-29 New photos added in category; [Spring](http://minimuutti.com/en/photography/finnish-nature/spring/)
 * 2017-05-26 New post added into the Blog; [How to desensitize a dog to nail clipping](http://minimuutti.com/en/blog/how-to-desensitize-a-dog-to-nail-clipping/)
@@ -64,11 +65,5 @@ New and recently updated posts:
 * 2016-10-23 New activation post; [Twelve cup puzzle](http://minimuutti.com/en/activation/twelve-cup-puzzle/)
 * 2016-10-23 Updated activation post; [Towels](http://minimuutti.com/en/activation/towels/)
 * 2016-10-16 New activation post; [Dumbbells](http://minimuutti.com/en/activation/dumbbells/)
-* 2016-10-15 New activation post; [Kibble hunt](http://minimuutti.com/en/activation/kibble-hunt/)
-* 2016-09-30 New photos added in category; [Summer](http://minimuutti.com/en/photography/finnish-nature/summer/)
-* 2016-09-30 Updated activation post; [Pastimes for a convalescent](http://minimuutti.com/en/activation/pastimes-for-a-convalescent/)
-* 2016-09-30 Updated activation post; [Ikea's Drömmar set](http://minimuutti.com/en/activation/ikeas-drommar-set/)
-* 2016-09-26 Updated activation post; [Taskboxes](http://minimuutti.com/en/activation/taskboxes/)
-* 2016-09-17 New treat dispenser review; [Buster Food Cube](http://minimuutti.com/en/treat-dispensers/buster-food-cube/)
 
 © Susu

@@ -37,6 +37,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 11.6.2017 Lisätty uusia valokuvia kategoriaan; [Kesä](http://minimuutti.com/valokuvaus/luontokuvat/kesa/)
 * 10.6.2017 Lisätty uusi postaus Blogiin; [Muuttaminen koiran kanssa](http://minimuutti.com/blogi/muuttaminen-koiran-kanssa/)
 * 29.5.2017 Lisätty uusia valokuvia kategoriaan; [Kevät](http://minimuutti.com/valokuvaus/luontokuvat/kevat/)
 * 26.5.2017 Lisätty uusi postaus Blogiin; [Pelkääkö koirasi kynsien leikkaamista?](http://minimuutti.com/blogi/pelkaako-koirasi-kynsien-leikkaamista/)
@@ -65,11 +66,5 @@ Uudet ja viimeksi päivitetyt osiot:
 * 23.10.2016 Lisätty uusi aktivointivinkki; [Kuusi kuppia piilossa](http://minimuutti.com/aktivointi/kuusi-kuppia-piilossa/)
 * 23.10.2016 Päivitetty aktivointivinkki; [Pyyheliina](http://minimuutti.com/aktivointi/pyyheliina/)
 * 16.10.2016 Lisätty uusi aktivointivinkki; [Palloputket](http://minimuutti.com/aktivointi/palloputket/)
-* 15.10.2016 Lisätty uusi aktivointivinkki; [Nappulajahti](http://minimuutti.com/aktivointi/nappulajahti/)
-* 30.9.2016 Lisätty uusia valokuvia kategoriaan; [Kesä](http://minimuutti.com/valokuvaus/luontokuvat/kesa/)
-* 30.9.2016 Päivitetty aktivointivinkki; [Ajanvietettä toipilaalle](http://minimuutti.com/aktivointi/ajanvietetta-toipilaalle/)
-* 30.9.2016 Päivitetty aktivointivinkki; [Ikean Drömmar muotit](http://minimuutti.com/aktivointi/ikean-drommar-muotit/)
-* 26.9.2016 Päivitetty aktivointivinkki; [Tehtävälaatikot](http://minimuutti.com/aktivointi/tehtavalaatikot/)
-* 17.9.2016 Lisätty uusi aktivointilelu; [Buster Food Cube](http://minimuutti.com/aktivointilelut/buster-food-cube/)
 
 © Susu
