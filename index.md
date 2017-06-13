@@ -5,23 +5,23 @@ layout: default
 
 # Tervetuloa Minimuutin matkaan!
 
-The site is also available in [**English**](http://minimuutti.com/en/).
+The site is also available in [**English**](/en/).
 
 Sivusto sisältää vinkkejä vilkkaiden koirien energian kuluttamiseksi. Kaikki sivustolta löytyvät ideat on testattu eläinkokein ;) ja testaajana on toiminut oma vilkas koirani Miki.
 
-[**Aktivointi**](http://minimuutti.com/aktivointi/) –kategoriasta löytyy paljon haistelu- ja älytehtäviä sekä erilaisia itsetehtyjä pelejä kuvallisilla ohjeilla.
+[**Aktivointi**](/aktivointi/) –kategoriasta löytyy paljon haistelu- ja älytehtäviä sekä erilaisia itsetehtyjä pelejä kuvallisilla ohjeilla.
 
-[**Aktivointilelut**](http://minimuutti.com/aktivointilelut/) –kategoriasta löydät vinkkejä eri aktivointilelujen käyttöön.
+[**Aktivointilelut**](/aktivointilelut/) –kategoriasta löydät vinkkejä eri aktivointilelujen käyttöön.
 
-[**Temput**](http://minimuutti.com/temput/) –kategoriassa on listattuna Mikin osaamat sekä opetteluvaiheessa olevat temput, jotta sinä saisit ideoita omalle koirallesi opetettavista tempuista.
+[**Temput**](/temput/) –kategoriassa on listattuna Mikin osaamat sekä opetteluvaiheessa olevat temput, jotta sinä saisit ideoita omalle koirallesi opetettavista tempuista.
 
-[**Blogista**](http://minimuutti.com/blogi) löytyy ajankohtaisia kuulumisia sekä muita kirjoituksia.
+[**Blogista**](/blogi) löytyy ajankohtaisia kuulumisia sekä muita kirjoituksia.
 
-[**Info**](http://minimuutti.com/info/) –linkin takaa löydät listan viimeksi lisätyistä posteista, yhteistyökumppaneiden linkit sekä yhteystiedot.
+[**Info**](/info/) –linkin takaa löydät listan viimeksi lisätyistä posteista, yhteistyökumppaneiden linkit sekä yhteystiedot.
 
-[**Info**](http://minimuutti.com/info/) -sivulta löydät myös lahjoitusvaihtoehdot mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani. Voit tehdä lahjoituksen Paypalin kautta, Bitcoineina tai käyttää [**Info**](http://minimuutti.com/info/) -sivulta löytyvää linkkiä kun seuraavan kerran asioit [**Zooplus.fi**](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/)) -verkkokaupassa.
+[**Info**](/info/) -sivulta löydät myös lahjoitusvaihtoehdot mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani. Voit tehdä lahjoituksen Paypalin kautta, Bitcoineina tai käyttää [**Info**](/info/) -sivulta löytyvää linkkiä kun seuraavan kerran asioit [**Zooplus.fi**](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/)) -verkkokaupassa.
 
-Sivustolla on myös [**Valokuvaus**](http://minimuutti.com/valokuvaus/) -osio, jossa voit katsella [**luontokuvia**](http://minimuutti.com/valokuvaus/luontokuvat/), [**Mikin kuvia**](http://minimuutti.com/valokuvaus/kuvia-mikista/) sekä [**muita kuvia**](http://minimuutti.com/valokuvaus/abstraktit-muut). Voit ostaa täyden resoluution valokuvia ilman vesileimaa [**500px.com**](https://500px.com/search?q=minimuutticom&type=market) -sivustolta.
+Sivustolla on myös [**Valokuvaus**](/valokuvaus/) -osio, jossa voit katsella [**luontokuvia**](/valokuvaus/luontokuvat/), [**Mikin kuvia**](/valokuvaus/kuvia-mikista/) sekä [**muita kuvia**](/valokuvaus/abstraktit-muut). Voit ostaa täyden resoluution valokuvia ilman vesileimaa [**500px.com**](https://500px.com/search?q=minimuutticom&type=market) -sivustolta.
 
 ### Mikistä ja vähän myös kirjoittajasta
 
@@ -29,7 +29,7 @@ Miki (inuiittikieltä, tarkoittaa pientä) on elokuussa 2012 syntynyt alaskanmal
 
 Alaskanmalamuutti on jalostettu vetämään raskaita kuormia vaativissa olosuhteissa väsymättä. Malamuutit ovat yksi älykkäimmistä koiraroduista ja ne ovat myös erittäin nokkelia. Erittäin hyvin kirjoitettu alaskanmalamuutin rotukuvaus löytyy [malamuutti comin](http://malamuutti.com/index5.php?page=rotu) sivuilta.
 
-Mikin hellittelynimenä käytetään usein "wulffia". Sutta Mikissä ei ole sen enempää kuin muissakaan koirissa (tarkoitan, että Miki ei todellakaan ole mikään koirasusi; sudet kuuluvat vapaana luontoon), mutta Mikin ulkonäön perusteella sekä sen alkukantaisuuden perusteella se on wulffi. Lapset usein ulkona huomaavat Mikin muiden koirien joukosta. Vähintään kerran viikossa kuulemme niin lasten kuin aikuistenkin kutsuvan sitä sudeksi. Kuvia Mikistä voit käydä katsomassa [täällä](http://minimuutti.com/valokuvaus/kuvia-mikista/).
+Mikin hellittelynimenä käytetään usein "wulffia". Sutta Mikissä ei ole sen enempää kuin muissakaan koirissa (tarkoitan, että Miki ei todellakaan ole mikään koirasusi; sudet kuuluvat vapaana luontoon), mutta Mikin ulkonäön perusteella sekä sen alkukantaisuuden perusteella se on wulffi. Lapset usein ulkona huomaavat Mikin muiden koirien joukosta. Vähintään kerran viikossa kuulemme niin lasten kuin aikuistenkin kutsuvan sitä sudeksi. Kuvia Mikistä voit käydä katsomassa [täällä](/valokuvaus/kuvia-mikista/).
 
 Kuvailen Mikiä usein näillä sanoilla: elämänhaluinen, sydämellinen, todella ihmisrakas, erittäin älykäs ja aina innokas tekemään ja kokeilemaan uutta. Tuo voimakas elämänhalu ja innokkuus tuovat mukanaan sen kääntöpuolen, että virtaa vaan riittää ja riittää ja riittää. Mutta toisaalta se on juuri se, mikä tekee koirasta "hyvän".
 
@@ -41,7 +41,7 @@ Parhaiten koiran energian saa purettua sillä, mihin käyttötarkoitukseen se on
 
 Asumme kerrostalossa Mikin kanssa, jota moni pitää sulana hulluutena. Useimmat tutut ja koiratuttavat aina kysyvät, että uskallammeko pitää Mikiä vapaana vai pidämmekö sitä häkissä, kun Miki jää yksin kotiin. Ja ihmettelevät/arvuuttelevat mitä kaikkea Miki tuhoaa meidän poissa ollessamme tai silloin, kun se oli vielä pentu. Vastausta ei kukaan usko: ei mitään. Ei nyt, eikä edes pentuaikana. Häkki myytiin Mikin ollessa noin vuoden ikäinen, sitäkin käytettiin lähinnä sisäsiisteys kasvatukseen.
 
-Helppo koira Miki ei todellakaan ole. Kerran eräs marjojenpoimintareissu metsässä kesti neljä tuntia. Kotiin tultuamme Miki lysähti suoraan eteisen matolle nukkumaan ja ehdin jo ajatella, että kerrankin tehtiin sellainen lenkki josta kaveri väsähti. No, kymmenen minuutin makoilun jälkeen Miki tuli ihmettelemään että nyt on nukkumiset nukuttu, mitäs sitten tehtäisiin :D 
+Helppo koira Miki ei todellakaan ole. Kerran eräs marjojenpoimintareissu metsässä kesti neljä tuntia. Kotiin tultuamme Miki lysähti suoraan eteisen matolle nukkumaan ja ehdin jo ajatella, että kerrankin tehtiin sellainen lenkki josta kaveri väsähti. No, kymmenen minuutin makoilun jälkeen Miki tuli ihmettelemään että nyt on nukkumiset nukuttu, mitäs sitten tehtäisiin :D
 
 Kun Miki tuli meille pentuna, uskoin laumanjohtajuuteen kuten Cesar Millan opettaa. Mutta tutkittuani asioita ja kokeiltuani positiivisia koulutusmenetelmiä sekä naksutinkoulutusta, paluuta vanhaan ei enää ole. Mikäli olet kiinnostunut naksutinkoulutuksesta, niin suosittelen lämpimästi lukemaan kirjan: [Naksutinkoulutusta koirallesi](http://www.canis.fi/tuotteet.html?id=0/3) kirjoittajina Morten Egtvedt ja Cecilie Koste.
 
@@ -65,6 +65,6 @@ Sain idean tähän sivustoon siitä, kun en netistä löytänyt aktivointivinkke
 
 Toivottavasti viihdyt Minimuutin matkassa ja tämä sivusto antaa sinulle vinkkejä aktivoida omaa vilkasta koiraasi ja helpottaa sinun sekä koirasi arkea.
 
-Mikäli pidät suomalaisista luontokuvista, niin kannattaa käydä katsomassa myös [Luontokuvat](http://minimuutti.com/valokuvaus/luontokuvat/) -osio.
+Mikäli pidät suomalaisista luontokuvista, niin kannattaa käydä katsomassa myös [Luontokuvat](/valokuvaus/luontokuvat/) -osio.
 
 Minimuutin matkassa mennään ja lujaa mennäänkin!

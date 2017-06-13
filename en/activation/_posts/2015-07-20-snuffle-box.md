@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-A snuffle box is a hardened version of a [snuffle mat](http://minimuutti.com/en/activation/snuffle-mat/).
+A snuffle box is a hardened version of a [snuffle mat](/en/activation/snuffle-mat/).
 
 I took a cardboard box and then laid the snuffle mat on the bottom. I put some tennis balls and some laundry balls and three long fleece plaits on top of the snuffle mat as obstacles.
 

@@ -9,9 +9,9 @@ image:
 
 Valitsin Nescafe purkin tähän tehtävään sen keskellä olevan kavennuksen vuoksi. Purkki on täytetty virkatuilla koralleilla.
 
-Käyttämäni korallit olivat myös hieman pienempiä, noin 5-6 cm läpimitaltaan. Korallien teko-ohjeen löydät [täältä](http://minimuutti.com/aktivointi/korallit/).
+Käyttämäni korallit olivat myös hieman pienempiä, noin 5-6 cm läpimitaltaan. Korallien teko-ohjeen löydät [täältä](/aktivointi/korallit/).
 
-Jos et halua käyttää aikaa korallien tekemiseen niin voit kokeilla niiden tilalla [paperipalloja](http://minimuutti.com/aktivointi/minitehtavia/#paperipallot).
+Jos et halua käyttää aikaa korallien tekemiseen niin voit kokeilla niiden tilalla [paperipalloja](/aktivointi/minitehtavia/#paperipallot).
 
 Ajattelin tehtävän olevan hieman haastava, joten ensimmäisellä kerralla laitoin vain purkin pohjalle muutamia nappuloita ja annoin purkin Mikille ihmeteltäväksi. Nappulat katosivat sekunneissa :D
 

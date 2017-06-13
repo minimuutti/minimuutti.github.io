@@ -32,19 +32,19 @@ Käytän paperipalloja useimmiten niin, että laitan niitä esim. kartonkipakkau
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABOPIgy8DG2RY42U4E4eI0Va/aktivointi/minitehtavia/DSC52279-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACXC317JkbAPa5LxtiB7-Z8a/aktivointi/minitehtavia/DSC52279.jpg)
 
 Paperipalloja Hol-ee Roller lelun sisällä:
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAp_XpOeQ3Av-I405B_IZ5Ta/aktivointi/jw-hol-ee-roller/DSC50501-800px.jpg)](http://minimuutti.com/aktivointi/jw-hol-ee-roller/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAp_XpOeQ3Av-I405B_IZ5Ta/aktivointi/jw-hol-ee-roller/DSC50501-800px.jpg)](/aktivointi/jw-hol-ee-roller/)
 
 Paperipalloja mukeissa:
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADgOt4ObdTxHADvQnwiQddGa/aktivointi/paperipallot-mukeissa/DSC46322-800px.jpg)](http://minimuutti.com/aktivointi/paperipallot-mukeissa/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADgOt4ObdTxHADvQnwiQddGa/aktivointi/paperipallot-mukeissa/DSC46322-800px.jpg)](/aktivointi/paperipallot-mukeissa/)
 
 Paperipalloja kartonkipakkauksen sisällä:
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAADc92ZyHImkbnyqLW43Cl8a/aktivointi/kartonkipakkaukset/DSC38178-800px.jpg)](http://minimuutti.com/aktivointi/kartonkipakkaukset/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAADc92ZyHImkbnyqLW43Cl8a/aktivointi/kartonkipakkaukset/DSC38178-800px.jpg)](/aktivointi/kartonkipakkaukset/)
 
 Paperipalloja paperirullan hylsyn sisällä:
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABi5-KQ6QRA7mNS8MFM1YBma/aktivointi/paperirullien-hylsyt/DSC52305-800px.jpg)](http://minimuutti.com/aktivointi/paperirullien-hylsyt/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABi5-KQ6QRA7mNS8MFM1YBma/aktivointi/paperirullien-hylsyt/DSC52305-800px.jpg)](/aktivointi/paperirullien-hylsyt/)
 
 Paperipallot tehtävälaatikossa:
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABn9YNcA-fV3CyahyG5jrhma/aktivointi/tehtavalaatikko-paperipalloilla/DS06203-800px.jpg)](http://minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABn9YNcA-fV3CyahyG5jrhma/aktivointi/tehtavalaatikko-paperipalloilla/DS06203-800px.jpg)](/aktivointi/tehtavalaatikko-paperipalloilla/)
 
 ### Nappulat pahvilaatikoissa
 

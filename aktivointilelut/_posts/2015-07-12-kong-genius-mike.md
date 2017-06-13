@@ -23,6 +23,6 @@ Joskus olen laittanut myös kinkkuviipaleen tai juustosiivun, mutta silloin Kong
 
 Tätä lelua on käytetty myös tehtävässä:
 
-[Putkipiilo:](http://minimuutti.com/aktivointi/putkipiilo/)
+[Putkipiilo:](/aktivointi/putkipiilo/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACvGxg0oMZqHsIKH5yMZPi7a/aktivointi/putkipiilo/DSC47941-800px.jpg)](http://minimuutti.com/aktivointi/putkipiilo/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACvGxg0oMZqHsIKH5yMZPi7a/aktivointi/putkipiilo/DSC47941-800px.jpg)](/aktivointi/putkipiilo/)

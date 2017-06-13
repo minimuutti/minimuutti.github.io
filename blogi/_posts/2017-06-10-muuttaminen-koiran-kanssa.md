@@ -9,7 +9,7 @@ image:
 
 Koiran kanssa muuttaessa on tärkeää ennakoida ja valmistella koiraa tilanteeseen, ennen varsinaista muuttoa.
 
-Monet koirat reagoivat voimakkaasti muutoksiin, vaikka ne eivät välttämättä näytä ulkoisia merkkejä stressistä  tai stressieleet voivat olla hienovaraisia. Voi myös olla, että jotkut koiranomistajat eivät välttämättä osaa lukea näitä merkkejä koirastaan. Voit lukea koiran rauhottavista signaaleista, jotka ovat merkkejä stressistä, [täältä](http://minimuutti.com/blogi/koirien-kehonkieli-rauhoittavat-signaalit/).
+Monet koirat reagoivat voimakkaasti muutoksiin, vaikka ne eivät välttämättä näytä ulkoisia merkkejä stressistä  tai stressieleet voivat olla hienovaraisia. Voi myös olla, että jotkut koiranomistajat eivät välttämättä osaa lukea näitä merkkejä koirastaan. Voit lukea koiran rauhottavista signaaleista, jotka ovat merkkejä stressistä, [täältä](/blogi/koirien-kehonkieli-rauhoittavat-signaalit/).
 
 Miki ei ole mikään poikkeus, vaan se yleensä aina stressaantuu muutoksista. Päätin nyt kirjoittaa aiheesta, koska jouduin meidän muuttomme vuoksi pohtimaan asioita Mikin kannalta.
 
@@ -89,7 +89,7 @@ Jos muutat työn vuoksi ja työaikasi muuttuvat muuton yhdeydessä, niin mieti o
 
 Muutto on erinomainen mahdollisuus kouluttaa pois vanhoja mörköjä, koska uudessa asunnossa on uudet hajut, uudet äänet, uusi ympäristö jne. Nyt sinulla on mitä parhain mahdollisuus opettaa koirallesi vaikeat asiat aivan alusta, koska koira ei välttämättä yhdistä tätä uutta tekemistä vanhoihin kaavoihin. Ovikellon haukkuminen on eräs mörkö monella koiralla ja muutto onkin oiva tilaisuus kouluttaa tämä haukkuminen pois.
 
-Voit lukea lisää siedättämisestä [täältä](http://minimuutti.com/aktivointi/siedattaminen-sheippaamalla/).
+Voit lukea lisää siedättämisestä [täältä](/aktivointi/siedattaminen-sheippaamalla/).
 
 Onneksi Mikin kanssa ei koskaan ole ollut mitään suurempia ongelmia. Meillä on satunnaisia ongelmia turkin kuivaamisen kanssa, muttei onneksi mitään vakavaa. Miki antaa kyllä kuivata eikä pyri karkuun, mutta sen vinkumisesta kyllä huomaa, ettei se pidä siitä. Itse päätin puuttua tähän kuivausmörköön nyt muuton yhteydessä, vaikka ongelma ei meillä ole mitenkään paha.
 
@@ -99,7 +99,7 @@ Koska kylpyhuone on ainoa paikka missä läpimärkää koiraa voi kuivata, niin 
 
 Mikillä on aina ollut jonkin verran eroahdistusta, mutta nyt muutettuamme huomasin sen taas voimistuvan.
 
-Vaikka yritin tehdä kaikkeni, että uusi koti olisi tuntunut Mikistä tutulta ja kivalta, niin valitettavasti on asioita, joihin en vaan voi vaikuttaa. Talossa, johon muutimme, asuu paljon muitakin koiria ja ensimmäisenä päivänä kuulimme useamman koiran haukkuvan, jopa keskellä yötä, ja Mikiä alkoi pelottamaan. Koska uusi ympäristö pelotti Mikiä, niin se reagoi erittäin voimakkaasti siihen, kun vain toinenkin meistä poistui asunnosta. 
+Vaikka yritin tehdä kaikkeni, että uusi koti olisi tuntunut Mikistä tutulta ja kivalta, niin valitettavasti on asioita, joihin en vaan voi vaikuttaa. Talossa, johon muutimme, asuu paljon muitakin koiria ja ensimmäisenä päivänä kuulimme useamman koiran haukkuvan, jopa keskellä yötä, ja Mikiä alkoi pelottamaan. Koska uusi ympäristö pelotti Mikiä, niin se reagoi erittäin voimakkaasti siihen, kun vain toinenkin meistä poistui asunnosta.
 
 Onneksi sekä minulla, että puolisollani on mahdollisuus tehdä töitä kotona. Jos sinulla on eroahdistuksesta kärsivä koira ja mahdollisuus etätyöskentelyyn, niin käytä sitä hyväksesi. Jos sinulla ei ole mahdollisuutta etätyöskentelyyn, niin mieti olisiko mahdollista ottaa muutama päivä vapaata.
 

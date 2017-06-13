@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Haistelulaatikko on vaikeampi versio [fleecematosta](http://minimuutti.com/aktivointi/fleecematto/).
+Haistelulaatikko on vaikeampi versio [fleecematosta](/aktivointi/fleecematto/).
 
 Laitoin ensin fleecematon pahvilaatikon pohjalle. Sitten laitoin tennispalloja, pesupalloja ja kolme pitkää fleecestä tehtyä lettiä siihen päälle esteeksi. Jos sinulla ei satu olemaan juuri näitä tarvikkeita niin älä huolehdi, tässä saa ihan vapaasti improvisoida.
 

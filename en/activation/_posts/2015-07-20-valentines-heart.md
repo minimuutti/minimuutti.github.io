@@ -23,7 +23,7 @@ At this point, I cut small slices of semi-moist chicken and duck fillet and plac
 
 It took Miki about 7 minutes to get all the treats out from one valentine's heart.
 
-When I had cut out all the cardboard hearts I needed, I realized that the one of the cardboard boxes was perfect for the [peek a hole](http://minimuutti.com/en/activation/peek-a-hole/) game. So that game has now an official valentine's day edition, which I made for my best furry buddy :)
+When I had cut out all the cardboard hearts I needed, I realized that the one of the cardboard boxes was perfect for the [peek a hole](/en/activation/peek-a-hole/) game. So that game has now an official valentine's day edition, which I made for my best furry buddy :)
 
 ---
 

@@ -19,7 +19,7 @@ Put any food or treats inside an egg carton, close it and give it to your dog. I
 
 ##### Game 2:
 
-You can also make [paper balls](http://minimuutti.com/en/activation/small-games/#paperballs) and fill a carton with them. Or you can push the paper balls to the holes beneath the carton. It took Miki about 4 minutes to get the treats out.
+You can also make [paper balls](/en/activation/small-games/#paperballs) and fill a carton with them. Or you can push the paper balls to the holes beneath the carton. It took Miki about 4 minutes to get the treats out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADd1jdBF9dJyeLywPrRlmROa/aktivointi/kananmunakotelot/DS12656-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABYOIDNB1Hlcd5BKbjGWNl7a/aktivointi/kananmunakotelot/DS12656.jpg)
 
@@ -77,7 +77,7 @@ I've also given these plastic egg cartons to Miki. If your dog tends to eat some
 
 You need a larger carton, for example a plastic tray from easter egg package for these games.
 
-At first I turned the tray upside down and I put some kibbles on the holes of the tray. Later on I put small corals as obstacles. Learn how to crochet corals in [here](http://minimuutti.com/en/activation/corals/).
+At first I turned the tray upside down and I put some kibbles on the holes of the tray. Later on I put small corals as obstacles. Learn how to crochet corals in [here](/en/activation/corals/).
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACkfeb554LbhYjszkVwlIkCa/aktivointi/kananmunakotelot/DS10446_-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB41s8Se8wHakPMOOmHiJsya/aktivointi/kananmunakotelot/DS10446_.jpg)
 

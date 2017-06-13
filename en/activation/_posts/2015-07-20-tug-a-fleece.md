@@ -45,7 +45,7 @@ If you don't have a Kong Genius toy you can make a similar game with the same si
 
 First I put a handful of kibbles and some small treats inside the bottle. Then I rolled one end of the fleece into a tight roll and pushed the fleece into the bottle but left about 7cm tail outside.
 
-If you have never given any bottles to your dog before, I recommend that you first give him just the [bottle](http://minimuutti.com/en/activation/soda-bottle/) with some treats. You can then add the fleece later when your dog has learned how to get the treats out from the empty bottle.
+If you have never given any bottles to your dog before, I recommend that you first give him just the [bottle](/en/activation/soda-bottle/) with some treats. You can then add the fleece later when your dog has learned how to get the treats out from the empty bottle.
 
 When I gave Miki this bottle with fleece for the first time it took Miki about 2 minutes to get the fleece and the treats out from the bottle.
 

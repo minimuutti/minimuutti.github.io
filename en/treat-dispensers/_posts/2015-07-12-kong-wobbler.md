@@ -11,7 +11,7 @@ With Kong Wobbler (size L) I use kibbles. Miki learned the idea of this toy very
 
 So then I wondered how I could make this otherwise great toy harder. I cut about 20 x 20 cm (about 8" x 8") piece from a towel, and put it in the toy along with the kibbles. That slowed Miki about a minute, so then it took Miki two or three minutes to get the kibbles out.
 
-You can also put some tennis balls or some other soft balls inside the toy with the kibbles. Once I put a washing liquid ball in the toy, and it took Miki about five minutes to get all the kibbles out. Or you can put another toy inside, like this [Space Ball Stellaron](http://minimuutti.com/en/treat-dispensers/space-ball-stellaron/) toy.
+You can also put some tennis balls or some other soft balls inside the toy with the kibbles. Once I put a washing liquid ball in the toy, and it took Miki about five minutes to get all the kibbles out. Or you can put another toy inside, like this [Space Ball Stellaron](/en/treat-dispensers/space-ball-stellaron/) toy.
 
 ---
 

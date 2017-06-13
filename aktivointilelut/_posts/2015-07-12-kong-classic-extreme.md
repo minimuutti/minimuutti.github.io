@@ -30,18 +30,18 @@ Lisäksi kesäisin olen tehnyt Mikille omia koiranjäätelöitä. Laitan joko la
 
 Tätä lelua on käytetty myös seuraavissa tehtävissä:
 
-[Tötteröt:](http://minimuutti.com/aktivointi/totterot/)
+[Tötteröt:](/aktivointi/totterot/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOZAAx7MN9lSDAZuzxKTyPa/aktivointi/totterot/DSC40378-800px.jpg)](http://minimuutti.com/aktivointi/totterot/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOZAAx7MN9lSDAZuzxKTyPa/aktivointi/totterot/DSC40378-800px.jpg)](/aktivointi/totterot/)
 
-[Putkipiilo:](http://minimuutti.com/aktivointi/putkipiilo/)
+[Putkipiilo:](/aktivointi/putkipiilo/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADb_1jJmaZ2HAOTX1KXkhLDa/aktivointi/putkipiilo/DSC47917-800px.jpg)](http://minimuutti.com/aktivointi/putkipiilo/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADb_1jJmaZ2HAOTX1KXkhLDa/aktivointi/putkipiilo/DSC47917-800px.jpg)](/aktivointi/putkipiilo/)
 
-[Pehmopanda:](http://minimuutti.com/aktivointi/pehmopanda/)
+[Pehmopanda:](/aktivointi/pehmopanda/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAovy7RC8sMOubZ18cCUyvxa/aktivointi/pehmopanda/DSC49437-800px.jpg)](http://minimuutti.com/aktivointi/pehmopanda/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAovy7RC8sMOubZ18cCUyvxa/aktivointi/pehmopanda/DSC49437-800px.jpg)](/aktivointi/pehmopanda/)
 
-[Kongit mukeissa:](http://minimuutti.com/aktivointi/kongit-mukeissa/)
+[Kongit mukeissa:](/aktivointi/kongit-mukeissa/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAPad9TgyJqORWgVqVVHFZ1a/aktivointi/kongit-mukeissa/DSC48179-800px.jpg)](http://minimuutti.com/aktivointi/kongit-mukeissa/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAPad9TgyJqORWgVqVVHFZ1a/aktivointi/kongit-mukeissa/DSC48179-800px.jpg)](/aktivointi/kongit-mukeissa/)

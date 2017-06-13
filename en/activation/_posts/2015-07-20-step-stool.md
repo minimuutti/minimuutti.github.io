@@ -17,7 +17,7 @@ It took Miki about a minute in each game to find all the treats.
 
 ###### Game 1: Corals
 
-You can find the directions how to make corals from [here](http://minimuutti.com/en/activation/corals/).
+You can find the directions how to make corals from [here](/en/activation/corals/).
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADhLYak8fFx2n1cAU-jWe_Sa/aktivointi/jakkara/DS00935-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAsjqewDgq07rL9qLkikS92a/aktivointi/jakkara/DS00935.jpg)
 

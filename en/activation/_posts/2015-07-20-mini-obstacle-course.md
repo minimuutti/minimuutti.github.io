@@ -9,7 +9,7 @@ image:
 
 You can make a mini version of the obstacle course.
 
-I made the first [obstacle course](http://minimuutti.com/en/activation/obstacle-course/) with large items and Miki needed to navigate between them to get through. I made this mini obstacle course with small items, mostly Miki's toys, which I placed on the floor close to each other.
+I made the first [obstacle course](/en/activation/obstacle-course/) with large items and Miki needed to navigate between them to get through. I made this mini obstacle course with small items, mostly Miki's toys, which I placed on the floor close to each other.
 
 The idea of this game is that Miki needs to think where he places his paws when he searches the kibble amongst the toys. In addition he needs to use his nose to find the kibble.
 

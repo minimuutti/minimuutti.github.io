@@ -17,7 +17,7 @@ Kokeilin myös laittaa lelun sisälle 10 kpl näitä [Nutrivet Instinct Dog Trea
 
 Mikiltä kesti 9 minuuttia saada nämä namit ulos tuolta :)
 
-Kerran vaikeutin tätä niin, että laitoin lelun sisälle pesupallon, johon nappulat jäivät sopivasti jumiin. Mikiltä kesti tällöin lelun tyhjentäminen noin 5 minuuttia. Olen kokeillut myös tätä [Space Ball Stellaron](http://minimuutti.com/aktivointilelut/space-ball-stellaron/) -lelua ja sekin hidasti tämän Kongin tyhjentämistä parilla minuutilla.
+Kerran vaikeutin tätä niin, että laitoin lelun sisälle pesupallon, johon nappulat jäivät sopivasti jumiin. Mikiltä kesti tällöin lelun tyhjentäminen noin 5 minuuttia. Olen kokeillut myös tätä [Space Ball Stellaron](/aktivointilelut/space-ball-stellaron/) -lelua ja sekin hidasti tämän Kongin tyhjentämistä parilla minuutilla.
 
 ---
 

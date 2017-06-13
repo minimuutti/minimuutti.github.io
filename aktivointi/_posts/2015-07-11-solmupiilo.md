@@ -49,7 +49,7 @@ Laitoin ensin pullon pohjalle kourallisen nappuloita sekä muutaman pienen [Cosm
 
 Kun olin laittanut nappulat ja herkut pulloon, niin kieputin fleecen pään pieneksi putkiloksi, jotta sain pään työnnettyä pullon sisälle. Tämän jälkeen työnsin loputkin fleecestä pullon sisään, mutta jätin fleecestä pienen pätkän näkyviin.
 
-Mikäli et ole koskaan aiemmin antanut mitään pulloa koirallesi, niin suosittelen aloittamaan pelkällä [limupullolla](http://minimuutti.com/aktivointi/limupullo/) ja herkuilla. Fleecellä voi vaikeuttaa tehtävää sitten myöhemmin, kun koirasi on jo oppinut kuinka herkut saa ulos tyhjästä pullosta.
+Mikäli et ole koskaan aiemmin antanut mitään pulloa koirallesi, niin suosittelen aloittamaan pelkällä [limupullolla](/aktivointi/limupullo/) ja herkuilla. Fleecellä voi vaikeuttaa tehtävää sitten myöhemmin, kun koirasi on jo oppinut kuinka herkut saa ulos tyhjästä pullosta.
 
 Mikiltä kesti ensimmäisellä kerralla noin 2 minuuttia saada fleece sekä namit ulos pullosta.
 

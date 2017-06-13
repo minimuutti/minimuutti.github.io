@@ -9,9 +9,9 @@ image:
 
 I choose a Nescafe jar for this game because of the narrower section in the middle of the jar. You can use any jars for this game, but I recommend using only plastic ones.
 
-I used some crocheted corals as obstacles and they were slightly smaller than I normally use, about 5-6 cm (2") in diameter. Learn how to crochet corals in [here](http://minimuutti.com/en/activation/corals/).
+I used some crocheted corals as obstacles and they were slightly smaller than I normally use, about 5-6 cm (2") in diameter. Learn how to crochet corals in [here](/en/activation/corals/).
 
-If you don't want to make corals, you can make similar game with [paper balls](http://minimuutti.com/en/activation/small-games/#paperballs).
+If you don't want to make corals, you can make similar game with [paper balls](/en/activation/small-games/#paperballs).
 
 I thought this game would be difficult, so first I gave the jar to Miki with only some kibbles on the bottom. The kibbles vanished in seconds :D
 

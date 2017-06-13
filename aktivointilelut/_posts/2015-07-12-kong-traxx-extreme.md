@@ -31,20 +31,20 @@ Tätä rengasta voi helposti vaikeuttaa, mikäli omistat myös klassisen lumiukk
 
 Tätä lelua on käytetty myös tehtävissä:
 
-[Kong Traxx ja pyyhe:](http://minimuutti.com/aktivointi/kong-traxx-ja-pyyhe/)
+[Kong Traxx ja pyyhe:](/aktivointi/kong-traxx-ja-pyyhe/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADE-txlKM-zMtbe0Dg3DFaoa/aktivointi/kong-traxx-ja-pyyhe/DSC57081-800px.jpg)](http://minimuutti.com/aktivointi/kong-traxx-ja-pyyhe/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADE-txlKM-zMtbe0Dg3DFaoa/aktivointi/kong-traxx-ja-pyyhe/DSC57081-800px.jpg)](/aktivointi/kong-traxx-ja-pyyhe/)
 
-[Fleecekiepit:](http://minimuutti.com/aktivointi/fleecekiepit/)
+[Fleecekiepit:](/aktivointi/fleecekiepit/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD3-pPBBv4bmldatbgMzZj8a/aktivointi/fleecekiepit/DS06648-800px.jpg)](http://minimuutti.com/aktivointi/fleecekiepit/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD3-pPBBv4bmldatbgMzZj8a/aktivointi/fleecekiepit/DS06648-800px.jpg)](/aktivointi/fleecekiepit/)
 
-[Lelut tikussa:](http://minimuutti.com/aktivointi/lelut-tikussa/)
+[Lelut tikussa:](/aktivointi/lelut-tikussa/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADKJKsDBn_QIru8kDvuUbO5a/aktivointi/lelut-tikussa/DS07913-800px.jpg)](http://minimuutti.com/aktivointi/lelut-tikussa/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADKJKsDBn_QIru8kDvuUbO5a/aktivointi/lelut-tikussa/DS07913-800px.jpg)](/aktivointi/lelut-tikussa/)
 
-[Yhdistetyt lelut:](http://minimuutti.com/aktivointilelut/yhdistetyt-lelut/)
+[Yhdistetyt lelut:](/aktivointilelut/yhdistetyt-lelut/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACNRPAizIA9or6AtcYVWA8Ja/aktivointilelut/muut/DS11210-800px.jpg)](http://minimuutti.com/aktivointilelut/yhdistetyt-lelut/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACNRPAizIA9or6AtcYVWA8Ja/aktivointilelut/muut/DS11210-800px.jpg)](/aktivointilelut/yhdistetyt-lelut/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVdyKh5IiXBOlvKuKfkuwna/aktivointilelut/muut/DS11052-800px.jpg)](http://minimuutti.com/aktivointilelut/yhdistetyt-lelut/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVdyKh5IiXBOlvKuKfkuwna/aktivointilelut/muut/DS11052-800px.jpg)](/aktivointilelut/yhdistetyt-lelut/)

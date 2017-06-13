@@ -7,9 +7,9 @@ image:
   thumb:
 ---
 
-Nämä pelit ovat saman kaltaisia kuin [Tuubin pyöritys](http://minimuutti.com/aktivointi/tuubin-pyoritys/) peli, mutta tässä on kuvattuna erilaisia vaihtoehtoja.
+Nämä pelit ovat saman kaltaisia kuin [Tuubin pyöritys](/aktivointi/tuubin-pyoritys/) peli, mutta tässä on kuvattuna erilaisia vaihtoehtoja.
 
-Kiinnitin nämä pelit samaan telineeseen jossa on Tuubin pyöritys peli, joten voit katsoa telineeseen ohjeita [täältä](http://minimuutti.com/aktivointi/tuubin-pyoritys/).
+Kiinnitin nämä pelit samaan telineeseen jossa on Tuubin pyöritys peli, joten voit katsoa telineeseen ohjeita [täältä](/aktivointi/tuubin-pyoritys/).
 
 Otin noin 20 cm pitkän pätkän onttoa putkea, työnsin köyden sen lävitse ja kiinnitin sen telineeseen.
 

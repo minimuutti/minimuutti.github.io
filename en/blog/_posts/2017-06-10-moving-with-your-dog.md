@@ -9,7 +9,7 @@ image:
 
 When you are moving with your dog it's essential to prep him beforehand.
 
-Many dogs tend to stress when there are changes in their lives. Some dogs may not show strong stress signals or some dog owners might miss those subtle signs. You can learn about subtle calming signals that are related to dogs' stress in [here](http://minimuutti.com/en/blog/dog-body-language-calming-signals/).
+Many dogs tend to stress when there are changes in their lives. Some dogs may not show strong stress signals or some dog owners might miss those subtle signs. You can learn about subtle calming signals that are related to dogs' stress in [here](/en/blog/dog-body-language-calming-signals/).
 
 Miki is no exception and he usually get stressed about everything. I'm writing this post because we just moved and I wanted to share my experiences about moving with a dog.
 
@@ -57,7 +57,7 @@ Later on I moved some larger boxes and chairs from one room to another and rewar
 
 We also practiced that my spouse carried stuff outside our apartment to the hallway and I rewarded Miki for staying calmly inside with me.
 
-As we practised these situations we simultaneously practised for a situation where I "accidentally" dropped the leash. When the other end of the leash dropped onto the floor and Miki stopped I marked that behaviour and gave him a reward. That gave me an idea that I should teach that to Miki whether we were moving or not. Everytime the leash drops he stops :) 
+As we practised these situations we simultaneously practised for a situation where I "accidentally" dropped the leash. When the other end of the leash dropped onto the floor and Miki stopped I marked that behaviour and gave him a reward. That gave me an idea that I should teach that to Miki whether we were moving or not. Everytime the leash drops he stops :)
 
 ##### Alternative 2: I take Miki to daycare to my mum on the morning we are moving and we move our stuff as quickly as possible so that I'm able to pick him up before he needs to go outside to do his business.
 
@@ -87,7 +87,7 @@ New furniture can also stress your dog because they smell unfamiliar. If you are
 
 If you need to move because of your work and your working hours changes simultaneously, think if it's possible to change to this new daily schedule before you move. Then your dog would be able to adjust to this new routine beforehand.
 
-We cleaned our new apartment a day before we moved in. I left Miki's fleece mat with lots of treats and some toys there so when I took Miki there for the first time his beloved things were already there waiting for him. 
+We cleaned our new apartment a day before we moved in. I left Miki's fleece mat with lots of treats and some toys there so when I took Miki there for the first time his beloved things were already there waiting for him.
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADCISgDEw1-6qwhFcd2T3DAa/blogi/DS55945-800px.jpg)
 
@@ -97,7 +97,7 @@ We cleaned our new apartment a day before we moved in. I left Miki's fleece mat 
 
 If you have any issues with your dog (nail clipping, doorbell, a mailman or whatever) a move is a great opportunity to tackle the issues. The new setting (new home, new smells, new sounds, new surroundings etc.) allows you to start off from a clean slate.
 
-You can read more about desencitizing from [here](http://minimuutti.com/en/activation/desensitizing/).
+You can read more about desencitizing from [here](/en/activation/desensitizing/).
 
 Fortunately Miki hasn't ever had any major issues. We do have some issues when we are drying him after a shower. Miki lets me dry him with a towel but he whines a lot so he's not very pleased. I can't dry a wet dog anywhere else but in the bathroom so my choice was to show the new bathroom in a different light to him after we moved.
 

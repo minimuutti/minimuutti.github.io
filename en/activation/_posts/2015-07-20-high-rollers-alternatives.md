@@ -7,9 +7,9 @@ image:
   thumb:
 ---
 
-These games are similar as the [High roller](http://minimuutti.com/en/activation/high-roller/) game but here are some alternatives.
+These games are similar as the [High roller](/en/activation/high-roller/) game but here are some alternatives.
 
-I attached these games on the same cardboard holder as the High roller game is attached and you can see some instructions in [here](http://minimuutti.com/en/activation/high-roller/).
+I attached these games on the same cardboard holder as the High roller game is attached and you can see some instructions in [here](/en/activation/high-roller/).
 
 I took about 20 cm long piece of a hollow pipe and pushed a rope through it and tied it to the holder.
 

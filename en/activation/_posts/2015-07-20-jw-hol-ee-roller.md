@@ -57,7 +57,7 @@ This game needs a little more time and effort but I still recommend you to try t
 
 It took Miki about 10 minutes to get all the treats out.
 
-You can find the directions how to make a textile ball in [here](http://minimuutti.com/en/activation/textile-ball/). 
+You can find the directions how to make a textile ball in [here](/en/activation/textile-ball/).
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABaINOKyFdp-Pe_4HIKCDsxa/aktivointi/jw-hol-ee-roller/DSC50828-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABUX_0gCJ8KPTouoH-6RVwBa/aktivointi/jw-hol-ee-roller/DSC50828.jpg)
 

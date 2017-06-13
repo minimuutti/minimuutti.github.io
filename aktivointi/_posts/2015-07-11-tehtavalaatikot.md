@@ -77,7 +77,7 @@ Pienemmät kartonkilaatikot voi myös täyttää näillä paperipalloilla ja tei
 
 Jos paperipalloja on vielä jäljellä, laitan ne irrallaan sinne isoon pahvilaatikkoon ja loput nappulat voi ripotella sinne väleihin.
 
-Laatikkoon voi näiden lisäksi laittaa muitakin pieniä tehtäviä, kuten vaikka [DVD kotelon](http://minimuutti.com/aktivointi/dvd-kotelo/), ruokaa sisältävän aktivointilelun, [lehtirullan](http://minimuutti.com/aktivointi/lehtirulla/), [kangaspallon](http://minimuutti.com/aktivointi/kangaspallo/), [farkkusolmun](http://minimuutti.com/aktivointi/farkkusolmu/) tai vaikka näitä [laavalamppuja](http://minimuutti.com/aktivointi/laavalamput/).
+Laatikkoon voi näiden lisäksi laittaa muitakin pieniä tehtäviä, kuten vaikka [DVD kotelon](/aktivointi/dvd-kotelo/), ruokaa sisältävän aktivointilelun, [lehtirullan](/aktivointi/lehtirulla/), [kangaspallon](/aktivointi/kangaspallo/), [farkkusolmun](/aktivointi/farkkusolmu/) tai vaikka näitä [laavalamppuja](/aktivointi/laavalamput/).
 
 Mikillä kestää tällaisen vaikeutetun tehtävälaatikon tyhjäksi syöminen noin 10-15 minuuttia. Ja tehtävää vaikeuttaa tuon ison pahvilaatikon kansi, kun Mikin on ensin aina avattava tuo kansi saadakseen sieltä sisältä uuden tehtävän. Kannen saa auki vain nostamalla sitä vasemmasta reunasta (muilta reunoilta reunalipare on irrotettu).  Jos kansi joskus jää auki, niin laitan sen kiinni jotta Mikillä olisi enemmän työtä.
 
@@ -111,24 +111,24 @@ Tässä vielä kuva laatikkotempusta:
 
 Mikillä vaikutti olevan taas liikaa energiaa, eli oli aika ottaa kovat panokset käyttöön. Tein sitten Mikille tämän kaikkien aikojen vaikeimman tehtävälaatikon, joka sisälsi:
 
-- 6 muovimukia, 6 pahvimukia, 4 tennispalloa ja 2 Kong Classic lelua paketoituna kuudeksi [tuplatötteröksi](http://minimuutti.com/aktivointi/totterot/).
-- 2 muovista [kannellista rasiaa](http://minimuutti.com/aktivointi/kannelliset-rasiat/)
-- 3 [dermosil pulloa](http://minimuutti.com/aktivointi/dermosil-pullot/)
-- 2 [limupulloa](http://minimuutti.com/aktivointi/limupullo/)
+- 6 muovimukia, 6 pahvimukia, 4 tennispalloa ja 2 Kong Classic lelua paketoituna kuudeksi [tuplatötteröksi](/aktivointi/totterot/).
+- 2 muovista [kannellista rasiaa](/aktivointi/kannelliset-rasiat/)
+- 3 [dermosil pulloa](/aktivointi/dermosil-pullot/)
+- 2 [limupulloa](/aktivointi/limupullo/)
 - 2 koirannamituubia
-- 1 kiinni teipattu muropaketti, jonka sisällä oli 20 [paperipalloa](http://minimuutti.com/aktivointi/minitehtavia/#paperipallot), joissa jokaisessa oli 1 nappula
-- 15 pientä [jogurttipulloa](http://minimuutti.com/aktivointi/jogurttipullot/)
+- 1 kiinni teipattu muropaketti, jonka sisällä oli 20 [paperipalloa](/aktivointi/minitehtavia/#paperipallot), joissa jokaisessa oli 1 nappula
+- 15 pientä [jogurttipulloa](/aktivointi/jogurttipullot/)
 - 3 [pilleripurkkia](http://localhost:4000/aktivointi/pilleripurkit/)
 - 1 pyyheliina solmittuna
-- 2 rullattua pyyheliinaa [JW Hol-ee Rollerin](http://minimuutti.com/aktivointi/jw-hol-ee-roller/) sisällä
+- 2 rullattua pyyheliinaa [JW Hol-ee Rollerin](/aktivointi/jw-hol-ee-roller/) sisällä
 - 1 pieni pahvikotelo
-- 2 [Kong Genius Leoa](http://minimuutti.com/aktivointilelut/kong-genius-leo/)
-- 1 [Kong Genius Mike](http://minimuutti.com/aktivointilelut/kong-genius-mike/)
-- 1 [Kong Traxx](http://minimuutti.com/aktivointilelut/kong-traxx-extreme/)
-- 1 [Busy Buddy Twist'n Treat](http://minimuutti.com/aktivointilelut/busy-buddy-twistn-treat/)
-- 1 [kannellinen koirannamirasia](http://minimuutti.com/aktivointi/kannelliset-rasiat/)
+- 2 [Kong Genius Leoa](/aktivointilelut/kong-genius-leo/)
+- 1 [Kong Genius Mike](/aktivointilelut/kong-genius-mike/)
+- 1 [Kong Traxx](/aktivointilelut/kong-traxx-extreme/)
+- 1 [Busy Buddy Twist'n Treat](/aktivointilelut/busy-buddy-twistn-treat/)
+- 1 [kannellinen koirannamirasia](/aktivointi/kannelliset-rasiat/)
 - 1 pesupallo
-- 1 kiinni teipattu pieni Pringlestuubi jossa oli reijät kyljessä (kts. [purkinpyöritys](http://minimuutti.com/aktivointi/purkin-pyoritys/))
+- 1 kiinni teipattu pieni Pringlestuubi jossa oli reijät kyljessä (kts. [purkinpyöritys](/aktivointi/purkin-pyoritys/))
 
 Kaikki nämä olivat kannellisen pahvilaatikon sisällä, paitsi tuo muropaketti. Ja kaikissa tehtävissä oli sisällä muutamia nappuloita, paitsi aktivointileluissa nappuloita oli enemmän.
 

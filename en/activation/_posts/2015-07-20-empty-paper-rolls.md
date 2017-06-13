@@ -74,11 +74,11 @@ You can put as many paper rolls as needed to fill a carton package. I put some k
 
 #### Rolls in a box II
 
-I placed about 40 rolls vertically into a box and then sprinkled some kibbles inside the rolls and between them. 
+I placed about 40 rolls vertically into a box and then sprinkled some kibbles inside the rolls and between them.
 
 It took Miki about 7 minutes to eat all the kibbles.
 
-If you don't have enough empty rolls for this game, you can try this similar game "[Paper rolls in a box](http://minimuutti.com/en/activation/paper-rolls-in-a-box/)".
+If you don't have enough empty rolls for this game, you can try this similar game "[Paper rolls in a box](/en/activation/paper-rolls-in-a-box/)".
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAVY2POv5udikUhj7OMQyy0a/aktivointi/paperirullien-hylsyt/DS20931-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACBdJ6b5tRVXpQYDF30GFYma/aktivointi/paperirullien-hylsyt/DS20931.jpg)
 
@@ -242,7 +242,7 @@ It took Miki about 4 minutes to get all the treats out.
 
 #### Ring balls
 
-I cut some empty rolls to rings. Then I inserted about 4-5 rings into the others and put one large treat inside every ball. 
+I cut some empty rolls to rings. Then I inserted about 4-5 rings into the others and put one large treat inside every ball.
 
 It took Miki about 2-3 minutes to get the treats out from 6 balls.
 
@@ -286,6 +286,6 @@ It took Miki about 5 minutes to get the treats out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABH2wdIRJrgTyFmGyvSbqKUa/aktivointi/paperirullien-hylsyt/DSC41270-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC5GOLE6I5YMz9QefRuKOgna/aktivointi/paperirullien-hylsyt/DSC41270.jpg)
 
-Empty paper rolls are also used in the [Dumbbells](http://minimuutti.com/en/activation/dumbbells/) game.
+Empty paper rolls are also used in the [Dumbbells](/en/activation/dumbbells/) game.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACAu2WiIDahMkVqGcOxFO2Ua/aktivointi/Palloputket/DS38807-800px.jpg)](http://minimuutti.com/en/activation/dumbbells/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACAu2WiIDahMkVqGcOxFO2Ua/aktivointi/Palloputket/DS38807-800px.jpg)](/en/activation/dumbbells/)

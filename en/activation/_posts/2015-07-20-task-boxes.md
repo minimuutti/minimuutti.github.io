@@ -69,7 +69,7 @@ You need one big cardboard box with a lid, three or four small carton packages, 
 
 I start by making 40 to 50 paper balls, one or two kibble or a treat in each. Then I put some of these paper balls inside the smaller boxes and tape them around. Then I put these small boxes in the big box. If there’s any paper balls left, I put them in the big box as well. If I have any kibble or treats left, I sprinkle them in the big box as well.
 
-You can put other small tasks in the big box as well, like [DVD case](http://minimuutti.com/en/activation/dvd-case/), a treat dispenser toy, [magazine roll](http://minimuutti.com/en/activation/magazine-roll/), [textile ball](http://minimuutti.com/en/activation/textile-ball/) or even these [lava lamps](http://minimuutti.com/en/activation/lava-lamps/).
+You can put other small tasks in the big box as well, like [DVD case](/en/activation/dvd-case/), a treat dispenser toy, [magazine roll](/en/activation/magazine-roll/), [textile ball](/en/activation/textile-ball/) or even these [lava lamps](/en/activation/lava-lamps/).
 
 This task box is harder because of the lid in the big box. Your dog has to open the lid each time he wants to get something out from it. When sometimes the big box’s lid remains open, I simply close it so Miki needs to open it again.
 
@@ -97,30 +97,30 @@ Picture about the box trick
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD6_UmU-uFOpm-wMCJ7QsDUa/temput/1/DSC27270_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAna8L0dyOdmh264m6hFBw3a/temput/1/DSC27270_2.jpg)
 
-### 4. Hardest task box ever - only for dogs that are experienced and well motivated to search for their food 
+### 4. Hardest task box ever - only for dogs that are experienced and well motivated to search for their food
 
 Miki seemed to have way too much energy when we were on our daily walk, so I had to make him a good mental challenge to drain that excess energy.
 
 I made this - the hardest task box ever, which included:
 
-- 6 plastic cups, 6 paper cups, 4 tennis balls and 2 Classic Kong toys, combined to six [double cones](http://minimuutti.com/en/activation/cones/)
-- 2 [cups with lids](http://minimuutti.com/en/activation/cans-with-lids/)
-- 3 [dermosil bottles](http://minimuutti.com/en/activation/dermosil-bottles/)
-- 2 [soda bottles](http://minimuutti.com/en/activation/soda-bottle/)
+- 6 plastic cups, 6 paper cups, 4 tennis balls and 2 Classic Kong toys, combined to six [double cones](/en/activation/cones/)
+- 2 [cups with lids](/en/activation/cans-with-lids/)
+- 3 [dermosil bottles](/en/activation/dermosil-bottles/)
+- 2 [soda bottles](/en/activation/soda-bottle/)
 - 2 dog treat tubes
-- 1 taped cereal package, which had 20 [paper balls](http://minimuutti.com/en/activation/small-games/#paperballs) inside (and one kibble in each ball)
-- 15 small [yoghurt bottles](http://minimuutti.com/en/activation/yoghurt-bottles/)
+- 1 taped cereal package, which had 20 [paper balls](/en/activation/small-games/#paperballs) inside (and one kibble in each ball)
+- 15 small [yoghurt bottles](/en/activation/yoghurt-bottles/)
 - 3 [pill jars](http://localhost:4000/en/activation/pill-jars/)
 - 1 towel tied to a knot
-- 2 rolled towels inside a [JW Hol-ee Roller](http://minimuutti.com/en/activation/jw-hol-ee-roller/) toy
+- 2 rolled towels inside a [JW Hol-ee Roller](/en/activation/jw-hol-ee-roller/) toy
 - 1 small carton package
-- 2 [Kong Genius Leo](http://minimuutti.com/en/treat-dispensers/kong-genius-leo/) toys
-- 1 [Kong Genius Mike](http://minimuutti.com/en/treat-dispensers/kong-genius-mike/) toy
-- 1 [Kong Traxx](http://minimuutti.com/en/treat-dispensers/kong-traxx-extreme/) toy
-- 1 [Busy Buddy Twist'n Treat](http://minimuutti.com/en/treat-dispensers/busy-buddy-twistn-treat/) toy
-- 1 [can with lid](http://minimuutti.com/en/activation/cans-with-lids/)
+- 2 [Kong Genius Leo](/en/treat-dispensers/kong-genius-leo/) toys
+- 1 [Kong Genius Mike](/en/treat-dispensers/kong-genius-mike/) toy
+- 1 [Kong Traxx](/en/treat-dispensers/kong-traxx-extreme/) toy
+- 1 [Busy Buddy Twist'n Treat](/en/treat-dispensers/busy-buddy-twistn-treat/) toy
+- 1 [can with lid](/en/activation/cans-with-lids/)
 - 1 laundry liquid ball
-- 1 [kibble dispenser](http://minimuutti.com/en/activation/kibble-dispenser/)
+- 1 [kibble dispenser](/en/activation/kibble-dispenser/)
 
 I put all of these tasks inside a cardboard box with lid, except the cereal package. And I used only kibble for these tasks. I put several kibble in the rubber toys but only 1-5 to the other tasks.
 

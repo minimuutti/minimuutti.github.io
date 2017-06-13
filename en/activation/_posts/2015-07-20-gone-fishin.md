@@ -13,7 +13,7 @@ I chose a large protein jar (about 30 cm (12") high) for this game because of it
 
 First I washed and dried the jar thoroughly. I tied a piece of rope to a paper cup's handles and to the other end I tied a wooden block as a handle. At the end the rope was approximately 35 cm (14") long.
 
-With this game we also started with something easy. First I made a similar game as the [Cup in the tube](http://minimuutti.com/en/activation/cup-in-the-tube/). I put the jar on its side on the floor, put a small piece of duck fillet into the cup and then I placed the cup inside the jar.
+With this game we also started with something easy. First I made a similar game as the [Cup in the tube](/en/activation/cup-in-the-tube/). I put the jar on its side on the floor, put a small piece of duck fillet into the cup and then I placed the cup inside the jar.
 
 Miki knew right away that he needed to pull on the rope to get the cup out.
 

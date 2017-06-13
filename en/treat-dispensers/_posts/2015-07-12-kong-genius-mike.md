@@ -23,6 +23,6 @@ I have also tried some soft treats with this toy, like a slice of ham or a slice
 
 I’ve used this toy also in the game:
 
-[Treat tube:](http://minimuutti.com/en/activation/treat-tube/)
+[Treat tube:](/en/activation/treat-tube/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACvGxg0oMZqHsIKH5yMZPi7a/aktivointi/putkipiilo/DSC47941-800px.jpg)](http://minimuutti.com/en/activation/treat-tube/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACvGxg0oMZqHsIKH5yMZPi7a/aktivointi/putkipiilo/DSC47941-800px.jpg)](/en/activation/treat-tube/)

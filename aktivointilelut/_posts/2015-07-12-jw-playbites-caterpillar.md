@@ -27,10 +27,10 @@ Yleensä laitan leluun kuivatusta kanafileestä leikattuja palasia. Mikillä kes
 
 Tätä lelua on käytetty myös tehtävissä:
 
-[Fleecekiepit:](http://minimuutti.com/aktivointi/fleecekiepit/)
+[Fleecekiepit:](/aktivointi/fleecekiepit/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACLOvk9Yb9PLXrqbY3hwRbTa/aktivointi/fleecekiepit/DS06789-800px.jpg)](http://minimuutti.com/aktivointi/fleecekiepit/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACLOvk9Yb9PLXrqbY3hwRbTa/aktivointi/fleecekiepit/DS06789-800px.jpg)](/aktivointi/fleecekiepit/)
 
-[Yhdistetyt lelut:](http://minimuutti.com/aktivointilelut/yhdistetyt-lelut/)
+[Yhdistetyt lelut:](/aktivointilelut/yhdistetyt-lelut/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACNRPAizIA9or6AtcYVWA8Ja/aktivointilelut/muut/DS11210-800px.jpg)](http://minimuutti.com/aktivointilelut/yhdistetyt-lelut/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACNRPAizIA9or6AtcYVWA8Ja/aktivointilelut/muut/DS11210-800px.jpg)](/aktivointilelut/yhdistetyt-lelut/)

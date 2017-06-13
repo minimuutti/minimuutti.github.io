@@ -21,7 +21,7 @@ Mikiltä kestää teipatun kotelon tuhoaminen noin 1-2 minuuttia.
 
 ##### Tehtävä 2:
 
-Pakkauksen voi myös täyttää [paperipalloilla](http://minimuutti.com/aktivointi/minitehtavia/#paperipallot), joiden sisällä herkut on piilossa tai paperipallot voi tunkea pakkauksen alla oleviin koloihin. Yleensä vaikeutan tätäkin tehtävää teippaamalla paketin kiinni.
+Pakkauksen voi myös täyttää [paperipalloilla](/aktivointi/minitehtavia/#paperipallot), joiden sisällä herkut on piilossa tai paperipallot voi tunkea pakkauksen alla oleviin koloihin. Yleensä vaikeutan tätäkin tehtävää teippaamalla paketin kiinni.
 
 Mikiltä kestää namien saaminen teipatusta pakkauksesta noin 4 minuuttia.
 
@@ -87,7 +87,7 @@ Kotelot tarjoavat sen verran haastetta, etten ole koskaan teipannut niitä. Mik�
 
 Mikäli sinulla on isompia kananmunakennoja tai tällainen pääsiäismunista saatu alusta, niin näistäkin saa kivoja tehtäviä koiralle.
 
-Ensin käänsin alustan ympäri ja laitoin koloihin nappuloita. Myöhemmin laitoin esteeksi pieniä koralleja. Korallien teko-ohjeen löydät [täältä](http://minimuutti.com/aktivointi/korallit/).
+Ensin käänsin alustan ympäri ja laitoin koloihin nappuloita. Myöhemmin laitoin esteeksi pieniä koralleja. Korallien teko-ohjeen löydät [täältä](/aktivointi/korallit/).
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACkfeb554LbhYjszkVwlIkCa/aktivointi/kananmunakotelot/DS10446_-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB41s8Se8wHakPMOOmHiJsya/aktivointi/kananmunakotelot/DS10446_.jpg)
 

@@ -11,7 +11,7 @@ Tämä absolute dogs'n peli lisää koiran itsevarmuutta ja samalla valmistelee 
 
 Voit ladata ilmaisen englanninkielisen e-kirjan [absolute dogs'n](https://nbn.absolute-dogs.com/opt-in) sivuilta.
 
-Kirjassa neuvotaan käyttämään jotain tötteröä tai kartiota. Meillä ei sellaista ollut, joten improvisoin ja käytin [Kong Wobblerin](http://minimuutti.com/aktivointilelut/kong-wobbler/) yläosaa, joka sopi tehtävään aivan loistavasti :)
+Kirjassa neuvotaan käyttämään jotain tötteröä tai kartiota. Meillä ei sellaista ollut, joten improvisoin ja käytin [Kong Wobblerin](/aktivointilelut/kong-wobbler/) yläosaa, joka sopi tehtävään aivan loistavasti :)
 
 Tötteröön laitetaan pieni herkku tai nappula ja koiran tulee uskaltaa laittaa kuononsa tötterön sisälle josta itse pidellään kiinni.
 

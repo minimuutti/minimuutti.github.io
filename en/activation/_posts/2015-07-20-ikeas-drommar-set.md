@@ -9,9 +9,9 @@ image:
 
 Slow feeding bowls are usually quite expensive but you can purchase this Drömmar pastry cutter set from Ikea for under six dollars.
 
-Just sprinkle some kibbles in the gaps and give it to your dog. Alternatively you can put some obstacles in the gaps as well. I've used these small [corals](http://minimuutti.com/en/activation/corals/) because they fit perfectly into the small holes.
+Just sprinkle some kibbles in the gaps and give it to your dog. Alternatively you can put some obstacles in the gaps as well. I've used these small [corals](/en/activation/corals/) because they fit perfectly into the small holes.
 
-If your dog feeds on wet food you can press the food on the bottom of the tray and then push the pieces on top. 
+If your dog feeds on wet food you can press the food on the bottom of the tray and then push the pieces on top.
 
 ---
 
@@ -37,6 +37,6 @@ If your dog feeds on wet food you can press the food on the bottom of the tray a
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABw_3JKRGZyBMnfwZZOCbj3a/aktivointi/ajanvietetta-toipilaalle/DS37744-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACzwuI1ZerlPUNbWO-mtCbWa/aktivointi/ajanvietetta-toipilaalle/DS37744.jpg)
 
-This set has been used also in the [Towel rockets](http://minimuutti.com/en/activation/towel-rockets/) game:
+This set has been used also in the [Towel rockets](/en/activation/towel-rockets/) game:
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACvR2uUOYlYtYvaw1Jb030ja/aktivointi/pyyheraketit/DS41785-800px.jpg)](http://minimuutti.com/en/activation/towel-rockets/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACvR2uUOYlYtYvaw1Jb030ja/aktivointi/pyyheraketit/DS41785-800px.jpg)](/en/activation/towel-rockets/)

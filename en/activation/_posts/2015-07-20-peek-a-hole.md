@@ -15,11 +15,11 @@ It took Miki about four minutes to eat all the kibbles.
 
 You can make this game harder by placing a few tennis balls or other small balls as obstacles in the box with the treats.
 
-I cut three hearts out of a cardboard box for these [valentine's hearts](http://minimuutti.com/en/activation/valentines-heart/), and the box was then perfect for this "peek a hole" game. First I put just kibbles on the box for Miki to search and later on I put some crocheted [corals](http://minimuutti.com/en/activation/corals/) as obstacles.
+I cut three hearts out of a cardboard box for these [valentine's hearts](/en/activation/valentines-heart/), and the box was then perfect for this "peek a hole" game. First I put just kibbles on the box for Miki to search and later on I put some crocheted [corals](/en/activation/corals/) as obstacles.
 
 You can also use any small balls as obstacles if you want.
 
-You can make a similar game with less effort. I just cut the lid flaps of the box shorter and then secured them with masking tape. Look at the last two pictures. 
+You can make a similar game with less effort. I just cut the lid flaps of the box shorter and then secured them with masking tape. Look at the last two pictures.
 
 ---
 

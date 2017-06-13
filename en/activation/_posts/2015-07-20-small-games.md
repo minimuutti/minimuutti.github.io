@@ -28,19 +28,19 @@ At first time you may wanna use thicker piece of paper, like the covers of the m
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABOPIgy8DG2RY42U4E4eI0Va/aktivointi/minitehtavia/DSC52279-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACXC317JkbAPa5LxtiB7-Z8a/aktivointi/minitehtavia/DSC52279.jpg)
 
 Paper balls in the Hol-ee Roller toy:
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAp_XpOeQ3Av-I405B_IZ5Ta/aktivointi/jw-hol-ee-roller/DSC50501-800px.jpg)](http://minimuutti.com/en/activation/jw-hol-ee-roller/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAp_XpOeQ3Av-I405B_IZ5Ta/aktivointi/jw-hol-ee-roller/DSC50501-800px.jpg)](/en/activation/jw-hol-ee-roller/)
 
 Paper balls in cups:
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADgOt4ObdTxHADvQnwiQddGa/aktivointi/paperipallot-mukeissa/DSC46322-800px.jpg)](http://minimuutti.com/en/activation/paper-balls-in-cups/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADgOt4ObdTxHADvQnwiQddGa/aktivointi/paperipallot-mukeissa/DSC46322-800px.jpg)](/en/activation/paper-balls-in-cups/)
 
 Paper balls in a carton package:
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAADc92ZyHImkbnyqLW43Cl8a/aktivointi/kartonkipakkaukset/DSC38178-800px.jpg)](http://minimuutti.com/en/activation/carton-packages/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAADc92ZyHImkbnyqLW43Cl8a/aktivointi/kartonkipakkaukset/DSC38178-800px.jpg)](/en/activation/carton-packages/)
 
 Paper balls in an empty paper roll:
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABi5-KQ6QRA7mNS8MFM1YBma/aktivointi/paperirullien-hylsyt/DSC52305-800px.jpg)](http://minimuutti.com/en/activation/empty-paper-rolls/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABi5-KQ6QRA7mNS8MFM1YBma/aktivointi/paperirullien-hylsyt/DSC52305-800px.jpg)](/en/activation/empty-paper-rolls/)
 
 Paper balls in a taskbox:
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABn9YNcA-fV3CyahyG5jrhma/aktivointi/tehtavalaatikko-paperipalloilla/DS06203-800px.jpg)](http://minimuutti.com/en/activation/taskbox-with-paper-balls/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABn9YNcA-fV3CyahyG5jrhma/aktivointi/tehtavalaatikko-paperipalloilla/DS06203-800px.jpg)](/en/activation/taskbox-with-paper-balls/)
 
 ### Kibbles in cardboard boxes
 

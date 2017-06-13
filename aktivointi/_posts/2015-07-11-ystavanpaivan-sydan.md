@@ -23,7 +23,7 @@ Laitoin toisen nippusiteen ensimmäiseen nippusiteeseen kiinni, sydänten alapuo
 
 Mikiltä kesti noin 7 minuuttia saada kaikki herkut ulos yhdestä pahvisydämestä.
 
-Leikattuani kaikki pahvisydämet irti, huomasin ilokseni, että yhdestä pahvilaatikosta tuli aivan täydellinen laatikko tätä [kurkkaa koloon](http://minimuutti.com/aktivointi/kurkkaa-koloon/) tehtävää varten. Eli kurkkaa koloon -tehtävästä on nyt virallisesti tehty myös ystävänpäiväversio parhaalle koiraystävälleni :)
+Leikattuani kaikki pahvisydämet irti, huomasin ilokseni, että yhdestä pahvilaatikosta tuli aivan täydellinen laatikko tätä [kurkkaa koloon](/aktivointi/kurkkaa-koloon/) tehtävää varten. Eli kurkkaa koloon -tehtävästä on nyt virallisesti tehty myös ystävänpäiväversio parhaalle koiraystävälleni :)
 
 ---
 

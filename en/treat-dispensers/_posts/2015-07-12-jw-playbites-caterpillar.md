@@ -27,10 +27,10 @@ Usually I put pieces of dried chicken fillet in the holes and it can take Miki o
 
 I’ve used this toy also in the games:
 
-[Fleece wraps:](http://minimuutti.com/en/activation/fleece-wraps/)
+[Fleece wraps:](/en/activation/fleece-wraps/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACLOvk9Yb9PLXrqbY3hwRbTa/aktivointi/fleecekiepit/DS06789-800px.jpg)](http://minimuutti.com/en/activation/fleece-wraps/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACLOvk9Yb9PLXrqbY3hwRbTa/aktivointi/fleecekiepit/DS06789-800px.jpg)](/en/activation/fleece-wraps/)
 
-[Toys combined:](http://minimuutti.com/en/treat-dispensers/toys-combined/)
+[Toys combined:](/en/treat-dispensers/toys-combined/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACNRPAizIA9or6AtcYVWA8Ja/aktivointilelut/muut/DS11210-800px.jpg)](http://minimuutti.com/en/treat-dispensers/toys-combined/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACNRPAizIA9or6AtcYVWA8Ja/aktivointilelut/muut/DS11210-800px.jpg)](/en/treat-dispensers/toys-combined/)

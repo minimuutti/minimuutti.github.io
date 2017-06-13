@@ -17,9 +17,9 @@ The baskets can be frightening to some dogs as they need to put their head into 
 
 First I rolled the sides of the bigger basket down, opened it wide and then I put a couple of kibbles inside for Miki to search. Each time we played with the basket, I made it taller and taller until I finally gave the basket to Miki without rolling the sides down at all.
 
-You can make all of these games harder if you put some soft of round obstacles in the baskets with the treats. I've used some crocheted [corals](http://minimuutti.com/en/activation/corals/) and tennisballs as obstacles.
+You can make all of these games harder if you put some soft of round obstacles in the baskets with the treats. I've used some crocheted [corals](/en/activation/corals/) and tennisballs as obstacles.
 
-All these games were easy for Miki and it took him only from secons to under a minute to get the kibbles out each time. 
+All these games were easy for Miki and it took him only from secons to under a minute to get the kibbles out each time.
 
 ###### Game 1: Starting easy...
 

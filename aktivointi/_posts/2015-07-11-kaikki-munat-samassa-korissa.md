@@ -75,7 +75,7 @@ Yksittäiset tehtävät olivat Mikille aika helppoja. Miki kuitenkin joutui päh
 
 ###### Tehtävä 15: Korallit
 
-Korallien teko-ohjeen löydät [täältä](http://minimuutti.com/aktivointi/korallit/).
+Korallien teko-ohjeen löydät [täältä](/aktivointi/korallit/).
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADy3tkJwrI5BLXcnTmaAg-ma/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__32-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADYxUPMZM_W5CDad2VPXCGNa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__32.jpg)
 

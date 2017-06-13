@@ -21,6 +21,6 @@ Tätä lelua voin silti lämpimästi suositella. Lelu ei maksa paljoa ja se on e
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACHzaq5lq4BzzNQF-ov43s5a/aktivointilelut/muut/DSC13226_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAJ0v5TQkI8pTcSxpOtZynpa/aktivointilelut/muut/DSC13226_2.jpg)
 
-Tätä lelua on käytetty myös yhdistettynä Kong Traxx -renkaaseen, katso: [Yhdistetyt lelut](http://minimuutti.com/aktivointilelut/yhdistetyt-lelut/)
+Tätä lelua on käytetty myös yhdistettynä Kong Traxx -renkaaseen, katso: [Yhdistetyt lelut](/aktivointilelut/yhdistetyt-lelut/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVdyKh5IiXBOlvKuKfkuwna/aktivointilelut/muut/DS11052-800px.jpg)](http://minimuutti.com/aktivointilelut/yhdistetyt-lelut/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVdyKh5IiXBOlvKuKfkuwna/aktivointilelut/muut/DS11052-800px.jpg)](/aktivointilelut/yhdistetyt-lelut/)

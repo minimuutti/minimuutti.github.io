@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Herkkuwräppiin tarvitset palan pahvia, kangasnarua sekä jotain ohuita ja tahmeita herkkuja, kuten ankkafileen tai [kanafileen](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/puruliuskat/rocco/171756)) palasia. Kangasnarua saa leikattua mm. vanhasta t-paidasta, johon ohje löytyy [täältä](http://minimuutti.com/aktivointi/kangaspallo/).
+Herkkuwräppiin tarvitset palan pahvia, kangasnarua sekä jotain ohuita ja tahmeita herkkuja, kuten ankkafileen tai [kanafileen](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/puruliuskat/rocco/171756)) palasia. Kangasnarua saa leikattua mm. vanhasta t-paidasta, johon ohje löytyy [täältä](/aktivointi/kangaspallo/).
 
 Leikkasin paksusta pahvista noin 15x15cm palasen ja kangasnarua tähän meni noin 11 metriä. Solmin ensin kangasnarun alkupään pahvin ympärille ja laitoin kaksi ankkafileen palasta tuonne solmukohdan alle. Tämän jälkeen kieputin kangasnarun pahvin ympärille ja lopuksi kieputin narun pään wräpin takapuolelle kiinni.
 

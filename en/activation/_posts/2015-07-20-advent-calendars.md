@@ -47,10 +47,10 @@ Or you can put some pate in the gaps and put the tray in the freezer for a coupl
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACTG-ux4wWUbPv0V8XfhW3Xa/aktivointi/joulukalenterit/DSC60457-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABgbKFZ9AQXaYt2IjE4Ks0Ua/aktivointi/joulukalenterit/DSC60457.jpg)
 
-Advent calendar tray has also been used in the [Fleece puzzle](http://minimuutti.com/en/activation/fleece-puzzle/) game:
+Advent calendar tray has also been used in the [Fleece puzzle](/en/activation/fleece-puzzle/) game:
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADuibprCezrzWbqbjVIKV_Za/aktivointi/fleecerullat/DS09098-800px.jpg)](http://minimuutti.com/en/activation/fleece-puzzle/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADuibprCezrzWbqbjVIKV_Za/aktivointi/fleecerullat/DS09098-800px.jpg)](/en/activation/fleece-puzzle/)
 
-and in the [Knick-knacks puzzle](http://minimuutti.com/en/activation/knick-knacks-puzzle/) game:
+and in the [Knick-knacks puzzle](/en/activation/knick-knacks-puzzle/) game:
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADDCFAktY3a_YN1t3TJiDEba/aktivointi/lokerikko/DS08655-800px.jpg)](http://minimuutti.com/en/activation/knick-knacks-puzzle/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADDCFAktY3a_YN1t3TJiDEba/aktivointi/lokerikko/DS08655-800px.jpg)](/en/activation/knick-knacks-puzzle/)

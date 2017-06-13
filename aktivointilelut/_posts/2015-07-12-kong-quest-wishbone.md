@@ -25,6 +25,6 @@ Ensimmäisellä kerralla laitoin tähän leluun keitetyn kivipiiran paloja, kun 
 
 Tätä lelua on käytetty myös tehtävässä:
 
-[Fleece kiepit:](http://minimuutti.com/aktivointi/fleecekiepit/)
+[Fleece kiepit:](/aktivointi/fleecekiepit/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQNwBTbrzTttU0MWcmQ1R9a/aktivointi/fleecekiepit/DS06895-800px.jpg)](http://minimuutti.com/aktivointi/fleecekiepit/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQNwBTbrzTttU0MWcmQ1R9a/aktivointi/fleecekiepit/DS06895-800px.jpg)](/aktivointi/fleecekiepit/)

@@ -58,7 +58,7 @@ Kangaspallon kieputtaminen tämän pallon sisään vaatii jonkin verran aikaa ja
 
 Mikiltä kesti noin 10 minuuttia saada kaikki namit ulos tuolta.
 
-Kangaspallon teko-ohjeen löydät [täältä](http://minimuutti.com/aktivointi/kangaspallo/). 
+Kangaspallon teko-ohjeen löydät [täältä](/aktivointi/kangaspallo/).
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABaINOKyFdp-Pe_4HIKCDsxa/aktivointi/jw-hol-ee-roller/DSC50828-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABUX_0gCJ8KPTouoH-6RVwBa/aktivointi/jw-hol-ee-roller/DSC50828.jpg)
 

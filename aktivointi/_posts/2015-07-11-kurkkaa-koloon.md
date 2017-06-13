@@ -9,13 +9,13 @@ image:
 
 Reikäinen pahvilaatikko on kuin valtavan kokoinen syömistä hidastava ruokakuppi.
 
-Tarvitset tähän kannellisen pahvilaatikon, teippiä ja mitä tahansa nameja tai nappuloita. Tähän kannattaa valita matala laatikko, 10 cm korkea oli Mikille juuri sopiva. Reiät kannattaa tehdä sen kokoisiksi, että koiran kuono yltää pohjaan asti, kun se laittaa kuonon noihin reikiin. 
+Tarvitset tähän kannellisen pahvilaatikon, teippiä ja mitä tahansa nameja tai nappuloita. Tähän kannattaa valita matala laatikko, 10 cm korkea oli Mikille juuri sopiva. Reiät kannattaa tehdä sen kokoisiksi, että koiran kuono yltää pohjaan asti, kun se laittaa kuonon noihin reikiin.
 
 Piirsin tämän laatikon pohjaan 5 ympyrää käyttäen apuna tyhjää namiämpäriä. Sitten leikkasin pohjaan reiät askarteluveitsellä, mutta se onnistuu varmasti myös saksilla. Tämän jälkeen teippasin laatikon kannen sekä raunat kiinni ja ripottelin laatikkoon nappuloita.
 
 Laatikon tyhjentäminen kesti Mikiltä noin neljä minuuttia.
 
-Leikkasin matalasta pahvilaatikosta sydämiä [ystävänpäivän sydän](http://minimuutti.com/aktivointi/ystavanpaivan-sydan/) tehtävää varten ja laatikosta tuli ihan mahtava "kurkkaa koloon" laatikko. Ensin laitoin laatikon pohjalle vain nappuloita ja myöhemmin laitoin nappuloiden lisäksi myös virkattuja [koralleja](http://minimuutti.com/aktivointi/korallit/) esteeksi.
+Leikkasin matalasta pahvilaatikosta sydämiä [ystävänpäivän sydän](/aktivointi/ystavanpaivan-sydan/) tehtävää varten ja laatikosta tuli ihan mahtava "kurkkaa koloon" laatikko. Ensin laitoin laatikon pohjalle vain nappuloita ja myöhemmin laitoin nappuloiden lisäksi myös virkattuja [koralleja](/aktivointi/korallit/) esteeksi.
 
 Esteeksi olisi yhtä hyvin voinut laittaa pieniä pallojakin.
 

@@ -23,6 +23,6 @@ I recommend this toy anyway, because it's one of the cheapest toys we've bought 
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACHzaq5lq4BzzNQF-ov43s5a/aktivointilelut/muut/DSC13226_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAJ0v5TQkI8pTcSxpOtZynpa/aktivointilelut/muut/DSC13226_2.jpg)
 
-I've used this toy also in: [Toys combined](http://minimuutti.com/en/treat-dispensers/toys-combined/)
+I've used this toy also in: [Toys combined](/en/treat-dispensers/toys-combined/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVdyKh5IiXBOlvKuKfkuwna/aktivointilelut/muut/DS11052-800px.jpg)](http://minimuutti.com/en/treat-dispensers/toys-combined/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVdyKh5IiXBOlvKuKfkuwna/aktivointilelut/muut/DS11052-800px.jpg)](/en/treat-dispensers/toys-combined/)

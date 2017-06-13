@@ -9,7 +9,7 @@ image:
 
 Koirille suunnitellut syömistä hidastavat ruokakupit ovat usein aika kalliita. Ikeasta saa Drömmar muottisetin alle kuudella eurolla, joka ajaa käytännössä saman asian.
 
-Muottien sekaan ripotellaan nappulat ja sen voi antaa koiralle suoraan tai muottien koloihin voi lisäksi laittaa jotain esteitä päälle. Itse olen laittanut esteeksi pieniä [koralleja](http://minimuutti.com/aktivointi/korallit/).
+Muottien sekaan ripotellaan nappulat ja sen voi antaa koiralle suoraan tai muottien koloihin voi lisäksi laittaa jotain esteitä päälle. Itse olen laittanut esteeksi pieniä [koralleja](/aktivointi/korallit/).
 
 Muottisetti soveltuu yhtä hyvin myös märkäruuan kanssa käytettäväksi. Märkäruuan voi ensin painella pyöreän muottirasian pohjalle, jonka jälkeen painelee muotit ruokaan, takaisin oikeille paikoilleen. Riisi-kanaseoksen voi myös ripotella muottien päälle.
 
@@ -37,6 +37,6 @@ Muottisetti soveltuu yhtä hyvin myös märkäruuan kanssa käytettäväksi. Mä
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABw_3JKRGZyBMnfwZZOCbj3a/aktivointi/ajanvietetta-toipilaalle/DS37744-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACzwuI1ZerlPUNbWO-mtCbWa/aktivointi/ajanvietetta-toipilaalle/DS37744.jpg)
 
-Näitä muotteja on käytetty myös tehtävässä [Pyyheraketit](http://minimuutti.com/aktivointi/pyyheraketit/):
+Näitä muotteja on käytetty myös tehtävässä [Pyyheraketit](/aktivointi/pyyheraketit/):
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACvR2uUOYlYtYvaw1Jb030ja/aktivointi/pyyheraketit/DS41785-800px.jpg)](http://minimuutti.com/aktivointi/pyyheraketit/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACvR2uUOYlYtYvaw1Jb030ja/aktivointi/pyyheraketit/DS41785-800px.jpg)](/aktivointi/pyyheraketit/)

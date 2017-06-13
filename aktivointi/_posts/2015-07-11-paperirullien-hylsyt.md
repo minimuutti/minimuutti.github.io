@@ -13,7 +13,7 @@ Toki rullan sisään voi vain laittaa muutaman namin ja taittaa vaan ne päät u
 
 Hylsyjä saa ainakin talouspaperista, wc-paperista, lahjapaperista, foliosta sekä tuorekelmusta. Koiralle saa antaa vain kartongista tai pahvista valmistettuja hylsyjä. Veteenhajoavia wc-paperista tehtyjä valkoisia hylsyjä koiralle ei tule antaa.
 
-#### Klassikko 
+#### Klassikko
 
 Hylsyn sisään laitetaan nami tai pari ja hylsyn päät taitellaan kiinni. Hylsyn päät voi halutessaan vielä sulkea palalla maalarinteippiä.
 
@@ -83,7 +83,7 @@ Paperirullien hylsyillä voi täyttää laatikon myös niin, että laittaa hylsy
 
 Käyttämääni kenkälaatikkoon meni noin 40 hylsyä ja Mikiltä kesti noin 7 minuuttia saada kaikki nappulat syötyä.
 
-Jos sinulla ei ole tarpeeksi tyhjiä rullia tähän tehtävään, niin kannattaa kokeilla tätä saman kaltaista tehtävää "[Paperiset rullat laatikossa](http://minimuutti.com/aktivointi/paperiset-rullat-laatikossa/)".
+Jos sinulla ei ole tarpeeksi tyhjiä rullia tähän tehtävään, niin kannattaa kokeilla tätä saman kaltaista tehtävää "[Paperiset rullat laatikossa](/aktivointi/paperiset-rullat-laatikossa/)".
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAVY2POv5udikUhj7OMQyy0a/aktivointi/paperirullien-hylsyt/DS20931-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACBdJ6b5tRVXpQYDF30GFYma/aktivointi/paperirullien-hylsyt/DS20931.jpg)
 
@@ -295,6 +295,6 @@ Mikiltä kesti noin 5 minuuttia saada ne herkut ulos sieltä.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABH2wdIRJrgTyFmGyvSbqKUa/aktivointi/paperirullien-hylsyt/DSC41270-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC5GOLE6I5YMz9QefRuKOgna/aktivointi/paperirullien-hylsyt/DSC41270.jpg)
 
-Paperirullien hylsyjä on käytetty myös [Palloputket](http://minimuutti.com/aktivointi/palloputket/) tehtävässä.
+Paperirullien hylsyjä on käytetty myös [Palloputket](/aktivointi/palloputket/) tehtävässä.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACAu2WiIDahMkVqGcOxFO2Ua/aktivointi/Palloputket/DS38807-800px.jpg)](http://minimuutti.com/aktivointi/palloputket/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACAu2WiIDahMkVqGcOxFO2Ua/aktivointi/Palloputket/DS38807-800px.jpg)](/aktivointi/palloputket/)

@@ -9,7 +9,7 @@ image:
 
 Esteradasta voi myös tehdä tällaisen mini version.
 
-Tein alunperin [esteradan](http://minimuutti.com/aktivointi/esterata/) isoista esteistä, joiden välistä Mikin piti pujotella. Tässä miniversiossa esteinä on käytetty pieniä esineitä, lähinnä Mikin leluja, jotka asettelin aika lähekkäin lattialle.
+Tein alunperin [esteradan](/aktivointi/esterata/) isoista esteistä, joiden välistä Mikin piti pujotella. Tässä miniversiossa esteinä on käytetty pieniä esineitä, lähinnä Mikin leluja, jotka asettelin aika lähekkäin lattialle.
 
 Tehtävän idea on se, että koira joutuu miettimään mihin tassunsa sijoittaa etsiessään nappuloita tavaroiden keskellä. Miki ainakaan ei astu esineiden päälle, vaan se asettelee tassunsa niiden väleihin. Tässä tehtävässä koira tulee käyttäneeksi myös nenäänsä, kun se etsii nappuloita tavaroiden seasta.
 
