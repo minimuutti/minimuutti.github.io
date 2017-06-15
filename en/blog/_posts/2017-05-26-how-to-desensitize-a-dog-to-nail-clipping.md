@@ -17,6 +17,16 @@ Remember to start the desensitizing process early, at least a couple of weeks be
 
 I took these photos in one session, because Miki doesn't have any issues with cutting his nails. In reality these steps would take at least 20 training sessions.
 
+#### Think before you start
+
+It's essential to think the process through before you start. And when you do try to step in your dog's shoes and think this also from his point of view.
+
+If we want to desensitize a dog to the nail clipping (or something else) it's best to get the dog see that the tongs (or some other thing) predicts a reward.
+
+You might have heard about Pavlov's experiments with dogs. He conditioned dogs to a ringing bell that was followed by a food reward. At first, every time the bell rang a food reward appeared. After a short while the dogs begun to salivate when they heard the bell ringing because they had been conditioned to that sound which predicted food. Later on the dogs also salivated when they heard the bell but there was no food reward available. The expectation of food after hearing that bell got the dogs to salivate.
+
+Every time you're about to desensitize something to your dog remember the classical conditioning that Pavlov did with the dogs. You need to get your dog to the mindset of predicting a reward when he sees the thing you desensitized him to. So EVERY time you start the desensitizing session ALWAYS get the tongs (or other thing) out first and only after that go and get the treat bag. You don't want to teach to your dog that treats predict nail clipping but just the opposite: the tongs predicts rewards :)
+
 #### Here's how to do it
 
 Put the tongs on the floor but don't do anything with them - just let them be there and reward your dog for being calm. Your dog may want to sniff them and that's okay. You can reward him for doing that as well.
@@ -59,11 +69,11 @@ When you master the previous steps you can start cutting the nails. It's best to
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACC4eDvLJG2ikR7NE39SR_7a/aktivointi/siedattaminen-sheippaamalla/DS55752-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA9K3H_lpnVMPRyNI0V1b8ma/aktivointi/siedattaminen-sheippaamalla/DS55752.jpg)
 
+You can add more steps between the ones I presented here. It's always better to make a slow progress toward your goal than to fix the problems occured by rushing too fast.
+
 You can use this type of training to desensitize your dog to almost everything. If your dog barks at the doorbell you can always change the doorbell to a new one that has different ringing tune and start from there.
 
 Or if you know your dog is going to have some operation that requires the dog to wear a protective collar, you may want to desensitize your dog to wear the protective collar before the actual operation.
-
----
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADpjCws7YMyivjSPhMgnUZWa/aktivointi/siedattaminen-sheippaamalla/DSC58327-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_yaFPJE1Qd_EKP5T3KwZ8a/aktivointi/siedattaminen-sheippaamalla/DSC58327.jpg)
 

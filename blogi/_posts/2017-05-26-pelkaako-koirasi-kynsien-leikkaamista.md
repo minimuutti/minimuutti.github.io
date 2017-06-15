@@ -17,6 +17,14 @@ Tämän vanhan mörön pois kouluttaminen kannattaa aloittaa ajoissa, eli vähin
 
 Otin nämä valokuvat yhdellä kerralla, koska Mikillä ei ole mitään ongelmia kynsien leikkaamisessa. Todellisuudessa tässä kannattaa varautua ainakin 20 harjoituskertaan.
 
+#### Ajattele, ennen kuin aloitat
+
+Ennen kuin aloitat siedättämisen, niin ajattele asia kunnolla läpi ja yritä ajatella asiaa myös koirasi näkökulmasta. Jos haluamme totuttaa sen kynsipihteihin, niin parasta on saada koira ymmärtämään, että pihdit tarkoittavat herkullista palkkiota.
+
+Olet varmaan joskus kuullut Pavlovin koirakokeista. Pavlov ehdollisti koirille mm. sen, että kellon soittamista seuraa ruokapalkkio. Tällöin koirat ehdollistuivat kellon ääneen ja alkoivat kuolaamaan jo kuullessaan pelkän kellon, ruokapalkkion toivossa. Koirat kuolasivat palkkion toivossa myöhemminkin kuullessaan kellon äänen, vaikka palkkiota ei aina tullutkaan, koska ne olivat ehdollistuneet kellon ääneen.
+
+Joten aina, ennen kun aloitat siedättämisharjoitukset, niin ajattele Pavlovin koirien klassista ehdollistumista. Koiran on tässä tapauksessa tarkoitus ehdollistua kynsipihteihin niin, että pihdit nähdessään se tietää palkkion tulevan. Tämä asia on tärkeää pitää mielessä, eli AINA, kun aloitat harjoitukset, niin hae pihdit ensin ja hae namipussi kaapista vasta sen jälkeen. Ethän halua opettaa koirallesi, että namipussia seuraa aina kynsienleikkuu, vaan nimenomaan toisinpäin: kynsipihdit tarkoittavat palkkioita :)
+
 #### Näin se tehdään...
 
 Laita pihdit lattialle ja anna koirasi tutustua niihin. Palkitse koiraasi, kun se on rauhallinen pihtien ollessa lattialla. 
@@ -61,11 +69,11 @@ Vasta useiden harjoitusten jälkeen kannattaa oikeasti alkaa leikkaamaan koiran 
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACC4eDvLJG2ikR7NE39SR_7a/aktivointi/siedattaminen-sheippaamalla/DS55752-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA9K3H_lpnVMPRyNI0V1b8ma/aktivointi/siedattaminen-sheippaamalla/DS55752.jpg)
 
+Voit lisätä siedätyksessä välivaiheita koirasi tarpeen mukaan. On aina parempi edetä hitaasti kohti tavoitetta, kuin korjata omgelmia, jotka johtuvat liiasta kiirehtimisestä.
+
 Samaa koulutusmallia voi käyttää melkein mihin tahansa siedätykseen, esimerkiksi jos koirasi haukkuu vaikka ovikelloa. Voit vaikkapa ostaa tilalle uuden ovikellon, jossa on erilainen ääni, kuin vanhassa ovikellossa ja lähteä kouluttamaan koirallesi rauhallista suhtautumista ovikelloon aivan puhtaalta pöydältä.
 
 Mikäli koirasi on menossa sellaiseen toimenpiteeseen mikä vaatii kaulurin pitämistä, niin kaulurikin kannattaa siedättää sitä ennen.
-
----
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADpjCws7YMyivjSPhMgnUZWa/aktivointi/siedattaminen-sheippaamalla/DSC58327-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_yaFPJE1Qd_EKP5T3KwZ8a/aktivointi/siedattaminen-sheippaamalla/DSC58327.jpg)
 
