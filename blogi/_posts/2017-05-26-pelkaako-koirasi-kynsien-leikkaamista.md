@@ -21,9 +21,9 @@ Otin nämä valokuvat yhdellä kerralla, koska Mikillä ei ole mitään ongelmia
 
 Ennen kuin aloitat siedättämisen, niin ajattele asia kunnolla läpi ja yritä ajatella asiaa myös koirasi näkökulmasta. Jos haluamme totuttaa sen kynsipihteihin, niin parasta on saada koira ymmärtämään, että pihdit tarkoittavat herkullista palkkiota.
 
-Olet varmaan joskus kuullut Pavlovin koirakokeista. Pavlov ehdollisti koirille mm. sen, että kellon soittamista seuraa ruokapalkkio. Tällöin koirat ehdollistuivat kellon ääneen ja alkoivat kuolaamaan jo kuullessaan pelkän kellon, ruokapalkkion toivossa. Koirat kuolasivat palkkion toivossa myöhemminkin kuullessaan kellon äänen, vaikka palkkiota ei aina tullutkaan, koska ne olivat ehdollistuneet kellon ääneen.
+Olet varmaan joskus kuullut Pavlovin koirakokeista. Pavlov ehdollisti koirille mm. sen, että kellon soittamista seuraa ruokapalkkio. Tällöin koirat ehdollistuivat kellon ääneen ja alkoivat kuolaamaan ruokapalkkion toivossa jo kuullessaan pelkän kellon. Koirat kuolasivat palkkion toivossa myöhemminkin kuullessaan kellon äänen, vaikka palkkiota ei aina tullutkaan, koska ne olivat ehdollistuneet kellon ääneen.
 
-Joten aina, ennen kun aloitat siedättämisharjoitukset, niin ajattele Pavlovin koirien klassista ehdollistumista. Koiran on tässä tapauksessa tarkoitus ehdollistua kynsipihteihin niin, että pihdit nähdessään se tietää palkkion tulevan. Tämä asia on tärkeää pitää mielessä, eli AINA, kun aloitat harjoitukset, niin hae pihdit ensin ja hae namipussi kaapista vasta sen jälkeen. Ethän halua opettaa koirallesi, että namipussia seuraa aina kynsienleikkuu, vaan nimenomaan toisinpäin: kynsipihdit tarkoittavat palkkioita :)
+Joten aina, ennen kuin aloitat siedättämisharjoitukset, niin ajattele Pavlovin koirien klassista ehdollistumista. Koiran on tässä tapauksessa tarkoitus ehdollistua kynsipihteihin niin, että pihdit nähdessään se tietää palkkion tulevan. Tämä asia on tärkeää pitää mielessä, eli AINA, kun aloitat harjoitukset, niin hae pihdit ensin ja hae namipussi kaapista vasta sen jälkeen. Ethän halua opettaa koirallesi, että namipussia seuraa aina kynsienleikkuu, vaan nimenomaan toisinpäin: kynsipihdit tarkoittavat palkkioita :)
 
 #### Näin se tehdään...
 
