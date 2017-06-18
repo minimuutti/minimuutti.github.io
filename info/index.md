@@ -37,7 +37,8 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 15.6.2017 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
+* 18.6.2017 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
+* 18.6.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
 * 10.6.2017 Lisätty uusi postaus Blogiin; [Muuttaminen koiran kanssa](/blogi/muuttaminen-koiran-kanssa/)
 * 29.5.2017 Lisätty uusia valokuvia kategoriaan; [Kevät](/valokuvaus/luontokuvat/kevat/)
 * 26.5.2017 Lisätty uusi postaus Blogiin; [Pelkääkö koirasi kynsien leikkaamista?](/blogi/pelkaako-koirasi-kynsien-leikkaamista/)
@@ -48,7 +49,6 @@ Uudet ja viimeksi päivitetyt osiot:
 * 27.1.2017 Lisätty uusi postaus Blogiin; [Koirien kehonkieli - häntä kertoo mielentilan](/blogi/koirien-kehonkieli-hanta-kertoo-mielentilan/)
 * 11.1.2017 Lisätty uusi postaus Blogiin; [Koirien kehonkieli - rauhoittavat signaalit](/blogi/koirien-kehonkieli-rauhoittavat-signaalit/)
 * 7.1.2017 Lisätty uusia valokuvia kategoriaan; [Talvi](/valokuvaus/luontokuvat/talvi/)
-* 7.1.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
 * 7.1.2017 Lisätty uusia valokuvia kategoriaan; [Syksy](/valokuvaus/luontokuvat/syksy/)
 * 1.1.2017 Lisätty uusi postaus Blogiin; [Uudenvuoden ilotulitukset](/blogi/uudenvuoden-ilotulitukset/)
 * 29.12.2016 Lisätty uusi aktivointivinkki; [Lentävä lautanen II](/aktivointi/lentava-lautanen-ii/)

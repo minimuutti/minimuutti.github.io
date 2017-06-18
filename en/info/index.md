@@ -36,7 +36,8 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
-* 2017-06-15 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
+* 2017-06-18 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
+* 2017-06-18 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
 * 2017-06-10 New post added into the Blog; [Moving with your dog](/en/blog/moving-with-your-dog/)
 * 2017-05-29 New photos added in category; [Spring](/en/photography/finnish-nature/spring/)
 * 2017-05-26 New post added into the Blog; [How to desensitize a dog to nail clipping](/en/blog/how-to-desensitize-a-dog-to-nail-clipping/)
@@ -47,7 +48,6 @@ New and recently updated posts:
 * 1017-01-27 New post added into the Blog; [Dog body language: tail - a dog's state of mind](/en/blog/dog-body-language-tail-dogs-state-of-mind/)
 * 2017-01-11 New post added into the Blog; [Dog body language - calming signals](/en/blog/dog-body-language-calming-signals/)
 * 2017-01-07 New photos added in category; [Winter](/en/photography/finnish-nature/winter/)
-* 2017-01-07 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
 * 2017-01-07 New photos added in category; [Autumn](/en/photography/finnish-nature/autumn/)
 * 2017-01-01 New post added into the Blog; [New years eve and the fireworks](/en/blog/new-years-eve-and-the-fireworks/)
 * 2016-12-29 New activation post; [Flying saucer II](/en/activation/flying-saucer-ii/)
