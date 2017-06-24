@@ -37,8 +37,9 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 18.6.2017 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
-* 18.6.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
+* 24.6.2017 Päivitetty aktivointivinkki; [Suihkepullot](/aktivointi/suihkepullot/)
+* 24.6.2017 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
+* 24.6.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
 * 10.6.2017 Lisätty uusi postaus Blogiin; [Muuttaminen koiran kanssa](/blogi/muuttaminen-koiran-kanssa/)
 * 29.5.2017 Lisätty uusia valokuvia kategoriaan; [Kevät](/valokuvaus/luontokuvat/kevat/)
 * 26.5.2017 Lisätty uusi postaus Blogiin; [Pelkääkö koirasi kynsien leikkaamista?](/blogi/pelkaako-koirasi-kynsien-leikkaamista/)
