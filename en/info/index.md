@@ -36,9 +36,9 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2017-06-25 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
+* 2017-06-25 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
 * 2017-06-24 Updated activation post; [Spray bottles](/en/activation/spray-bottles/)
-* 2017-06-24 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
-* 2017-06-24 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
 * 2017-06-10 New post added into the Blog; [Moving with your dog](/en/blog/moving-with-your-dog/)
 * 2017-05-29 New photos added in category; [Spring](/en/photography/finnish-nature/spring/)
 * 2017-05-26 New post added into the Blog; [How to desensitize a dog to nail clipping](/en/blog/how-to-desensitize-a-dog-to-nail-clipping/)
