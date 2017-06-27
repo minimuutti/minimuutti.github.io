@@ -14,7 +14,7 @@ Lelua valmistetaan useammassa koossa ja tämä kuvissa näkyvä on L kokoinen.
 
 Laitan tähän yleensä [Nutrivet Instinct Dog Treat](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/nutrivet)) nameja. Nämä namit ovat juuri sopivan kokoisia noihin pyöreisiin aukkoihin, kun ne kääntää poikittain sinne aukon sisään.
 
-Myös [kuivatusta kanafileestä](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/puruliuskat/rocco/171756)) saa leikattua sopivan kokoisia paloja. Alla olevissa kuvissa lelussa on täytteenä [kuivattuja peuranlihan paloja](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/riistaherkut/peuranliha/141194)), jotka ovat myös sopivan kokoisia noihin koloihin.
+Myös [kuivatusta kanafileestä](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/rocco/rocco_puruliuskat/534985)) saa leikattua sopivan kokoisia paloja. Alla olevissa kuvissa lelussa on täytteenä [kuivattuja peuranlihan paloja](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/riistaherkut/peuranliha/141194)), jotka ovat myös sopivan kokoisia noihin koloihin.
 
 Vaikka lelu saa pisteitä kestävyydestä, niin sopivan kokoisten herkkujen löytäminen on välillä vaikeaa. Herkku pitäisi saada tungettua reikään, mutta se ei kuitenkaan saisi pudota siitä.
 

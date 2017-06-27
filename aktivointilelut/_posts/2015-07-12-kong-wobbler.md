@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-[Kong Wobbler](http://clk.tradedoubler.com/click?p(240480)a(2526211)g(21401374)url(https://www.mustijamirri.fi/kong-wobbler-026806-1)) on kestävä aktivointilelu ja sen vaikeustasokin on helposti muutettavissa.
+Kong Wobbler on kestävä aktivointilelu ja sen vaikeustasokin on helposti muutettavissa.
 
 Mikille ostettu lelu on L-kokoinen ja lelu avautuu keskeltä, joten se on helppo puhdistaa myös sisältä.
 
