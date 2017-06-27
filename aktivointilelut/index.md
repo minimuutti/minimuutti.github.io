@@ -6,4 +6,4 @@ Meillä on päivittäin käytössä erilaisia kaupasta ostettuja aktivointileluj
 
 Tässä on vinkkejä aktivointilelujen käyttöön sekä vinkkejä siitä, minkälaiset herkut ovat sopivimpia mihinkin aktivointileluun. Toki nämä ovat Mikille mieluisia herkkuja, mutta toivottavasti saat näistä jotain ideoita.
 
-Tarkemmat tiedot saat auki klikkaamalla pieniä kuvia.
+Tarkemmat tiedot saat auki klikkaamalla kuvia.
