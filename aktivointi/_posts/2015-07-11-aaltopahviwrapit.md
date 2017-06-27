@@ -13,7 +13,7 @@ Leikkasin aaltopahvista kaksi noin 9cm leveää suikaletta. Sitten leikkasin ank
 
 Putkena tässä voi käyttää vaikka pringlestuubia tai pienemmän koiran kanssa vaikka talouspaperirullan hylsyä.
 
-Tässä kannattaa käyttää jotain litteitä ja tahmeita herkkuja, kuten ankka- tai [kanafileen](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/puruliuskat/rocco/171756)) palasia, juustosiivun palasia tai kinkun palasia. Kuivia nameja ei välttämättä kannata käyttää, koska ne saattavat pudota pois tuolta välistä.
+Tässä kannattaa käyttää jotain litteitä ja tahmeita herkkuja, kuten ankka- tai [kanafileen](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/rocco/rocco_puruliuskat/534985)) palasia, juustosiivun palasia tai kinkun palasia. Kuivia nameja ei välttämättä kannata käyttää, koska ne saattavat pudota pois tuolta välistä.
 
 Mikiltä kesti vain noin 15 sekuntia siihen, että molemmat herkut oli jo syöty.
 
