@@ -7,13 +7,11 @@ image:
   thumb:
 ---
 
-This toy is actually meant for fetching, but we have used it as a treat dispenser.
+This Space Ball Stellaron toy is actually meant for fetching, but we have used it as a treat dispenser.
 
 I wired two semi-moist duck filets and a semi-moist chicken fillet (which I had cut into strings) around the toy’s holes. You can also use slices of cheese or slices of ham.
 
 It took Miki about 2 to 3 minutes to get the treats out.
-
----
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACDnUHhQ9F-jPXvvK5-dECfa/aktivointi/space-ball-stellaron/DSC49658-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAWCmUZYaHr78wsqqEb3b9ca/aktivointi/space-ball-stellaron/DSC49658.jpg)
 

@@ -7,9 +7,11 @@ image:
   thumb:
 ---
 
-You can find all sorts of interactive games from pet stores. By interactive games I mean those that look like boardgames, where dog needs to move or slide the pieces to get the treats.
+You can find all sorts of interactive games from pet stores, but it's wise to consider if your dog actually needs one.
 
-These types of games are a good mental exercise for your dog. But your dog will probably learn the game in just couple of session and the expensive game ends up in the back of the closet.
+By interactive games I mean those that look like boardgames, where dog needs to move or slide the pieces to get the treats.
+
+These types of games are a good mental exercise for your dog. The down side is that your dog will probably learn the game in just a couple of session and the expensive game ends up in the back of the closet.
 
 We were lucky to have a chance to try about ten different interactive games at our dog trainer’s place. Miki learned all of those games within 15 minutes, so we didn’t even bother to buy any of them.
 

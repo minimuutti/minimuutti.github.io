@@ -7,11 +7,19 @@ image:
   thumb:
 ---
 
-With Trixie Snack Spinner (size 14 cm) I use only kibbles. This toy has an adjustable middle floor, so you can adjust the difficulty of this toy. The hole in the bottom is so small, that anything bigger than kibbles isn’t going to fit through.
+I'm sorry to say but Trixie Snack Spinner is quite a flop.
 
-This toy has been one of the most expensive toys we’ve bought for Miki. At the same time it seems the toy is very fragile. Even though we haven’t used it that often it’s already breaking down.
+I believe Trixie manufactures this toy only in one size, 14 cm in diameter. This toy has adjustable middle floor so it seems the difficulty is adjustable. That's the only good thing I can say about this toy.
 
-It takes about three to four minutes for Miki to get all the kibbles out.
+I've used only kibble with this toy. The hole in the bottom is so small, that anything bigger than kibble isn’t going to fit through - no matter how much you adjust the toy.
+
+This toy has been one of the most expensive toys we’ve bought for Miki. At the same time it seems the toy is very fragile. Even though we have used it only a short while it’s already breaking down.
+
+The toy opens from the middle, but there's that fastened middle floor so you still can't clean the toy properly.
+
+In addition the toy makes a loud noise when the kibble bounces against the hard plastic.
+
+It takes Miki about three to four minutes to get all the kibble out.
 
 ---
 

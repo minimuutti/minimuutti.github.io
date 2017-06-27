@@ -7,13 +7,13 @@ image:
   thumb:
 ---
 
-This JW Playbites Caterpillar toy (size 20cm) is our new favourite. Although this toy seems to be easy - it's not. It's actually quite difficult.
+JW Playbites Caterpillar toy is my new favourite, because it gives Miki a long-lasting challenge.
 
-The time I put kibbles in the holes, Miki got tired before he even got all the kibbles out.
+JW makes this toy in two different sizes and this is the larger one (20 cm).
 
-Usually I put pieces of dried chicken fillet in the holes and it can take Miki over an hour to get all the treats out.
+Although this toy seems to be easy - it's not. It's actually quite difficult.
 
----
+The time I put kibble in the holes, Miki got tired before he even got all the kibble out. Usually I put pieces of dried chicken fillet in the holes and it can take Miki over an hour to get all the treats out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABPWNof9s81AJssHTvThIDka/aktivointilelut/muut/DS05450-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD6B67hlRl-rwtwRrx5EX-ka/aktivointilelut/muut/DS05450.jpg)
 

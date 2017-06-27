@@ -36,7 +36,16 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
-* 2017-06-25 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
+* 2017-06-27 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
+* 2017-06-27 New treat dispenser review; [Kong Gyro](/en/treat-dispensers/kong-gyro/)
+* 2017-07-27 Updated a treat dispenser review; [Trixie Snack Spinner](/en/treat-dispensers/trixie-snack-spinner/)
+* 2017-07-27 Updated a treat dispenser review; [Kong Traxx Extreme](/en/treat-dispensers/kong-traxx-extreme/)
+* 2017-07-27 Updated a treat dispenser review; [Kong Quest Wishbone](/en/treat-dispensers/kong-quest-wishbone/)
+* 2017-07-27 Updated a treat dispenser review; [Kong Quest Star Pod](/en/treat-dispensers/kong-quest-star-pod/)
+* 2017-07-27 Updated a treat dispenser review; [Kong Genius Mike](/en/treat-dispensers/kong-genius-mike/)
+* 2017-07-27 Updated a treat dispenser review; [Kong Genius Leo](/en/treat-dispensers/kong-genius-leo/)
+* 2017-07-27 Updated a treat dispenser review; [Karlie Boomer treat ball](/en/treat-dispensers/karlie-boomer-treat-ball/)
+* 2017-07-27 Updated a treat dispenser review; [Busy Buddy Twist'n Treat](en/treat-dispensers/busy-buddy-twistn-treat/)
 * 2017-06-25 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
 * 2017-06-24 Updated activation post; [Spray bottles](/en/activation/spray-bottles/)
 * 2017-06-10 New post added into the Blog; [Moving with your dog](/en/blog/moving-with-your-dog/)
@@ -52,7 +61,7 @@ New and recently updated posts:
 * 2017-01-07 New photos added in category; [Autumn](/en/photography/finnish-nature/autumn/)
 * 2017-01-01 New post added into the Blog; [New years eve and the fireworks](/en/blog/new-years-eve-and-the-fireworks/)
 * 2016-12-29 New activation post; [Flying saucer II](/en/activation/flying-saucer-ii/)
-* 2016-12-29 New treat dispenser; [Petprojekt Tretbal](/en/treat-dispensers/petprojekt-tretbal/)
+* 2016-12-29 New treat dispenser review; [Petprojekt Tretbal](/en/treat-dispensers/petprojekt-tretbal/)
 * 2016-12-16 New post added into the Blog; [Dangers of retractable leashes](/en/blog/dangers-of-retractable-leashes/)
 * 2016-11-07 New activation post; [Towel rockets](/en/activation/towel-rockets/)
 * 2016-11-06 New activation post; [Mini obstacle course](/en/activation/mini-obstacle-course/)
@@ -64,7 +73,5 @@ New and recently updated posts:
 * 2016-10-28 Updated activation post; [Rope in a box](/en/activation/rope-in-a-box/)
 * 2016-10-27 New activation post; [Snuffle box](/en/activation/snuffle-box/)
 * 2016-10-23 New activation post; [Twelve cup puzzle](/en/activation/twelve-cup-puzzle/)
-* 2016-10-23 Updated activation post; [Towels](/en/activation/towels/)
-* 2016-10-16 New activation post; [Dumbbells](/en/activation/dumbbells/)
 
 © Susu

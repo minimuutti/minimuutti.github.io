@@ -7,15 +7,17 @@ image:
   thumb:
 ---
 
-Busy Buddy Magic Mushroom (size S) is a challenging treat dispenser although the difficulty is adjustable.
+Busy Buddy Magic Mushroom is a very challenging treat dispenser toy although the difficulty is adjustable.
 
 PetSafe manufactures this toy in two different sizes, small and medium/large. Unfortunately pet shops import only the small size toy to Finland, so this toy is a bit too small for Miki.
 
-First time I gave this toy to Miki, I filled it with kibbles. I needed to adjust the difficulty to the easiest possible so the kibbles fit through the holes.
+This toy is easy to clean, because it opens up on the top and on the bottom.
 
-The toy is quite durable. Miki tried to "open" the toy once, or in other words he tried to chew it open. Surprisingly the toy didn't get damaged.
+First time I gave this toy to Miki I filled it with kibble. I needed to adjust the difficulty to the easiest setting so the kibble could fit through the holes which are quite small. That is what makes the toy so hard.
 
-It took Miki over 15 minutes to get all the kibbles out.
+The toy is quite durable. Miki tried to "open" the toy once, or in other words he tried to chew it open. Surprisingly the toy didn't get damaged at all.
+
+It took Miki over 15 minutes to get all the kibble out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABmejLasOkfbhYUY2tHlFdLa/aktivointilelut/muut/DS16936-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAANZfL2eQxgQhnWVIWm5Mnba/aktivointilelut/muut/DS16936.jpg)
 

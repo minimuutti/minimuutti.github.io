@@ -11,7 +11,7 @@ Kaupoissa myydään mitä erilaisimpia koirille tarkoitettuja aktivointipelejä.
 
 Pelit ovat alkuun ihan mukavaa ajanvietettä koiralle, mutta koiran opittua pelin kallis peli jää makaamaan kaapin pohjalle. Saimme koirakouluttajan luona kokeilla Mikin kanssa noin kymmentä erilaista lautapeliä. Miki tuntui tajuavan jokaisen niiden idean niin nopeasti, ettemme edes viitsineet ostaa sellaisia keräämään pölyä.
 
-Sen sijaan että ostaisit näitä kalliita pelejä kaupasta, niin kannattaa ennemmin kokeilla jotain näistä peleistä, mitkä on tehty kierrätetyistä kotitaloustarvikkeista.
+Sen sijaan, että ostaisit näitä kalliita pelejä kaupasta, niin kannattaa ennemmin kokeilla jotain näistä peleistä, mitkä on tehty kierrätetyistä kotitaloustarvikkeista.
 
 Saat tarkemmat tiedot auki klikkaamalla kuvia.
 

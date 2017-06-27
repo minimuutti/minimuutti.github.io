@@ -7,7 +7,11 @@ image:
   thumb:
 ---
 
-Tämä JW Playbites Caterpillar lelu (koko 20cm) on meidän uusi suosikki. Vaikka lelu näyttää aika helpolta, niin sitä se ei todellakaan ole. Päinvastoin, lelu on ennemminkin aika vaikea.
+Tämä JW Playbites Caterpillar lelu on minun uusi suosikki, koska se antaa Mikille reilusti haastetta.
+
+Vaikka lelu näyttää aika helpolta, niin sitä se ei todellakaan ole. Päinvastoin, lelu on ennemminkin aika vaikea. 
+
+Lelua valmistetaan ainakin kahdessa koossa ja tämä kuvissa näkyvä on 20 cm pitkä.
 
 Ensimmäisellä kerralla laitoin lelun koloihin nappuloita ja Miki väsyi ennen kuin edes sai kaikkia nappuloita ulos.
 

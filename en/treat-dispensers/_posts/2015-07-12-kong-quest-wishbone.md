@@ -7,11 +7,15 @@ image:
   thumb:
 ---
 
-Kong Quest Wishbone (size L) suits primarily for freezing. It takes Miki about 10 to 15 minutes to lick the frozen toy clean.
+Kong Quest Wishbone is very durable toy but it doesn't give much of a challenge.
 
-The first time I gave this toy to Miki I put some leftover pieces of meat from the fridge in it, and the pieces were inhaled in about 10 seconds… :D
+Kong manufactures this toy in many sizes and this is size L. The toy is made out of slippery rubber so it's very hard to chew through.
 
----
+This toy is suitable also for freezing. It takes Miki about 10 minutes to lick the filled and frozen toy clean.
+
+The first time I gave this toy to Miki I put some leftover pieces of meat in it, and the pieces were inhaled in about 10 seconds… :D Later on I've used pieces of chicken fillet or some treat sticks with this.
+
+You can adjust the difficulty by choosing different size treats and the larger treats have usually been the hardest ones to get out. 
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACFOIXF2rxtor8hynw1WWwNa/aktivointilelut/kongit/DSC34912-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACUo0NUZHIeoB3CoIk1xqLLa/aktivointilelut/kongit/DSC34912.jpg)
 

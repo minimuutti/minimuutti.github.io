@@ -6,16 +6,21 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABJDaO4VjgjMBqWRpm6A28ka/aktivointilelut/kongit/DSC34392-245px.jpg
   thumb:
 ---
+[Kong Traxx](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/lelut/aktivointilelut/aktivointi/326683)) -lelu on kaikista kestävin lelu, jonka olemme Mikille ostaneet.
 
-[Kong Traxx](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/lelut/aktivointilelut/aktivointi/326683)) (koko M/L) -renkaaseen sopii kaikista parhaiten muotonsa puolesta nämä [Trixie Premio Sushi Rolls Light](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/kala_puruherkut/202203)) -namit. Ne ovat juuri sopivan mallisia ja kokoisia tähän renkaaseen. Olen laittanut renkaaseen noin 4-5 tällaista namia ja renkaan tyhjentäminen kestää Mikiltä noin 2 minuuttia.
+Lelua valmistetaan tietääkseni vain yhden kokoisena (M/L).
+
+Tähän renkaaseen sopii kaikista parhaiten muotonsa puolesta nämä [Trixie Premio Sushi Rolls Light](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/kala_puruherkut/202203)) -namit. Ne ovat juuri sopivan mallisia ja kokoisia tähän renkaaseen. Olen laittanut renkaaseen noin 4-5 tällaista namia ja renkaan tyhjentäminen kestää Mikiltä noin 2 minuuttia.
 
 Myös [Nutrivet Instinct Dog Treat](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/nutrivet)) -herkut ovat oikean kokoisia ja mallisia renkaan sisälle ja Mikiltä kestää noin 2 minuuttia saada 4 tällaista namia ulos tästä lelusta. Nameja voit ostaa [Zooplus nettikaupasta](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)).
 
 Renkaaseen olen välillä laittanut myös jotain pateeta, esimerkiksi tätä kätevää [maksapateeta](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/pikkuherkut/puruherkut/198443)) ja pakastanut renkaan. Jäisen renkaan nuoleminen puhtaaksi kestää noin 5-10 minuuttia.
 
-Tätä rengasta voi helposti vaikeuttaa, mikäli omistat myös klassisen lumiukko Kongin. Renkaan sisään laitetaan normaalisti jotain namia (itse laitoin pari nakin palasta) ja sitten lumiukkokongi työnnetään tuosta Kong Traxx renkaasta läpi niin pitkälle kuin se vain menee. Tälläisen yhdistelmäkongin avaamiseen menee Mikiltä noin 4 minuuttia.
+Tätä rengasta voi helposti vaikeuttaa, mikäli omistat myös klassisen, L-kokoisen lumiukko Kongin. Renkaan sisään laitetaan normaalisti jotain namia (itse laitoin pari nakin palasta) ja sitten lumiukko Kongi työnnetään tuosta Kong Traxx renkaasta läpi niin pitkälle kuin se vain menee. Tälläisen yhdistelmäkongin avaamiseen menee Mikiltä noin 4-5 minuuttia.
 
----
+Miki sai tämän renkaan alle vuoden ikäisenä ja sama lelu on meillä edelleen käytössä Mikin ollessa nyt 5-vuotias eikä lelussa näy mitään kulumisen merkkejä. Lelu on ollut kaikkein kestävin lelu, mikä Mikille on koskaan hankittu. Lelu kuuluu Kongin Extreme-sarjaan, eli se kestää kyllä kovaaki pureskelua.
+
+Miki on tykännyt leikkiä tällä lelulla ilman ruokaakin, koska se tykkää jahdata lelua, kun joku vierittää sitä pitkin lattiaa :)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADym-qigc0vB8CcuTkeEz06a/aktivointilelut/kongit/DSC34392-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADf3DjnWn5JwEkNIy1s7KUia/aktivointilelut/kongit/DSC34392.jpg)
 

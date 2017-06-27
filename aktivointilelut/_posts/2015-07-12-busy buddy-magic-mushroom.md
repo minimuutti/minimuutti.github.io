@@ -7,13 +7,17 @@ image:
   thumb:
 ---
 
-Busy Buddy Magic Mushroom (koko S) on aivan loistava aktivointilelu, koska se on aika haastava. PetSafe valmistaa tätä lelua kahdessa koossa, S ja M/L. Valitettavasti Suomesta ei saa ostettua lelua kuin S-kokoisena, joka on Mikille hieman liian pieni.
+Busy Buddy Magic Mushroom on aivan loistava aktivointilelu, koska se on todella haastava.
 
-Lelun vaikeustaso on säädettävissä. Namiaukot ovat lelussa niin pieniä, että lelu oli säädettävä helpoimmalle, jotta tavalliset pienet nappulat mahtuivat niistä ulos.
+PetSafe valmistaa tätä lelua kahdessa koossa, S ja M/L. Valitettavasti Suomesta ei saa ostettua lelua kuin S-kokoisena, joka on Mikille hieman liian pieni.
+
+Lelun vaikeustaso on säädettävissä. Namiaukot ovat lelussa niin pieniä, että lelu oli säädettävä helpoimmalle, jotta tavalliset pienet nappulat mahtuivat niistä ulos. Juuri sen vuoksi lelu onkin niin haastava.
 
 Ensimmäisellä kerralla laitoin lelun lähes täyteen nappuloita ja Mikiltä kesti yli 15 minuuttia saada ne ulos.
 
 Lelu vaikuttaa kestävältä, vaikka onkin Mikille liian pieni. Miki nimittäin kokeili kerran "avata" :D lelua, eli yritti purra sen rikki. Lelu kuitenkin pysyi ehjänä.
+
+Pidän lelussa myös siitä, että se on helppo avata pesua varten. Lelu avautuu sekä ylä- että alaosasta.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABmejLasOkfbhYUY2tHlFdLa/aktivointilelut/muut/DS16936-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAANZfL2eQxgQhnWVIWm5Mnba/aktivointilelut/muut/DS16936.jpg)
 

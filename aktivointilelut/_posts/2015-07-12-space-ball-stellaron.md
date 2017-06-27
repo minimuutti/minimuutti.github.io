@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Tämä lelu on oikeasti tarkoitettu noutoleikkeihin, mutta meillä tätä on käytetty aktivointileluna.
+Space Ball Stellaron on oikeasti tarkoitettu noutoleikkeihin, mutta meillä tätä on käytetty aktivointileluna.
 
 Olen pujottanut noista reijistä puolikosteita ankkafileen siivuja, sekä ohuiksi leikattuja puolikosteita [kanafileen](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/puruliuskat/rocco/171756)) siivuja. Koloihin voisi yhtä hyvin pujotella vaikka juustosiivuja tai kinkkusiivuja.
 

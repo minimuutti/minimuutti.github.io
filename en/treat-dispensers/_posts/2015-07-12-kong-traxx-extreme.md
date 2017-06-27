@@ -7,13 +7,19 @@ image:
   thumb:
 ---
 
-These [Trixie Premio Sushi Rolls Light](http://www.zooplus.com/shop/dogs/dog_treats_chews/natural_treats_fish/204577) treats are just the right shape and size to put in the Kong Traxx tire (size M/L).  I put 4 or 5 of these treats in the Traxx and it takes Miki about two minutes to eat them all.
+Kong Traxx Extreme is the most durable toy we have ever bought to Miki.
 
-Although it’s quite difficult I sometimes put some pâté in the Traxx and then freeze it. It takes Miki about 5 to 10 minutes to lick the frozed Traxx clean.
+Kong manufactures this toy only in one size; M/L.
+
+These [Trixie Premio Sushi Rolls Light](http://www.zooplus.com/shop/dogs/dog_treats_chews/natural_treats_fish/204577) treats are just the right shape and size to put in the Kong Traxx tire.  I put 4 or 5 of these treats in the Traxx and it takes Miki about two minutes to eat them all.
+
+Although it’s quite difficult I sometimes put some pâté in the Traxx and then freeze it. It takes Miki about 5 to 10 minutes to lick the frozen Traxx clean.
 
 If you also have the Classic Kong, you can make this Traxx toy harder. Just put some of your dogs favourite treats in the Traxx (I put pieces of wiener for Miki) and then push the Classic Kong through the middle of Traxx as far as it goes. It takes Miki about 4 minutes to pull the Classic Kong out of the Traxx and eat the treats.
 
----
+Miki got this toy when he was under one year old. The toy practically still looks like a new one, although Miki has played with the toy for over four years now.
+
+Miki likes to play with this toy also without any food because it can be rolled on the floor and chased :)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADym-qigc0vB8CcuTkeEz06a/aktivointilelut/kongit/DSC34392-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADf3DjnWn5JwEkNIy1s7KUia/aktivointilelut/kongit/DSC34392.jpg)
 

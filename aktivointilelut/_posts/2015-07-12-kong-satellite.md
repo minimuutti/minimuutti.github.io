@@ -7,11 +7,13 @@ image:
   thumb:
 ---
 
-Siniseen Kong Satelliteen laitan aina nappuloita, koska lelua ei ole mahdollista avata puhdistettavaksi. Tämä on ollut näistä kaupasta ostettavista leluista Mikille vaikein.
+Kong Satellite oli aluksi Mikille aika vaikea lelu.
 
-Alkuun tämän lelun tyhjentämiseen saattoi mennä jopa 15 minuuttia. Nykyään lelu tyhjenee noin 5 minuutissa.
+Laitan tähän aina vain nappuloita, koska lelua ei ole mahdollista avata puhdistettavaksi. Tämä on ollut kaupasta ostettavista leluista Mikille yksi vaikeimmista.
 
----
+Alkuun tämän lelun tyhjentämiseen saattoi mennä jopa 15 minuuttia, koska lelun sisällä on esteitä, jonka vuoksi nappulat on vaikea saada ulos. Lisäksi lelun pyörittäminen lattialla on vaikeaa sen ulokkeiden vuoksi.
+
+Myöhemmin Miki oppi missä järjestyksessä lelua pitää käännellä, jotta nappulat putoavat ulos ja nykyään lelu tyhjenee parissa minuutissa.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADmh2z8tCFuJhoYZbIGT6zfa/aktivointilelut/kongit/DSC34371-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAYRq3c5g9NccjCkdq5G50Ka/aktivointilelut/kongit/DSC34371.jpg)
 

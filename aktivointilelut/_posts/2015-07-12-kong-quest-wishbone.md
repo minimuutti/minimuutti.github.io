@@ -7,11 +7,15 @@ image:
   thumb:
 ---
 
-Sininen Kong Quest Wishbone (L koko) sopii lähinnä pakastettavaksi. Pakastetun lelun nuoleminen puhtaaksi kestää Mikillä noin 10-15 minuuttia.
+Kong Quest Wishbone on erittäin kestävä lelu, mutta se ei anna koiralle paljoakaan haastetta.
 
-Ensimmäisellä kerralla laitoin tähän leluun keitetyn kivipiiran paloja, kun niitä oli jäänyt yli edellispäivän harjoituksista. Nämä oli syöty sekunneissa :D
+Lelua valmistetaan monessa koossa ja tämä Mikille ostettu on L-kokoinen. Lelun materiaali on liukasta kumia, joten se rikkipureminen on erittäin vaikeaa.
 
----
+Lelu sopii myös pakastettavaksi ja täytetyn + pakastetun lelun nuoleminen puhtaaksi kestää Mikiltä noin 10 minuuttia.
+
+Ensimmäisellä kerralla laitoin tähän leluun pieniä kivipiiran paloja, kun niitä oli jäänyt yli edellispäivän harjoituksista. Nämä oli vedetty henkeen sekunneissa :D Myöhemmin olen laittanut leluun kanafileen paloja ja kaikenlaisia herkkutikkuja.
+
+Lelun urissa on lipat, joiden alle herkut saa tungettua piiloon. Lelun vaikeustasoa voi muuttaa vaihtamalla siihen laitettavien herkkujen kokoa ja suuremmat herkut ovat yleensä antaneet Mikille eniten haastetta.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACFOIXF2rxtor8hynw1WWwNa/aktivointilelut/kongit/DSC34912-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACUo0NUZHIeoB3CoIk1xqLLa/aktivointilelut/kongit/DSC34912.jpg)
 

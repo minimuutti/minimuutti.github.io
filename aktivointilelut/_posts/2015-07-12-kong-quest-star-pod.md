@@ -7,13 +7,18 @@ image:
   thumb:
 ---
 
-Oranssiin Kong Quest Star Podiin (L kokoinen) laitan yleensä [Nutrivet Instinct Dog Treat](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/nutrivet)) nameja. Nämä namit ovat juuri sopivan kokoisia noihin pyöreisiin aukkoihin, kun ne kääntää poikittain sinne aukon sisään.
 
-Myös [kuivatusta kanafileestä](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/puruliuskat/rocco/171756)) leikkaan sopivan kokoisia paloja ja tungen niitä noihin koloihin. Alla olevissa kuvissa lelussa on täytteenä [kuivattuja peuranlihan paloja](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/riistaherkut/peuranliha/141194)), jotka ovat myös sopivan kokoisia noihin koloihin.
+Kong Quest Star Pod on kestävä lelu ja se on hyvä lelu, mikäli sinulla on laittaa sinne oikean kokoisia herkkuja.
 
-Tämä lelu on tyhjä yleensä noin 2–5 minuutissa tai kanafileiden kanssa menee joskus muutama minuutti kauemmin.
+Lelua valmistetaan useammassa koossa ja tämä kuvissa näkyvä on L kokoinen.
 
----
+Laitan tähän yleensä [Nutrivet Instinct Dog Treat](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/nutrivet)) nameja. Nämä namit ovat juuri sopivan kokoisia noihin pyöreisiin aukkoihin, kun ne kääntää poikittain sinne aukon sisään.
+
+Myös [kuivatusta kanafileestä](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/puruliuskat/rocco/171756)) saa leikattua sopivan kokoisia paloja. Alla olevissa kuvissa lelussa on täytteenä [kuivattuja peuranlihan paloja](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/riistaherkut/peuranliha/141194)), jotka ovat myös sopivan kokoisia noihin koloihin.
+
+Vaikka lelu saa pisteitä kestävyydestä, niin sopivan kokoisten herkkujen löytäminen on välillä vaikeaa. Herkku pitäisi saada tungettua reikään, mutta se ei kuitenkaan saisi pudota siitä.
+
+Tämä lelu on tyhjä yleensä noin 2–5 minuutissa ja kanafileiden kanssa menee joskus muutama minuutti kauemmin.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACBWBGsWJIBmuH_ZLM3sC1za/aktivointilelut/kongit/DSC33990-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB90bVe5HY45o1jZnjJllr1a/aktivointilelut/kongit/DSC33990.jpg)
 

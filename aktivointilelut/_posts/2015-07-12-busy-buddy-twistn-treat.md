@@ -7,11 +7,15 @@ image:
   thumb:
 ---
 
-Violettiin Busy Buddy Twist'n Treat (L kokoinen) leluun laitan nappuloita. Vaikeimmalle säädettynäkin lelun tyhjentäminen kestää Mikiltä noin 1-2 minuuttia.
+Busy Buddy Twist'n Treat on yksi suosikeistani, koska se on erittäin kestävä.
 
-Tätä lelua voin silti lämpimästi suositella. Lelu ei maksa paljoa ja se on erittäin kestävä.
+Lelua valmistetaan useassa eri koossa ja tämä Mikille ostettu on L-kokoinen.
 
----
+Lelu on vaikeimmalle säädettynäkin aika helppo, joten tämä lelu sopii mainiosti koirille, joilla ei ole vielä paljoa kokemusta aktivointileluista. Kun laitan leluun pari desiä nappuloita, niin sen tyhjentäminen kestää Mikiltä noin pari-kolme minuuttia.
+
+Voin silti lämpimästi suositella tätä lelua. Lelu ei maksa paljoa ja se on erittäin kestävä. Tämä lelu on niin kestävä, että uskallan jättää sen Mikille kun poistumme itse kotoa.
+
+Lisäksi lelun voi avata pesua varten, joka pidentää sen käyttöikää entisestään.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABEwAyqGuS5o4W9gKvQpllpa/aktivointilelut/muut/DSC13183_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAANTkb6xJ8fwTgJwGtsdfia/aktivointilelut/muut/DSC13183_2.jpg)
 

@@ -37,7 +37,16 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 25.6.2017 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
+* 27.6.2017 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
+* 27.6.2017 Lisätty uusi aktivointilelu; [Kong Gyro](/aktivointilelut/kong-gyro/)
+* 27.6.2017 Päivitetty aktivointilelu; [Trixie Snack Spinner](/aktivointilelut/trixie-snack-spinner/)
+* 27.6.2017 Päivitetty aktivointilelu; [Kong Traxx Extreme](/aktivointilelut/kong-traxx-extreme/)
+* 27.6.2017 Päivitetty aktivointilelu; [Kong Quest Wishbone](/aktivointilelut/kong-quest-wishbone/)
+* 27.6.2017 Päivitetty aktivointilelu; [Kong Quest Star Pod](/aktivointilelut/kong-quest-star-pod/)
+* 27.6.2017 Päivitetty aktivointilelu; [Kong Genius Mike](/aktivointilelut/kong-genius-mike/)
+* 27.6.2017 Päivitetty aktivointilelu; [Kong Genius Leo](/aktivointilelut/kong-genius-leo/)
+* 27.6.2017 Päivitetty aktivointilelu; [Karlie Boomer herkkupallo](/aktivointilelut/karlie-boomer-herkkupallo/)
+* 27.6.2017 Päivitetty aktivointilelu; [Busy Buddy Twist'n Treat](/aktivointilelut/busy-buddy-twistn-treat/)
 * 25.6.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
 * 24.6.2017 Päivitetty aktivointivinkki; [Suihkepullot](/aktivointi/suihkepullot/)
 * 10.6.2017 Lisätty uusi postaus Blogiin; [Muuttaminen koiran kanssa](/blogi/muuttaminen-koiran-kanssa/)
@@ -65,7 +74,5 @@ Uudet ja viimeksi päivitetyt osiot:
 * 28.10.2016 Päivitetty aktivointivinkki; [Köysilaatikko](/aktivointi/koysilaatikko/)
 * 27.10.2016 Lisätty uusi aktivointivinkki; [Haistelulaatikko](/aktivointi/haistelulaatikko/)
 * 23.10.2016 Lisätty uusi aktivointivinkki; [Kuusi kuppia piilossa](/aktivointi/kuusi-kuppia-piilossa/)
-* 23.10.2016 Päivitetty aktivointivinkki; [Pyyheliina](/aktivointi/pyyheliina/)
-* 16.10.2016 Lisätty uusi aktivointivinkki; [Palloputket](/aktivointi/palloputket/)
 
 © Susu

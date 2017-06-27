@@ -7,9 +7,9 @@ image:
   thumb:
 ---
 
-Buster Food Cube's idea is great because a cube won't roll by itself on the floor but needs to be pushed all the time. This is also a great toy for dogs that are mouthy because of its shape and size - it just is too difficult to bite.
+Buster Food Cube's idea is great because a cube won't roll by itself on the floor but needs to be pushed all the time.
 
-You can buy this toy in two sizes and this is the larger one (4,5").
+This is also a great toy for dogs that are mouthy because of its shape and size - it just is too difficult to bite. You can buy this toy in two sizes and this is the larger one (4,5").
 
 Then the downsides.. the toy is poorly designed on the inside. Majority of the kibble fell out in the beginning and the last remaining kibble were extremely hard to get out. Also, the toy doesn't properly open for cleaning.
 

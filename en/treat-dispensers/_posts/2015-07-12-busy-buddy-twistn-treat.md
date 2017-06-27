@@ -7,11 +7,15 @@ image:
   thumb:
 ---
 
-In Busy Buddy Twist'n Treat (size L) I put kibbles.
+Busy Buddy Twist'n Treat is one of my favourite toys because it's so durable.
 
-You can adjust the difficulty of this toy. When this toy is adjusted to its hardest, Miki still gets the kibbles out in less than two minutes.
+They manufacture this toy in different sizes and this toy is size L.
 
-I recommend this toy anyway, because it's one of the cheapest toys we've bought for Miki and it seems to be really durable.
+You can adjust the difficulty of this toy. When this toy is adjusted to its hardest, Miki still gets the kibble out in about 2-3 minutes.
+
+I do recommend this toy anyway, because it's one of the cheapest toys we've bought for Miki and it seems to be really durable. The toy seems to be so durable that I'm comfortable leaving Miki with it when I'm not around myself.
+
+You can also open the the toy for cleaning.
 
 ---
 

@@ -7,11 +7,15 @@ image:
   thumb:
 ---
 
-With Kong Satellite I always use kibbles, because the toy doesn’t open for cleaning.
+Kong Satellite has been one of the most difficult toys we have bought for Miki.
 
-This toy has been one of the hardest ones for Miki that we have bought for him. At first it took Miki about 15 minutes to get all the kibbles out, but nowadays it takes about 5 minutes.
+This toy is manufactured only in one size as far as I know.
 
----
+I always use dry kibble with this toy because the toy doesn’t open for cleaning.
+
+This toy has been one of the hardest ones for Miki when the toy was new. At first it took Miki about 15 minutes to get all the kibble out. There are obstacles inside the toy and in addition it's hard to turn around on the floor.
+
+Later on Miki learned how to manipulate the toy and nowadays it takes him just a couple of minutes.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADmh2z8tCFuJhoYZbIGT6zfa/aktivointilelut/kongit/DSC34371-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAYRq3c5g9NccjCkdq5G50Ka/aktivointilelut/kongit/DSC34371.jpg)
 

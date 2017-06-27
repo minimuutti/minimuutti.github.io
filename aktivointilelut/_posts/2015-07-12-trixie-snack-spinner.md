@@ -7,13 +7,15 @@ image:
   thumb:
 ---
 
-Oranssi-harmaaseen Trixie Snack Spinneriin (koko 14 cm) laitan nappuloita.
+Trixie Snack Spinner on ollut yksi huonoimmista leluista, mitä Mikille on ostettu.
 
-Lelussa on välipohja, jolla lelun vaikeutta voi säätää, eli lelun idea on itsessään tosi hyvä. Tämä lelu ei ole ollut Mikillä käytössä kovinkaan montaa kertaa, koska se on alusta alkaen osoittautunut helposti rikkoutuvaksi. Lelu oli myös aika hinnakas muihin aktivointileluihin verrattuna.
+Tätä lelua tehdään kaiketi vain yhden kokoisena ja lelun halkaisija on 14 cm. Lelussa on välipohja, jolla lelun vaikeutta voi ainakin osittain säätää, eli lelun idea on itsessään ihan hyvä.
 
-Lelun tyhjentäminen kestää noin 3-4 minuuttia.
+Lelun pystyy avaamaan, mutta koska lelussa on kiinteä välipohja niin lelua ei pysty puhdistamaan kunnolla.
 
----
+Tämä lelu ei ole ollut Mikillä käytössä kovinkaan montaa kertaa, koska se on alusta alkaen osoittautunut helposti rikkoutuvaksi, vaikka Miki yleensä kohtelee lelujaan aika hellävaraisesti. Lelu oli myös aika hinnakas muihin aktivointileluihin verrattuna ja lisäksi se pitää aika kovaa ääntä, kun ruokanappulat kolisevat kovan lelun seiniä vasten.
+
+Kun laitan leluun annoksen nappuloita, niin sen tyhjentäminen kestää Mikiltä noin 3-4 minuuttia.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACBloMnKp4Ors8Xnm4GFS01a/aktivointilelut/muut/DSC34406-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADe0ZHwtDHHEhGPbQ2fV0Eia/aktivointilelut/muut/DSC34406.jpg)
 
