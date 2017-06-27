@@ -9,7 +9,7 @@ image:
 
 Kong Traxx Extreme is the most durable toy we have ever bought to Miki.
 
-Kong manufactures this toy only in one size; M/L.
+Kong manufactures this toy in two sizes and this is size M/L.
 
 These [Trixie Premio Sushi Rolls Light](http://www.zooplus.com/shop/dogs/dog_treats_chews/natural_treats_fish/204577) treats are just the right shape and size to put in the Kong Traxx tire.  I put 4 or 5 of these treats in the Traxx and it takes Miki about two minutes to eat them all.
 
