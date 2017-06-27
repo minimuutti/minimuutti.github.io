@@ -9,7 +9,7 @@ image:
 
 Taipuisasta aaltopahvista saa tehtyä tällaisen kivan herkkuspiraalin.
 
-Tähän tehtävään kannattaa valita jotain tahmeita herkkuja, kuten puolikosteita [kanafileen](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/puruliuskat/rocco/171756)) paloja, puolikosteita ankkafileen paloja, pieniä juustosiivuja tai pieniä kinkkusiivuja, jotta herkut eivät suoraan putoile ulos.
+Tähän tehtävään kannattaa valita jotain tahmeita herkkuja, kuten puolikosteita [kanafileen](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/rocco/rocco_puruliuskat/534985)) paloja, puolikosteita ankkafileen paloja, pieniä juustosiivuja tai pieniä kinkkusiivuja, jotta herkut eivät suoraan putoile ulos.
 
 Leikkasin askarteluveitsellä aaltopahvista 8 kappaletta noin 6 cm x 130 cm kokoisia suikaleita. Rullasin suikaleita peräjälkeen spiraaliksi ja kiinnitin jokaisen suikaleen aina palasella maalarinteippiä, jotta tuo spiraali pysyi kasassa. Tuonne väleihin laitoin pieneksi leikattuja puolikosteita ankkafileen palasia. Valmiin spiraalin halkaisija oli noin 20 cm.
 
