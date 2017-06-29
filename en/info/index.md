@@ -36,7 +36,8 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
-* 2017-06-28 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
+* 2017-06-29 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
+* 2017-06-29 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
 * 2017-06-27 New treat dispenser review; [Kong Gyro](/en/treat-dispensers/kong-gyro/)
 * 2017-07-27 Updated a treat dispenser review; [Trixie Snack Spinner](/en/treat-dispensers/trixie-snack-spinner/)
 * 2017-07-27 Updated a treat dispenser review; [Kong Traxx Extreme](/en/treat-dispensers/kong-traxx-extreme/)
@@ -46,7 +47,6 @@ New and recently updated posts:
 * 2017-07-27 Updated a treat dispenser review; [Kong Genius Leo](/en/treat-dispensers/kong-genius-leo/)
 * 2017-07-27 Updated a treat dispenser review; [Karlie Boomer treat ball](/en/treat-dispensers/karlie-boomer-treat-ball/)
 * 2017-07-27 Updated a treat dispenser review; [Busy Buddy Twist'n Treat](en/treat-dispensers/busy-buddy-twistn-treat/)
-* 2017-06-25 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
 * 2017-06-24 Updated activation post; [Spray bottles](/en/activation/spray-bottles/)
 * 2017-06-10 New post added into the Blog; [Moving with your dog](/en/blog/moving-with-your-dog/)
 * 2017-05-29 New photos added in category; [Spring](/en/photography/finnish-nature/spring/)
