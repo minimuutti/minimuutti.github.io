@@ -36,8 +36,8 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2017-07-01 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
 * 2017-06-29 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
-* 2017-06-29 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
 * 2017-06-27 New treat dispenser review; [Kong Gyro](/en/treat-dispensers/kong-gyro/)
 * 2017-07-27 Updated a treat dispenser review; [Trixie Snack Spinner](/en/treat-dispensers/trixie-snack-spinner/)
 * 2017-07-27 Updated a treat dispenser review; [Kong Traxx Extreme](/en/treat-dispensers/kong-traxx-extreme/)

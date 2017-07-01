@@ -37,8 +37,8 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 1.7.2017 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
 * 29.6.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
-* 29.6.2017 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
 * 27.6.2017 Lisätty uusi aktivointilelu; [Kong Gyro](/aktivointilelut/kong-gyro/)
 * 27.6.2017 Päivitetty aktivointilelu; [Trixie Snack Spinner](/aktivointilelut/trixie-snack-spinner/)
 * 27.6.2017 Päivitetty aktivointilelu; [Kong Traxx Extreme](/aktivointilelut/kong-traxx-extreme/)
