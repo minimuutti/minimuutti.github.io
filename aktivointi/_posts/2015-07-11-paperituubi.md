@@ -7,17 +7,19 @@ image:
   thumb:
 ---
 
-Tähän tarvitset vain 2-3 sivua aikakauslehdestä (mahdolliset niitit poistettu), maalarin teippiä sekä kuivia nameja.
+Paperituubien vaikeustasoa on helppo muuttaa lisäämällä tai vähentämällä tehtävässä käytettävien papereiden määrää.
+
+Tähän tarvitset vain 2-3 sivua aikakauslehdestä (mahdolliset niitit poistettu), maalarinteippiä sekä kuivia nameja.
 
 Paperituubi tehdään laittamalla pari-kolme sivua aikakauslehdesta vierekkäin tai peräkkäin ja teippaamalla sivut reunoista yhteen. Itse laitoin sivut reunasta hieman päällekkäin ja teippasin molemmalta puolelta.
 
 Laitoin lehtijonon pitkälle sivulle 5 namia ja käärin tuubiksi. Tuubin taittelin vielä neljään osaan vaikeuttaakseni tehtävää ja teippasin kiinni pienellä palalla teippiä. Tuubi oli silputtu noin minuutissa.
 
-Tätä voisi myös vaikeuttaa teippaamalla useita tuubeja kiinni toisiinsa tai laittamalla tuubit ensin laatikon sisään tai tuubin voi laittaa myös talouspaperirullan hylsyn sisään ja vielä teipata tuubin päät kiinni hylsyyn.
+Tehtävää on helppo vaikeuttaa rullaamalla useampia lehden sivuja päällekkäin. Tätä voi myös vaikeuttaa teippaamalla useita tuubeja kiinni toisiinsa tai laittamalla tuubit ensin laatikon tai talouspaperirullan hylsyn sisään.
 
-Tein Mikille myös jättituubin sanomalehdestä. Avasin sanomalehden sivut auki, laitoin nappuloita sinne väleihin ja rullasin sivut yksi kerrallaan, aina edellisen päälle. Kiinnitin jokaisen sivun maalarinteipillä ja lopuksi kiinnitin valmiin tuubin päät myös teipillä etteivät nappulat päässeet putoamaan ulos.
+Tein Mikille myös tällaisen vaikeamman jättituubin sanomalehdestä. Avasin sanomalehden sivut auki, laitoin nappuloita sinne väleihin ja rullasin sivut yksi kerrallaan, aina edellisen päälle. Kiinnitin jokaisen sivun maalarinteipillä ja lopuksi kiinnitin valmiin tuubin päät myös teipillä etteivät nappulat päässeet putoamaan ulos.
 
-Mikiltä kesti noin 10 minuuttia tämän jättituubin tuhoamiseen.
+Mikiltä meni noin 10 minuuttia tämän jättituubin tuhoamisessa.
 
 ---
 
