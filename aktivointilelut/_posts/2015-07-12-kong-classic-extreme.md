@@ -25,6 +25,8 @@ Joskus laitan leluun myös keskeltä puoliksi taitetun (V –kirjaimen mallisen)
 
 Tämä lelu on ehdoton suosikkini sen monikäyttöisyyden ja kestävyyden vuoksi.
 
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADs6X3jVTKCj0mIa3Ux9wWja/aktivointilelut/kongit/DS37157-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABhnRSLaX_vRnzwn85bUcIka/aktivointilelut/kongit/DS37157.jpg)
+
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD177-tPP7Bv2zCFS91_1_da/aktivointilelut/kongit/DSC16731_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADF6PI-JLkAoONYtFslr74da/aktivointilelut/kongit/DSC16731_2.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACijOdVL8Lw6PdxutHyU6DZa/aktivointilelut/kongit/DSC19223_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADbkl3kfuZhs-pmx8aq4jxfa/aktivointilelut/kongit/DSC19223_2.jpg)
