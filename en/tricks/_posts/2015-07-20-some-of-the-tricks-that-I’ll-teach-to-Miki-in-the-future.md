@@ -3,7 +3,7 @@ title: "Some of the tricks that I’ll teach to Miki in the future"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC_aYqP5lbGWgpXIFjjVozQa/temput/1/DSC30147-245px.jpg
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5uYNNRfs5bhIlYFmnw9Rua/temput/3/DSC30147-245px.jpg
   thumb:
 ---
 
@@ -26,18 +26,14 @@ image:
 * weave backwards
 * leans toward a wall with frontpaws
 * leans toward a wall with backpaws
-* walking stairs backwards
 * walks sideways to right
 * walks sideways to left
 * nods his head like "yes"
 * shakes his head like "no"
+* walk through a rolling hulahoop
 * dive into snow or water
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABC_DqwqBF13eQrQLq4fYc1a/temput/2/IMG19686-245px.jpg)
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD-bVLh4ZLu7Srui7o3b-cca/temput/2/DSC22512-245px.jpg)
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAByzw4ZtSeBEWKOkG9OsMBAa/temput/2/IMG14954-245px.jpg)
-
-* skateboarding
-* slalom between the sticks in agility
-* seesaw
-* walk through a rolling hulahoop
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADjvz5zRFEANi0kfgPWLDaqa/temput/3/IMG19686-245px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAAZKpqOgqf9jAm_hTBtqVra/temput/3/IMG19686.JPG)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAQ4xtt7ZlGZDubu4Kmp0__a/temput/3/DSC22512-245px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAkGocSw93CHyJFFxd9W4kta/temput/3/DSC22512.JPG)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACBsJ9tAfG-J7N6gfOndo-Oa/temput/3/IMG14954-245px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAWDGr88SFkHCb6BsGS0p2fa/temput/3/IMG14954.JPG)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADefz12OQdMo55Rlct41Z8ca/temput/3/IMG12660-245px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD6ZnuB-ERDhZcwxj7JMmx6a/temput/3/IMG12660.JPG)
