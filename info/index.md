@@ -37,7 +37,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 7.7.2017 Päivitetty [Mikin osaamat temput](/temput/mikin-osaamat-temput/)
+* 8.7.2017 Päivitetty [Mikin osaamat temput](/temput/mikin-osaamat-temput/)
 * 1.7.2017 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
 * 29.6.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
 * 27.6.2017 Lisätty uusi aktivointilelu; [Kong Gyro](/aktivointilelut/kong-gyro/)

@@ -36,7 +36,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
-* 2017-07-07 Updated [Tricks and commands that Miki knows](/en/tricks/tricks-and-cues-that-Miki-knows/)
+* 2017-07-08 Updated [Tricks and commands that Miki knows](/en/tricks/tricks-and-cues-that-Miki-knows/)
 * 2017-07-01 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
 * 2017-06-29 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
 * 2017-06-27 New treat dispenser review; [Kong Gyro](/en/treat-dispensers/kong-gyro/)

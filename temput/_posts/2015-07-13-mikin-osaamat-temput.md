@@ -162,7 +162,11 @@ image:
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA4r6Kbn6YAjmSU9ub5k0Maa/temput/3/DSC34558-245px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADEvV-79aROqVGf5HU735N9a/temput/3/DSC34558.JPG)
 
 * ota Kongi (nappaa lattialla lojuvan lumiukko Kongin pois tieltä, eli siirtää sen kauemmaksi)
-* anna (tähän ei ole mitään sanallista vihjettä, vaan Miki osaa käsimerkillä antaa pudottamani tavaran käteeni)
+* anna (tähän ei ole mitään sanallista vihjettä, vaan Miki osaa käsimerkillä antaa lattialla olevan tai pudottamani tavaran käteeni)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC-ym17cg5IR7ZfAwL5CthKa/temput/3/DS58512-245px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAUbAtG8lSP-1iD2ICUvvZza/temput/3/DS58512.JPG)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA10cOTgwbedKS15NjjU9BOa/temput/3/DS58515-245px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA7f2qqwIhN2Z_XknR7iWDDa/temput/3/DS58515.JPG)
+
 * matto (rullaa maton auki tai suoristaa sen, jos vain kulma on kurtussa tai taitettuna)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADDyb7049FG4Hpf-6sIDaKfa/temput/3/DSC29826-245px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADZxTKfaeaQscGP6MCIEcNpa/temput/3/DSC29826.JPG)
@@ -212,12 +216,22 @@ image:
 
 * kieri (Miki kierähtää selänkautta ympäri, ei sanallista vihjettä, vain käsimerkki)
 
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADqK5hn46pN294vaLZfmhN0a/temput/3/DS58431-245px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB6taR_8l_vjWmrKku_Lxxta/temput/3/DS58431.JPG)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA44yAmVghe0AttSB_wTTV6a/temput/3/DS58432-245px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA8gYpoqXti118nnERc79IKa/temput/3/DS58432.JPG)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD7DPMH1gp9fNwdT4q7uYG4a/temput/3/DS58433-245px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADU52bm8xHyUtt15CWDqzjza/temput/3/DS58433.JPG)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA9qy4qpG2BpfXvsTZjYvSLa/temput/3/DS58434-245px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAV4km9QNdHp7KGOVMBgAeRa/temput/3/DS58434.JPG)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADOI0wfXKJGjMT0p93b9Znda/temput/3/DS58435-245px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABo-V8vzBpy0TpmHl8WJwKga/temput/3/DS58435.JPG)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB31WW9B3tnVLWTN_vvi-Jba/temput/3/DS58436-245px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACTUw_KTVU_K5N3LvL69oWha/temput/3/DS58436.JPG)
+
 * kaada (kaataa lattialla olevan esineen tai esineet)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACPTysrnvy8gkbZv5vld6rza/temput/3/DSC30911-245px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAdV--C38S4etDR-CwlyGAva/temput/3/DSC30911.JPG)
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABItOXKYm2dWcpmRAxH899Ka/temput/3/DSC30912-245px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABTS9u9ForGhMpDtoze_BJea/temput/3/DSC30912.JPG)
 
 * kuonon lepuuttaminen kämmenellä (tähän ei ole mitään sanallista vihjettä vaan pelkkä käsimerkki, koska toiminnon on tarkoitus rauhoittaa Mikiä)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAbiKakQ7m_hZJYiV9KTCxWa/temput/3/DS58421-245px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADrvgQFzH6M7nYjbpI998O1a/temput/3/DS58421.JPG)
+
 * kosketuskepin pään koskettaminen kuonolla
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5uYNNRfs5bhIlYFmnw9Rua/temput/3/DSC30147-245px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAbnFuHTzXoT9t4_5mJBEsXa/temput/3/DSC30147.JPG)
