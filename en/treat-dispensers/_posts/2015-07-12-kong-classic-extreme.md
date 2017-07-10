@@ -3,7 +3,7 @@ title: "Kong Classic (Extreme)"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACzvrSVdYBnDKj7SFfTyfA7a/aktivointilelut/kongit/DSC16731-245px.jpg
+  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACW7Tq10K6ui_BfW85Y3W6Ga/aktivointilelut/kongit/DS37157-245px.jpg
   thumb:
 ---
 
