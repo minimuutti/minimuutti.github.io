@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-I got the idea for these baskets from Ikea's Nordrana baskets, which I got as a present. So, if you don't want to crochet the baskets yourself, you can buy them at Ikea.
+I got the idea for these baskets from Ikea's Nordrana baskets. So, if you don't want to crochet the baskets yourself, you can buy them from Ikea.
 
 If you want to crochet the baskets yourself, you can find lots of tutorials when you google "crochet basket". Then you should consider the size of your dog's nose and head, so that your dog can reach the treats on the bottom.
 

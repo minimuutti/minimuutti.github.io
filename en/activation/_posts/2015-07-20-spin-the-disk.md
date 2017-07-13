@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+You can make amazing things out of garbage if you just use a bit of imagination.
+
 I got a great idea for a brain game from this carton tray I got from a round kitchen scale's package. The tray is round in the middle and has perfect holes in the corners for treats.
 
 First I measured the diameter of the tray's round section, which was 20cm (7,9"). Then I cut a slightly smaller disk out of cardboard, about 19cm (7,5") in diameter.

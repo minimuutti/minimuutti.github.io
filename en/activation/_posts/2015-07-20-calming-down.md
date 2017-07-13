@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Calming down is very hard for Miki so that's why we need to practise it.
+
 We practise calming down by capturing/marking it as Miki does it by his self. When Miki lies down by my side, I give him a treat (which I always have a couple in my pocket, just in case). I lay the treat down right in front of Miki, so that he’s not attempted to get back up on his feet.
 
 Miki gets the next treat by staying in down position like a minute or two. Also if he puts her head on the floor too, he gets the treat.

@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Working around distractions has always been very difficult to Miki. So we train him with distraction every now and then. We have done this exercise only at home for now, because there are just too many distractions outside.
+Working around distractions has always been very difficult to Miki.
+
+We train him with distractions every now and then. We have done this exercise only at home for now, because there are just too many distractions outside.
  
 Usually we play the eye contact game, which means that one of us sits down on the floor with Miki and Miki has to look at the person in the eyes he’s sitting with, to get the treats. Simultaneously the other person makes a lot of distractions around. 
 

@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-This game is like a reversed muffin tray. As I was shopping, I drooled over some muffin trays and came up with an idea for this game. I put treats to paper muffin liners and then I put them between two cardboard panels.
+As I was shopping, I drooled over some muffin trays and came up with an idea for this game.
+
+This game is like a reversed muffin tray. I put treats to paper muffin liners and then I put them between two cardboard panels.
 
 First I measured the paper liner's diameter and draw slightly smaller circles on the side of a cardboard box. I drew 8 circles, but you can do as many as you like (look a picture mosaic at the bottom, picture 1).
 

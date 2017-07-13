@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+It takes tome effort to craft the game, but the end result is worth it.
+
 For turntables you need a shallow cardboard box, some thin cardboard, four zip ties or two brads, glue and two small items to be used as handles.
 
 First I drew two circles on to the box and then I cut them open with a modelling knife. Then I took some thin cardboard and I drew two slightly larger circles on it and then I cut them out too. These will be the lids to the holes. The lids were about 1,5 cm (0,6") larger in diameter than the holes.

@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Piilota nappulat (noin 50–100 kpl) ympäri asuntoa tai piilota vain yksi lihan tai juuston pala koko asuntoon (kätevä tapa hävittää vahingossa lattialle putoilleet juustosiivut).
+Piilotan usein nappulat ympäri asuntoa Mikin etsittäväksi.
+
+Tämä tarkoittaa kerralla noin 50–100 kpl nappulaa. Välillä piilotan vain yhden lihan tai juuston palan koko asuntoon, joka on kätevä tapa hävittää vahingossa lattialle putoilleet juustosiivut :)
 
 Tässä tehtävässä laitan Mikin parvekkeelle odottamaan, jotta se ei suoraan näe mihin piilotan nappulat. Nappulat kannattaa piilottaa vain sellaisiin paikkoihin, mihin koiralla on oikeus mennä. Mikillä ei esimerkiksi ole lupaa mennä sohvalle eikä se saa kiipeillä huonekaluille muutenkaan, joten piilotan nappulat melko lähelle lattiatasoa.
 

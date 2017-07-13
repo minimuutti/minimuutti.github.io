@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Tarvitset tähän vain DVD-kotelon ja nameja, jotka mahtuvat kotelon sisään. Ensimmäisellä kerralla laitoin vähän juustoraastetta, muutoin olen laittanut nappuloita tai jotain pieniä nameja.
+Tarvitset tähän vain DVD-kotelon ja nameja, jotka mahtuvat kotelon sisään.
+
+Ensimmäisellä kerralla laitoin vähän juustoraastetta, muutoin olen laittanut nappuloita tai jotain pieniä nameja.
 
 Leikkasin saksilla irti tuosta DVD-kotelosta sen muovin, joka pitää kansilehden paikoillaan. Muovi tuntui aika terävältä, niin Miki olisi saattanut saada siitä haavan suuhun. Kotelon avaaminen kesti Mikiltä reilun minuutin.
 

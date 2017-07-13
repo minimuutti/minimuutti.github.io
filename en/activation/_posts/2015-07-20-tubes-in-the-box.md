@@ -7,13 +7,15 @@ image:
   thumb:
 ---
 
-I used three cardboard tubes and a cut from a plastic pipe for this game. You can use any tubes available, for example empty paper towel rolls, soda bottles, Pringles tubes or dog treat tubes.
+Just a few tubes and a box and you can make these fun games for your dog.
+
+I used three cardboard tubes and a cut from a plastic pipe for this game. You can use any tubes available, for example soda bottles, Pringles tubes or for a smaller dog empty paper towel rolls or cat treat tubes. At least for once you have a justified reason for buying several tubes of crisps at the same time :D
 
 ### Game 1
 
-I put four tubes on the bottom of a cardboard box, so that the gap left in there was a bit wider than Miki's nose. Then I sprinkled a small handful of kibbles in between the tubes and in the sides too. You can use kibbles or other small treats. The idea of this game is that the dog needs to roll the tubes to both directions to get all the kibbles out.
+I put four tubes on the bottom of a cardboard box, so that the gap left in there was a bit wider than Miki's nose. Then I sprinkled a small handful of kibbles in between the tubes and in the sides too. You can use kibble or other small treats. The idea of this game is that the dog needs to roll the tubes to both directions to get all the kibble out.
 
-It took Miki about a minute to find a small handful of kibbles.
+It took Miki about a minute to find a small handful of kibble.
 
 ---
 

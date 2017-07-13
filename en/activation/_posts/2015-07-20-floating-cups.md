@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+I thought this would've been easy for Miki, but it turned out if was quite difficult.
+
 I filled a basin with water and put five yoghurt cups to float on it and put a couple of kibbles in each cup. You can use any bucket or even kids' pool for this, but you want to play this game on the bathroom floor or in the garden, not on the livingroom floor.
 
 This game was surprisingly hard for Miki, in fact if was a bit exciting for him. Those floating cups were so exciting, that Miki rescued them out of the basin :D Anyhow, it drained some of his energy and that's the only thing that matters.

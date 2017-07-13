@@ -7,9 +7,9 @@ image:
   thumb:
 ---
 
-This game is suitable for dogs that already know multiple tricks/commands and who are already familiar with clicker training. In this game you don't give the dog any clues about what he's supposed to do, you just have to wait for the dog to do something.
+This game is suitable for dogs that already know multiple tricks/commands and who are already familiar with clicker training.
 
-I didn't have to teach Miki this game because he is always so enthusiastic when I pick up the clicker and put some kibbles in my pocket that he is ready to do anything as long as he gets to eat the kibbles.
+In this game you don't give the dog any clues about what he's supposed to do, you just have to wait for the dog to do something. I didn't have to teach Miki this game because he is always so enthusiastic when I pick up the clicker and put some kibbles in my pocket that he is ready to do anything as long as he gets to eat the kibbles.
 
 I started this by picking up the clicker and some kibbles and I sat in an arm chair without saying anything and waited for Miki to do **anything** (that he is allowed to do). This was enough to put Miki in a working mode and right away he sat in front of me because that is usually our starting position. I clicked for the sit and gave him a kibble. Then I said to him "do something else" even though at that time it wasn't a command that Miki recognises. When sitting didn't lead to another click Miki lied down. I clicked and gave him another kibble. Then again I said to him "do something else" waited for him to do something else, clicked and gave him a kibble.
 

@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Tämä temppu oli yksi ensimmäisistä, mitä Mikille on opetettu.
+
 Tässä koira ensin haistaa kummassa kädessä nami on ja vain oikealla arvauksella se saa ottaa namin (osoittaa tassulla kummassa kädessä arvelee namin olevan) ja väärästä arvauksesta nami menee selän taakse.
 
 Sinällään tämä ei ole mikään vaativa temppu, mutta jos 50–100 nappulaakin arvuuttaa koiralla niin kyllä siinä tulee nenällä tehtyä töitä (varsinkin kun väärästä arvauksesta nami katoaa).

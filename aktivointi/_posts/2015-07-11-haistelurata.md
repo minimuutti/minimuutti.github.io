@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Haistelu on yksi tehokkaimmista keinoista väsyttää koiraa. Mikäli koira ei ole aiemmin etsinyt, niin on hyvä aloittaa vaikka vain kolmella esineellä/esteellä. Koiran taitojen karttuessa esineitä/esteitä voi lisätä pikkuhiljaa.
+Haistelu on yksi tehokkaimmista keinoista väsyttää koiraa. Mikäli koira ei ole aiemmin etsinyt, niin on hyvä aloittaa vaikka vain kolmella esineellä/esteellä.
+
+Koiran taitojen karttuessa esineitä/esteitä voi lisätä pikkuhiljaa.
 
 Esineinä/esteinä voi käyttää melkeinpä mitä tahansa laatikoita, putkiloita, ämpäreitä, vateja, säilytyskoreja, palloja, kasseja, raheja, tyynyjä, rullattuja mattoja jne.
 

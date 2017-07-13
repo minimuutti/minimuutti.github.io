@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Jään sisällä olevat namit ovat kesällä mitä parhainta ajanvietettä koiralle. Koira tulee tällä tavalla juoneeksi enemmän vettä ja koira saa näistä pitkäksi aikaa kivaa ja viileää tekemistä.
+Jään sisällä olevat namit ovat kesällä mitä parhainta ajanvietettä koiralle.
+
+Koira tulee tällä tavalla juoneeksi enemmän vettä ja koira saa näistä pitkäksi aikaa kivaa ja viileää tekemistä.
 
 Laitan purkkiin vettä ja sinne sekaan esim. nakkipötköjä ja laitan helahoidon pakastimeen muutamaksi tunniksi. Miki saa sitten kaivella nuo nakin palat tuolta jään sisältä. Ylimmässä kuvassa näkyy ensimmäinen kerta, kun tein Mikille tällaisen kesähelteellä. Tämän syöminen tosin kesti vain minuutin.
 

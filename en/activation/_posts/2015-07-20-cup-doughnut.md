@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-You need at least 10 carton or plastic cups and some string or yarn. I took 15 paper cups and 75 cm (29") of yarn and wired the yarn through the bottom of the cups with a needle. Then I tied the beginning and the end of the yarn together as a circle and put one or two kibbles in each cup.
+You need at least 10 carton or plastic cups and some string or yarn.
+
+I took 15 paper cups and 75 cm (29") of yarn and wired the yarn through the bottom of the cups with a needle. Then I tied the beginning and the end of the yarn together as a circle and put one or two kibbles in each cup.
 
 It took Miki about 15 minutes to find all the treats.
 

@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Sniffing is one of the most efficient way to drain your dog's energy. If your dog hasn't search much before, you need to start with only three items/obstacles. Later on when your dog is used to searching you can use more items/obstacles.
+Sniffing is one of the most efficient way to drain your dog's energy. If your dog hasn't search much before, you need to start with only three items/obstacles.
+
+Later on when your dog is used to searching you can use more items/obstacles.
 
 You can use almost any items in this game, such as cardboard boxes, tubes, containers, buckets, basins, baskets, balls, bags, footstools, pillows, rolled rugs etc.
 

@@ -7,6 +7,10 @@ image:
   thumb:
 ---
 
+Pesuvatien asettaminen päällekkäin laittaa koiran miettimään, koska vatien erottaminen ei ole aivan helppoa.
+
+Tai vaikka uloimman vadin nostaminen olisikin helppoa, niin tuon herkun saaminen ei olekaan yhtä helppoa, koska vati aina putoaa takaisin alas kun siitä päästää irti :D
+
 Laitoin kaksi sisäkkäin menevää pesuvatia päällekkäin ja väliin laitoin kinkkusiivuja.
 
 Käänsin pesuvadit alassuin lattialle ja Mikillä kesti vatien erottaminen ensimmäisellä kerralla vajaan minuutin. Nykyään vatien erottamiseen menee noin 15 sekuntia.

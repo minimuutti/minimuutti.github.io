@@ -7,9 +7,9 @@ image:
   thumb:
 ---
 
-Ulkona pyydän Mikiä usein kiipeämään penkkien, kivien, kaatuneiden puiden, kantojen tai muiden sopivankorkuisten asioiden päälle. Tässä päällä teetän sitten Mikille opetettuja temppuja.
+Ulkona pyydän Mikiä usein kiipeämään penkkien, kivien, kaatuneiden puiden, kantojen tai muiden sopivankorkuisten asioiden päälle.
 
-Penkin tai kiven päällä temppujen tekeminen on aika helppoa, mutta esim. kaatuneen puun rungon päällä kääntyminen ympäri tai peruuttaminen onkin jo sitten vaikeampaa.
+Niiden päällä yleensä vielä teetän joitain Mikille opetettuja temppuja. Penkin tai kiven päällä temppujen tekeminen on aika helppoa, mutta esim. kaatuneen puun rungon päällä kääntyminen ympäri tai peruuttaminen onkin jo sitten vaikeampaa.
 
 Kannattaa kuitenkin aloittaa helpoimmista. Ja aina kannattaa varmistaa ensin, että asia johon koiran pitäisi hypätä tai kiivetä, on tukevasti paikallaan ja sellaista materiaalia jossa tassut pitävät.
 

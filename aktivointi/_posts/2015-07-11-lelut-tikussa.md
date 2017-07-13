@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Lelujen vetäminen pois tikusta antaa koiralle aivan uudenlaista haastetta.
+
 Laitoin Kong Traxx renkaan sisälle pari [Nutrivet Instinct Dog Treat](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/nutrivet)) namia, jotka ovat juuri oikean kokoisia lelun sisälle ja sen jälkeen pujotin renkaan tikkuun.
 
 Käyttämäni tikku on mopin varsi, mutta voit käyttää mitä tahansa tikkua tai vartta johon saa jonkun koiran leluista pujotettua. Tikku ei kuitenkaan saa olla terävä eikä sen päässä saa olla mitään piikkiä ettei koira vahingossa satuta itseään.

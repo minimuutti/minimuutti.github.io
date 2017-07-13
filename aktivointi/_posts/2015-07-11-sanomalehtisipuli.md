@@ -7,13 +7,17 @@ image:
   thumb:
 ---
 
-Tähän tarvitset sanomalehden tai iltapäivälehden, josta niitit on poistettu, maalarinteippiä sekä kuivia nameja. Itse laitoin nappuloita sekä joitain herkkupaloja.
+Tähän tarvitset sanomalehden tai iltapäivälehden, josta niitit on poistettu, sekä maalarinteippiä ja kuivia nameja.
 
-Ensiksi otin lehdestä yhden sivun ja laitoin sen päälle nameja. Sitten ruttasin ja taittelin sivun laittaen nameja myös niiden taitosten väleihin. Kun sivu oli taiteltu, niin aloitin taittelemaan uuden sivun aina vanhojen päälle laittaen nameja sinne väleihin. Aloitin herkkupaloista, eli laitoin paremmat namit sisälle ja nappulat uloimpiin kerroksiin. Valmiin paketin päälle laitoin vielä useamman kierroksen maalarinteippiä.
+Lehden sivut paketoidaan sipulin tapaan kerroksiksi ja namit/nappulat piilotetaan kerrosten väleihin. Namien piilotustapaa voi vaihdella vaikka ruttaamalla osan sivuista palloiksi, joiden sisällä on nameja ja paketoimalla sitten nämä pallot sipulin sisälle.
 
-Mikiltä meni noin 10-15 minuuttia saada kaikki namit ulos tästä sipulista.
+Itse olen paketoinut muutamia parempia herkkuja pakettiin sisimmäiseksi ja nappulat uloimpiin kerroksiin. 
 
-Tälläistä sanomalehtisipulia ei kannata antaa koiralle valkoisella matolla, vaan ennemmin vaikka paljaalla lattialla tai jollain tummemmalla matolla. Itsellä ainakin sormet tummuivat painomusteesta, kun taittelin sipulin kokoon. Eikä tälläistä välttämättä kannata antaa koiralle joka päivä, koska koirakin tulee varmaan nuolleeksi jonkun verran tuota mustetta.
+Tehtävän vaikeutta voi säädellä laittamalla enemmän tai vähemmän kerroksia, mutta myös teipin määrällä. Mitä enemmän paketissa on käytetty teippiä, sen vaikeampi se on repiä auki.
+
+Mikiltä kestää noin 10-15 minuuttia saada kaikki namit ulos tällaisesta sipulista.
+
+Tälläistä sanomalehtisipulia ei kannata antaa koiralle valkoisella matolla, vaan ennemmin vaikka paljaalla lattialla tai jollain tummemmalla matolla. Itsellä ainakin sormet tummuivat painomusteesta, kun paketoin sipulin kokoon. Eikä tälläistä välttämättä kannata antaa koiralle joka päivä, koska koirakin tulee varmaan nuolleeksi jonkun verran tuota mustetta.
 
 ---
 

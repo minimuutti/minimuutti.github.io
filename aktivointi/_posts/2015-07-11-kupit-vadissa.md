@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Karkailevat kupit liukkaassa vadissa antavat lisähaastetta namien etsintään.
+
 Laitoin pesuvatiin ensin yhden jogurttipurkin alassuin. Sitten laitoin namin tuon purkin alle ja pyysin Mikiä etsimään. Parin tälläisen helpon harjoituksen jälkeen laitoin vatiin kolme jogurttipurkkia ja namin vain yhden purkin alle tai kahden purkin alle.
 
 Tämä leikki oli Mikille aika helppo, jokainen nami löytyi aina parissa sekunnissa vaikka sekoitin kuppeja vadissa ennen kuin Miki sai luvan etsiä.

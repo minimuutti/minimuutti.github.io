@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Slippery basin gives an extra challenge in this treat hunt.
+
 At the first time I put one yoghurt cup into the basin face down. Then I put a treat under it and asked Miki to search. After a couple of easy games like this I put three yoghurt cups into the basin and I put a treat only under one or two of those cups.
 
 This game was relatively easy for Miki. Every treat I put under the cups vanished in a few seconds, although I moved and mixed the cups in the basin before I asked Miki to search.

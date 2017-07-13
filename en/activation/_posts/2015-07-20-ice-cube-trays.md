@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Ice cube trays are the best in those hot summer days, but you can also use them otherwise.
+
 You can make several different games with ice cube trays. I used ice cube trays that are made out of rubber, but you can also use those which are made out of plastic. You can use kibbles or any small treats for this game. 
 
 First I placed the trays on the floor and put one kibble in each hole. At the second time I put the trays on the floor upside down and sprinkled kibbles in the gaps. At the third time I put the trays upside down, but this time I hid the kibbles under the trays. At the fourth time I put the trays onto a cardboard box.
@@ -26,3 +28,7 @@ It took Miki about a minute each time to eat all the kibbles.
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACEHN1zQB_LYXeAPO0AE7Lja/aktivointi/jaapalamuotit/DSC46448-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAkYg5cHzMoD7vHZwBqdZJIa/aktivointi/jaapalamuotit/DSC46448.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABC9QvQRsPcgydR4kcvcW3Ia/aktivointi/jaapalamuotit/DSC46497-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACyLuoIvqImbBHbBIHr5fL6a/aktivointi/jaapalamuotit/DSC46497.jpg)
+
+In hot weather you could use the tray like I've used it in the post "[Treats frozen inside ice](/en/activation/treats-frozen-inside-ice/)"
+
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACSPI58FsqwKrhpBlMM4GWfa/aktivointi/jaan-sisalla-olevat-namit/DSC43352-800px.jpg)

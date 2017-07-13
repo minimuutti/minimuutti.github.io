@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Käytin tässä tehtävässä tulostuspaperirullien hylsyjä sekä muoviputkesta leikattua pätkää. Tässä voi yhtä hyvin käyttää myös limupulloja, Pringlestuubeja sekä talouspaperirullan hylsyjä tai koirannamiputkiloita.
+Tarvitset vain laatikon ja muutaman tuubin näitä kivoja tehtäviä varten.
+
+Käytin tässä tehtävässä tulostuspaperirullien hylsyjä sekä muoviputkesta leikattua pätkää. Tässä voi yhtä hyvin käyttää myös limupulloja, Pringlestuubeja sekä pienemmälle koiralle talouspaperirullan hylsyjä tai kissannamiputkiloita. Kerrankin perusteltu syy ostaa sipsejä tuubissa :D
 
 ### Tehtävä 1
 

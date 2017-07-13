@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Miki on erittäin häiriöherkkä, joten teemme aina silloin tällöin keskittymistä parantavaa harjoittelua häiriöllä. Mikin kanssa olemme tehneet häiriöharjoituksia vain kotona ja rappukäytävässä, koska Mikille pelkkä ajatuskin ulko-ovesta on jo suuri houkutus.
+Miki on erittäin häiriöherkkä, joten teemme aina silloin tällöin keskittymistä parantavaa harjoittelua häiriöllä.
+
+Mikin kanssa olemme tehneet häiriöharjoituksia vain kotona ja rappukäytävässä, koska Mikille pelkkä ajatuskin ulko-ovesta on jo suuri houkutus.
 
 Hyvä häiriöharjoitus on esimerkiksi ihan tavallinen kontaktiharjoitus, jossa koira istuu paikallaan ja ottaa kontaktia toisen henkilön tehdessä häiriöitä. Koiran tulee siis katsoa henkilöä silmiin kenen kanssa se istuu saadakseen palkkion (vaikka ympärillä tapahtuu samaan aikaan paljon kaikenlaista).
 

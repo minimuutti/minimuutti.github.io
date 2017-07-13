@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Levysoittimen rakentaminen vie vähän aikaa ja vaatii kärsivällisyyttä, mutta lopputulos on sen arvoinen.
+
 Levysoitinta varten tarvitset matalan pahvilaatikon, ohutta kovaa pahvia, neljä nippusidettä tai kaksi haaranastaa sekä kaksi pikkutavaraa jotka saa liimattua pahviin nupeiksi, sekä liimaa.
 
 Aloitin leikkaamalla matalaan pahvilaatikkoon kaksi pyöreää reikää. Piirsin ensin ympyrät laatikon kanteen pyöreän koirannamiämpärin avulla ja leikkasin sitten ympyrät auki askarteluveitsellä. Reijistä tulee tehdä sen kokoiset, että koira pystyy syömään namit tuolta laatikon pohjalta. Jos et omista askarteluveistä, niin voit yhtä hyvin käyttää saksia.

@@ -7,9 +7,11 @@ image:
   thumb:
 ---
 
-I often hide the kibbles (about 50 to 100) around the apartment. Or I could just hide one piece on meat or cheese in the whole apartment. When I do the hiding, I put Miki on the balcony to wait so he doesn’t see whee I put the kibbles.
+I often hide Miki's kibble dinner around the apartment.
 
-You need to hide the kibbles only in those areas you are comfortable for your dog to go. For example Miki doesn’t have a permission to climb on the sofa or any other furniture, so I hide the kibbles relatively close to the floorlevel.
+That means about 50 to 100 kibble at one time. Or sometimes I hide just one piece on meat or cheese in the whole apartment. When I do the hiding, I put Miki on the balcony to wait so he doesn’t see where I hide the kibble.
+
+You need to hide the kibble only in those areas you are comfortable for your dog to go. For example Miki doesn’t have a permission to climb on the sofa or any other furniture, so I hide the kibble relatively close to the floorlevel.
 
 ---
 

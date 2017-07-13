@@ -7,9 +7,9 @@ image:
   thumb:
 ---
 
-Tämä leikki sopii parhaiten koirille, jotka osaavat jo useampia temppuja/käskyjä ja joille naksutinkoulutus on jo ennestään tuttua. Leikissä koiralle ei anneta mitään vihjeitä tiettyjen käytösten suorittamiseksi, vaan odotetaan koiran tarjoavan niitä oma-aloitteisesti.
+Tämä leikki sopii parhaiten koirille, jotka osaavat jo useampia temppuja/käskyjä ja joille naksutinkoulutus on jo ennestään tuttua.
 
-Meillä tätä leikkiä ei tarvinnut Mikille mitenkään opettaa. Miki on aina niin läsnä, että kun otan vaan naksuttimen käteen ja muutamia nappuloita taskuun, niin se on aina heti valmiina tekemään ruuan toivossa :D
+Leikissä koiralle ei anneta mitään vihjeitä tiettyjen käytösten suorittamiseksi, vaan odotetaan koiran tarjoavan niitä oma-aloitteisesti. Meillä tätä leikkiä ei tarvinnut Mikille mitenkään opettaa. Miki on aina niin läsnä, että kun otan vaan naksuttimen käteen ja muutamia nappuloita taskuun, niin se on aina heti valmiina tekemään ruuan toivossa :D
 
 Aloitimme ensimmäisellä kerralla näin: otin naksuttimen ja nappuloita, joka itsessään viritti Mikin tiettyyn moodiin. Kävin nojatuoliin istumaan ja odotin että Miki tekee **ihan mitä tahansa** (sallittua). Miki kävi välittömästi istumaan eteeni, koska se on meillä usein aloitusasentona > istumisesta naks ja nami. Tässä kohtaa sanoin Mikille ”tee jotain muuta” vaikka tässä vaiheessa vihje ei Mikille mitään vielä tarkoittanutkaan. Kun istuminen ei tuottanut enää uutta naksautusta, niin Miki meni maahan > maahan menosta naks ja nami. Taas sanoin ”tee jotain muuta” ja palkkasin kun Miki teki jotain muuta.
 

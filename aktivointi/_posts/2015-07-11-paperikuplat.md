@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Kävin kaupassa ihastelemassa erilaisia metallisia ja silikonisia muffinssivuokia ja sain niistä idean näihin paperikupliin. Tehtävä on käytännössä kuin käänteinen muffinssivuoka. Kahden pahvilevyn väliin on sijoitettu paperisia muffinssivuokia, joiden alla namit on piilossa.
+Kävin kaupassa ihastelemassa erilaisia metallisia ja silikonisia muffinssivuokia ja sain niistä idean näihin paperikupliin.
+
+Tehtävä on käytännössä kuin käänteinen muffinssivuokam eli kahden pahvilevyn väliin on sijoitettu paperisia muffinssivuokia, joiden alla namit on piilossa.
 
 Aloitin mittaamalla paperisen muffinssivuuan halkaisijan leveimmästä päästä ja piirsin sitä hieman pienempiä ympyröitä pahvilaatikon kanteen. Tein ympyröitä 8 kpl, mutta ympyröitä voi toki tehdä enemmän tai vähemmän (katso kuvakollaasi alhaalla, kohta 1).
 

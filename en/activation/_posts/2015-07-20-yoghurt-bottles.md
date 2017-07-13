@@ -7,11 +7,11 @@ image:
   thumb:
 ---
 
-You can use any small yoghurt bottles fot this game. If you don't have any carton bottles, you can use plastic bottles like Actimel bottles. Anyway you need to wash the bottles before you give them to your dog.
+You can use any small yoghurt bottles fot this game. If you don't have any carton bottles, you can use plastic bottles like Actimel bottles.
 
-I took 9 of these carton bottles and I put about 5-15 kibbles in each.
+Anyway you need to wash the bottles before you give them to your dog.
 
-It took Miki about 7 minutes to get all the kibbles out.
+I took 9 of these carton bottles and I put about 5-15 kibbles in each. It took Miki about 7 minutes to get all the kibble out.
 
 Later on I put 20 yoghurt bottles into a small cardboard box. First I put some small treats on the bottom of the box and also one treat in each bottle, before I placed the bottles into the box.
 

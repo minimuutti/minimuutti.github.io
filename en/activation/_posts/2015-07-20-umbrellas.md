@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-For this one you only need an umbrella and any treats. Just open an umbrella and place it on the floor and sprinkle the treats under it.
+For this one you only need an umbrella and any treats.
+
+Just open an umbrella and place it on the floor and sprinkle the treats under it. It may seem too easy, but actually it takes some courage for a dog to go under them.
 
 I opened and placed the umbrella on the floor while Miki was waiting in another room, so that the umbrella wouldn’t seem scary. Then I called Miki and put the treats under the umbrella and gave him the permission to eat.
 

@@ -7,11 +7,11 @@ image:
   thumb:
 ---
 
-Tässä tehtävässä voi käyttää kaikkia pieniä kartonkisia tai muovisia pulloja, kuten Valio Gefilus, Valio HeVi Shot, tai Actimel pulloja. Pullot tulee joka tapauksessa pestä ja antaa kuivua ennen kuin niitä antaa koiralle.
+Tässä tehtävässä voi käyttää kaikkia pieniä kartonkisia tai muovisia pulloja, kuten Valio Gefilus, Valio HeVi Shot, tai Actimel pulloja.
 
-Otin yhdeksän tällaista pulloa ja laitoin jokaiseen noin 5-15 nappulaa. Nämä pienet pullot ovat siitä käteviä, ettei Miki saa kaivettua nappuloita ulos kielellään, vaan joutuu pyörittelemään kaikki pullot erikseen saadakseen nappulat ulos.
+Pullot tulee joka tapauksessa pestä ja antaa kuivua ennen kuin niitä antaa koiralle.
 
-Mikiltä kesti noin 7 minuuttia saada kaikki nappulat ulos näistä.
+Otin yhdeksän tällaista pulloa ja laitoin jokaiseen noin 5-15 nappulaa. Nämä pienet pullot ovat siitä käteviä, ettei Miki saa kaivettua nappuloita ulos kielellään, vaan joutuu pyörittelemään kaikki pullot erikseen saadakseen nappulat ulos. Mikiltä kesti noin 7 minuuttia saada kaikki nappulat ulos näistä.
 
 Tein tämän myöhemmin myös vaikeutettuna, eli laitoin 20 kpl näitä pulloja pieneen laatikkoon, johon ne juuri ja juuri mahtuivat. Laitoin jokaiseen pulloon yhden namin, sekä laitoin muutaman namin myös tuonne laatikon pohjalle ennen kuin asetin pullot siihen päälle.
 

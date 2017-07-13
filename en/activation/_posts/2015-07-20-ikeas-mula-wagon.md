@@ -8,7 +8,9 @@ image:
 
 ---
 
-Toys for small children are mainly safe for dogs as well because they are tested for toxics (at least in Finland) and they seldom have any small loose parts. We have used this versatile Ikea's Mula wagon quite a lot.
+Toys for small children are mainly safe for dogs as well because they are tested for toxics (at least in Finland) and they seldom have any small loose parts.
+
+We have used this versatile Ikea's Mula wagon quite a lot.
 
 I put a slice of cheese on the bottom of the toy and then put the blocks back into the wagon. It took Miki about three minutes to get the blocks out of the way. At first you can take one block out before giving it to your dog, so that is easier for the dog to slide or to lift the remaining blocks out. The wheels on the wagon make this game harder, because it's not as easy to move and lift those blocks when the wagon is moving out.
 

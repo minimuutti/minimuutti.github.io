@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Kierrätykseen menevästä roskasta saa aikaan vaikka mitä kivaa, kun käyttää vähän mielikuvitusta.
+
 Sain aivan mahtavan idean pahvisesta kuljetusalustasta, jonka sisäosa on pyöreä ja sisäkulmissa on madallukset, jotka ovat kuin tehty namien piilotusta varten. Ihan kuin tämä alusta olisi alunperinkin suunniteltu koiran aktivointipeliksi. (Alusta on kuitenkin peräisin pyöreän keittiövaa'an pakkauksesta.)
 
 Mittasin ensin tuon alustan ympyrän sisähalkaisijan ja sitten leikkasin erillisestä pahvista hieman pienemmän ympyrän. Pahvimuotin sisähalkaisija on 20cm ja pyörivän kiekon halkaisija on noin 19cm. Tämän jälkeen leikkasin tuosta kiekon yhdeltä sivulta palasen pois, jotta kun kolon pyöräyttää kulmaan niin Miki saa otettua namin sieltä kulmasta.

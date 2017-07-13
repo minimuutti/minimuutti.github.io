@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-I believe every dog has an upset stomach or diarrhea at some point of his life. In these situations vets usually recommend to change a dogs diet, and that may include rice water, boiled white rice, boiled chicken, lactose free cottage cheese or plain natural yogurt.
+I believe every dog has an upset stomach or diarrhea at some point of his life.
+
+In these situations vets usually recommend to change a dogs diet, and that may include rice water, boiled white rice, boiled chicken, lactose free cottage cheese or plain natural yogurt.
 
 That means you may not be able to walk and play normally with your dog and certainly can't use the normal food dispenser toys with this new diet.
 

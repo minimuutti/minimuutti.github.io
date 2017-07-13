@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Voit ostaa tähän oikeita pallomeren palloja, jotka maksavat lelukaupassa omaisuuden. Tai sitten voit improvisoida, kuten minä tein ja ostaa pussillisen vesi-ilmapalloja :)
+Voit ostaa tähän oikeita pallomeren palloja, jotka maksavat lelukaupassa omaisuuden. Tai sitten voit improvisoida, kuten minä tein.
+
+Ostin siis pussillisen vesi-ilmapalloja :)
 
 Täytin pyörän pumpulla vajaa 100 kpl pieniä ilmapalloja ja laitoin ne laatikkoon pallomereksi. Näiden lisäksi laitoin laatikkoon muutamia nappuloita, jotka pyysin Mikiä etsimään.
 

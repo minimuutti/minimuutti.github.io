@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+This game forces your dog to think, because separating two wash basins isn't easy.
+
 I took two wash basins and put the smaller inside the bigger one and I put a slice of ham in between them. Then I turned them face down in the floor.
 
 At first it took Miki about a minute to get the wash basins separated. Nowadays it takes about 15 seconds.

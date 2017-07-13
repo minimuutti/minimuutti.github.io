@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Luulin tämän tehtävän olevan Mikille helppo, mutta se osoittautuikin aika vaikeaksi.
+
 Laitoin vadin täyteen vettä ja laitoin siihen kellumaan 5 jogurttipurkkia. Näihin jogurttipurkkeihin laitoin jokaiseen muutaman nappulan.
 
 Tässä voit käyttää mitä tahansa kulhoa tai vaikka lasten uima-allasta, mutta tätä leikkiä ei kannata leikkiä muualla kuin kylpyhuoneessa tai pihalla.

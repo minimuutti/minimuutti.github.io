@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-JW Hol-ee Roller toy (size L) is one of the best toys we have bought for Miki, because it's so versatile. The toy was quite expensive but I think it was money well spend. Here are some of the games I have done for Miki with this ball.
+JW Hol-ee Roller toy (size L) is one of the best toys we have bought for Miki, because it's so versatile.
+
+The toy was quite expensive but I think it was money well spend. Here are some of the games I have done for Miki with this ball.
 
 ### Rolled hand towel
 

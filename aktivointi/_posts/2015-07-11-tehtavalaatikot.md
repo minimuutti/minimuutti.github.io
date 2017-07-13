@@ -7,9 +7,9 @@ image:
   thumb:
 ---
 
-Tehtävälaatikot ovat siitä kivoja, ettei niihin tarvitse olla mitään tiettyjä tarvikkeita ja tehtävälaatikoiden vaikeustasoa on helppo muuttaa ja laatikoista saa tehtyä melkein rajattoman määrän eri muunnoksia.
+Tehtävälaatikot ovat siitä kivoja, ettei niihin tarvitse olla mitään tiettyjä tarvikkeita ja tehtävälaatikoiden vaikeustasoa on helppo muuttaa.
 
-Tehtävälaatikon idea on siis se, että koiran ruoka-annos piilotetaan erilaisiin rasioihin/paperipalloihin/leluihin jne. jotka sitten kasataan tuonne laatikkoon ja koira saa sitten etsiä ruokansa sieltä.
+Tehtävälaatikon idea on siis se, että koiran ruoka-annos piilotetaan erilaisiin rasioihin/paperipalloihin/leluihin jne. jotka sitten kasataan tuonne laatikkoon ja koira saa sitten etsiä ruokansa sieltä. Laatikoista saa tehtyä melkein rajattoman määrän eri muunnoksia.
 
 Laatikon sisällöstä riippuen Mikiltä kestää 10-50 minuuttia etsiä ruokansa.
 

@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Pulling toys away from the stick gives a new kind of challenge for your dog.
+
 First I put some treats into the Kong Traxx toy. You need to use relatively large treats, so that they won't fall out. I used Nutrivet Instinct Dog Treats because they fit perfectly inside the toy and won't fall out. Then I placed the toy on a stick.
 
 The stick I used is actually a floor mop, but you can use any stick or pole available, as long as the stick doesn't have any sharp edges.

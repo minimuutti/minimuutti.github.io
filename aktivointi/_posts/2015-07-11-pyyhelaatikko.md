@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Pahvilaatikolla ja pyyhkeellä voi saada paljon kivaa aikaan. Laatikkoon voi laittaa suoraan muutaman namin pohjalle tai sitten laatikkoon voi laittaa jonkun tehtävän pyyhkeen alle piiloon. Tässä on muutamia esimerkkejä.
+Laatikosta ja pyyhkeistä saa tehtyä paljon erilaisia tehtäviä koiralle.
+
+Laatikkoon voi piilottaa sekä herkkuja että leluja, kumpia vain koirasi tykkää ennemmin etsiä. Tässä on muutamia esimerkkejä.
 
 ### Tehtävä 1
 

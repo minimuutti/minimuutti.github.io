@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Tämän tehtävän eteen kannattaa nähdä vähän vaivaa, koska koiraa on hauska katsella sen suorittaessa tehtävää.
+
 Käytin tässä tehtävässä 70cm pitkää pahvituubia, mutta tämän saman voi tehdä vaikka Pringles tuubiin. Lisäksi tähän tarvitaan korvallinen pahvimuki, pätkä narua, sekä joku palikka josta koira pystyy vetämään.
 
 Solmin narun toiseen päähän pyöreän palikan ja toiseen päähän solmin pahvimukin sen korvista. Mikäli sinulla ei satu olemaan mitään sopivaa palikkaa, voit solmia naruun vaikka palan pahvia.

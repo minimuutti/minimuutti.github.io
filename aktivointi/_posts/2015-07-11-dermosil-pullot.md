@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Dermosil saippuapullot ovat kuin tehty koirien aktivointileluiksi. Vaikka nämä pullot ovat uudelleenkäytettäviä ja erittäin kestäviä, niin esimerkiksi pumppuosan hajotessa on itse pullo vielä hyvinkin käyttökelpoinen koiranleluksi.
+Dermosil saippuapullot ovat kuin tehty koirien aktivointileluiksi.
+
+Vaikka nämä pullot ovat uudelleenkäytettäviä ja erittäin kestäviä, niin esimerkiksi pumppuosan hajotessa on itse pullo vielä hyvinkin käyttökelpoinen koiranleluksi.
 
 Pullojen muotoilu on lähes täydellinen; vaikka pullon kääntää ylösalaisin niin nappulat eivät putoile noin vaan ulos, koska pulloissa ei ole kaulaa. Lisäksi pullon liukas ulkopinta ja suurehko koko tekevät esineen käsittelyn koiralle hankalaksi. Parempaa "ilmaista" aktivointilelua saa hakea :)
 

@@ -7,9 +7,11 @@ image:
   thumb:
 ---
 
-Nimensä mukaisesti tarvitset tähän vain yhden tai useamman sateenvarjon sekä mitä tahansa nameja. Kaikessa yksinkertaisuudessaan sateenvarjo laitetaan lattialle ja varjon alle laitetaan herkkuja.
+Nimensä mukaisesti tarvitset tähän vain yhden tai useamman sateenvarjon sekä nameja.
 
-Tein tämän ensimmäisellä kerralla niin, että avasin sateenvarjon ja asetin sen lattialle Mikin ollessa toisessa huoneessa, jottei sateenvarjo vaikuttaisi pelottavalta. Kutsuin Mikin paikalle ja heitin herkut lattialle sateenvarjon alle ja annoin luvan syödä. Toisella kerralla laitoin kaksi sateenvarjoa, mutta niitä voi laittaa useammankin.
+Kaikessa yksinkertaisuudessaan sateenvarjot laitetaan lattialle ja varjojen alle laitetaan herkkuja. Vaikka tämä vaikuttaa ihmisten mielestä usein ihan liian helpolta, niin koiralle nämä sateenvarjot ovat kuitenkin jännittäviä ja niiden alle meneminen vaatii rohkeutta :)
+
+Tein tämän ensimmäisellä kerralla niin, että avasin sateenvarjon ja asetin sen lattialle jo valmiiksi Mikin ollessa toisessa huoneessa, jottei sateenvarjo vaikuttaisi pelottavalta. Kutsuin Mikin paikalle ja heitin herkut lattialle sateenvarjon alle ja annoin luvan syödä. Toisella kerralla laitoin kaksi sateenvarjoa, mutta niitä voi laittaa useammankin.
 
 ---
 

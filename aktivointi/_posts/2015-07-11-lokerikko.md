@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Lokerikossa koiran täytyy siirrellä esineitä löytääkseen ruokansa.
+
 Sain viime jouluna koirien herkuilla täytetyn joulukalenterin tilaajalahjaksi [Zooplus verkkokaupasta](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/)). Kun kalenterin herkut oli syöty, otin lokerikon talteen, johon tämäkin peli on nyt tehty.
 
 Keräsin 24 erilaista esinettä ja asettelin ne lokerikon koloihin.

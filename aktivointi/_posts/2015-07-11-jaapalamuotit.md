@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Jääpalamuoteista saa koiralle mitä parhainta tekemistä kuumiin hellepäiviin, mutta niille on muitakin käyttötapoja.
+
 Jääpalamuoteista voi tarjoilla nappuloita tai muita pieniä nameja monella tavalla. Käytin tässä kumisia jääpalamuotteja, mutta tavalliset muoviset jääpalamuotit käyvät yhtä hyvin.
 
 Ensiksi laitoin jääpalamuotit lattialle ja laitoin yhden nappulan jokaiseen koloon. Seuraavalla kerralla käänsin jääpalamuotit ylösalaisin ja ripottelin nappulat sinne väleihin. Kolmannella kerralla laitoin muotit ylösalaisin, mutta laitoinkin nappulat piiloon muottien alle. Neljännellä kerralla laitoin muotit korkeareunaiseen pahvilaatikkoon.
@@ -28,3 +30,7 @@ Vaikein näistä oli Mikille se, kun laitoin namit piiloon muottien alle. Kumisi
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACEHN1zQB_LYXeAPO0AE7Lja/aktivointi/jaapalamuotit/DSC46448-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAkYg5cHzMoD7vHZwBqdZJIa/aktivointi/jaapalamuotit/DSC46448.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABC9QvQRsPcgydR4kcvcW3Ia/aktivointi/jaapalamuotit/DSC46497-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACyLuoIvqImbBHbBIHr5fL6a/aktivointi/jaapalamuotit/DSC46497.jpg)
+
+Jääpalamuottia on käytetty hellepäivän pelastajana, postissa "[Jään sisällä olevat namit](/aktivointi/jaan-sisalla-olevat-namit/)".
+
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACSPI58FsqwKrhpBlMM4GWfa/aktivointi/jaan-sisalla-olevat-namit/DSC43352-800px.jpg)

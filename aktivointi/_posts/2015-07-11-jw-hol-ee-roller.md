@@ -7,7 +7,11 @@ image:
   thumb:
 ---
 
-JW Hol-ee Roller lelu (L-kokoinen) on yksi parhaista leluista mitä Mikille on ostettu, koska lelu on niin monikäyttöinen. Lelu oli aika hinnakas, mutta se on todellakin ollut hintansa arvoinen. Tässä on joitain tehtäviä mitä olen kasannut Mikille tähän palloon.
+JW Hol-ee Roller lelu on yksi parhaista leluista mitä Mikille on ostettu, koska lelu on niin monikäyttöinen.
+
+Lelu oli aika hinnakas, mutta se on todellakin ollut hintansa arvoinen. Tämä Mikille ostettu lelu on L-kokoinen.
+
+Tässä on joitain tehtäviä, mitä olen kasannut Mikille tähän palloon.
 
 ### Pyyheliina rullattuna
 

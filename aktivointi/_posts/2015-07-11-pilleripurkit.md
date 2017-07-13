@@ -7,14 +7,15 @@ image:
   thumb:
 ---
 
-Tässä tehtävässä voi käyttää kaikenlaisia muovisia pilleripurkkeja. Purkit on kuitenkin syytä pestä hyvin ennen kuin niitä antaa koiralle, koska purkeissa saattaa olla jotain jäämiä pillereistä.
+Tässä tehtävässä voi käyttää kaikenlaisia muovisia pilleripurkkeja.
+
+Purkit on kuitenkin syytä pestä hyvin ennen kuin niitä antaa koiralle, koska purkeissa saattaa olla jotain jäämiä lääkeaineista.
 
 Purkkeihin voi laittaa mitä tahansa kuivia nameja, itse olen yleensä laittanut nappuloita.
 
 Nämä tehtävät ovat Mikille todella helppoja. Koska yksittäisen purkin tyhjentäminen kestää Mikiltä vain muutaman sekunnin, niin annan Mikille aina useamman purkin yhtä aikaa.
 
 Purkkeihin joissa on iso suuaukko, voi vaikeutuksena laittaa pieniä [koralleja](https://minimuutti.com/aktivointi/pilleripurkit/) tai palan kangasta esteeksi niin nappulat putoilevat purkista vähitellen.
-
 
 ---
 

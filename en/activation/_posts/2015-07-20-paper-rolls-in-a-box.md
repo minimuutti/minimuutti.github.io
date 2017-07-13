@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Paper rolls in a box gave Miki a nice challenge.
+
 For this game you need a couple of magazines (staples taken out), masking tape and an empty box or a container. The preparation takes some time, so if you have children this is a great way to get them involved.
 
 I took all pages out from two magazines and removed the staples. Then I rolled each page separately and secured every roll with a piece of masking tape.

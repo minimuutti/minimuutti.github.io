@@ -8,7 +8,9 @@ image:
 
 ---
 
-Pienille lapsille tarkoitetut lelut ovat pääsääntöisesti turvallisia myös koirille, koska ne on testattu myrkyllisten kemikaalien varalta sekä niissä harvoin on pieniä irtoilevia osia. Tämä Ikean monipuolinen Mula vaunu on ollut meillä kovassa käytössä.
+Pienille lapsille tarkoitetut lelut ovat pääsääntöisesti turvallisia myös koirille, koska ne on testattu myrkyllisten kemikaalien varalta sekä niissä harvoin on pieniä irtoilevia osia.
+
+Tämä Ikean monipuolinen Mula vaunu on ollut meillä kovassa käytössä.
 
 Piilotin tyhjän vaunun pohjalle juustosiivunpalasen ja ladoin palikat takaisin kyytiin ja kehotin Mikiä etsimään. Mikiltä kesti noin 3 minuuttia saada palikat pois juuston päältä. Tätä voi aluksi helpottaa ottamalla yhden palikan vaunusta pois, jolloin koiran on helpompi siirrellä tai poimia noita jäljellä olevia palikoita ulos. Vaunun pyörät tekevät tehtävästä vaikean, koska palikoita on vaikea liikuttaa tai saada nostettua ulos poispäin liikkuvasta vaunusta.
 

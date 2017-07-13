@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Forests have multiple times more of scents and sounds compared to residental areas. So if you take your dog to hike in the thick forest instead, the dog will drain off the energy more efficiently.
+Forests have multiple times more of scents and sounds compared to residental areas.
+
+So if you take your dog to hike in the thick forest instead, the dog will drain off the energy more efficiently.
 
 ---
 

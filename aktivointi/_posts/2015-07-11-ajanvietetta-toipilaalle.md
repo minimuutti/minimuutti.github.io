@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Jokaisella koiranomistajalla tulee varmasti joskus eteen tilanne, että koira joutuu kevyemmälle ruokavaliolle vaikkapa vatsataudin vuoksi. Näissä tilanteissa on suositeltavaa vaihtaa koiran kuivamuona esimerkiksi keitettyyn riisiin ja kanaan eikä normaaleja aktivointileluja voi siten käyttää.
+Jokaisella koiranomistajalla tulee varmasti joskus eteen tilanne, että koira joutuu kevyemmälle ruokavaliolle vaikkapa vatsataudin vuoksi.
+
+Näissä tilanteissa on suositeltavaa vaihtaa koiran kuivamuona esimerkiksi keitettyyn riisiin ja kanaan eikä normaaleja aktivointileluja voi siten käyttää.
 
 Koiran täytyy kuitenkin syödä ja sekaisin olevasta vatsastaan huolimatta ainakin Mikillä riittää virtaa ja se tylsistyy helposti kun emme voi tehdä normaaleja kävelylenkkejä eikä sen kanssa voi kunnolla leikkiäkään.
 

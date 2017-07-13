@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-You can make lots of fun games with just a towel and a box. You can put some treats on the bottom of the box or you can hide some other small games in the box under the towel. Here are some examples.
+You can make lots of fun games for your dog with just a few towels and a box.
+
+You can hide treats or toys under the towel and here are some variations.
 
 ### Game 1
 

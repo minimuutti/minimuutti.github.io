@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Nenän käyttäminen on yksi tehokkaimmista keinoista väsyttää koiraa. Syksyllä ja talvella kun illat ovat pilkkopimeitä, voi nappulat heittää suoraan pimeän huoneen lattialle etsittäväksi.
+Nenän käyttäminen on yksi tehokkaimmista keinoista väsyttää koiraa. Kun illat ovat pilkkopimeitä, voi nappulat heittää pimeän huoneen lattialle etsittäväksi.
 
 Kun heitän pimeän huoneen lattialle reilun desin nappuloita, niin Mikiltä kestää noin 3 minuuttia löytää ne kaikki.
 

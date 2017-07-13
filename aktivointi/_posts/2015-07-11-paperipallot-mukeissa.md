@@ -7,9 +7,9 @@ image:
   thumb:
 ---
 
-Paperipallot tehdään ruttaamalla yksi sivu aikakausilehdestä ja niiden sisään voi laittaa herkkuja tai ihan vaan nappuloita. Itse laitoin jokaisen paperipallon sisälle muutaman nappulan.
+Paperipallot tehdään ruttaamalla yksi sivu aikakausilehdestä ja niiden sisään voi laittaa herkkuja tai ihan vaan nappuloita.
 
-Laitoin vain yhden paperipallon jokaiseen mukiin, mutta toki paperipalloja voisi laittaa useammankin per muki.
+Laitoin jokaisen paperipallon sisälle muutaman nappulan ja laitoin vain yhden paperipallon jokaiseen mukiin. 
 
 Mikiltä kesti 5 minuuttia saada kaikki nappulat syötyä.
 

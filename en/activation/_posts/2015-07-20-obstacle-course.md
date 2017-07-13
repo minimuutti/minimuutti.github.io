@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-This game is nice because you don't need any expensive agility hurdles. Instead you can use any light weight or soft objects you can find in your home. You should make the obstacle course into a corridor or some other narrow place, so that your dog won't circle around the obstacles.
+This game is nice because you don't need any expensive agility hurdles. Instead you can use any light weight or soft objects you can find in your home.
+
+You should make the obstacle course into a corridor or some other narrow place, so that your dog won't circle around the obstacles.
 
 You can use empty cardboard boxes, pillows, cushions, footstools, buckets, wash basins, folded blankets, a sporting bag filled with clothes, a beach ball, stuffed animals, a laundry basket, rolled rugs etc.
 

@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Namien piilotaminen purkkien väleihin antaa kivaa haastetta koiralle.
+
 Kartonkipakkauksia, rasioita tai purkkeja voi laittaa sisäkkäin ja namit voi laittaa sinne väleihin tai vain viimeiseen rasiaan. Nämäkin kannattaa teipata yhteen.
 
 Tässä hyviä ovat esimerkiksi ne pienet ämpärit, joissa myydään koiran makupaloja. Näitä voi laittaa vaikka 5 tai 10 päällekkäin ja teippiä perään. Miki irrottaa 5 teipattua namipurkkia toisistaan noin kahdessa minuutissa.

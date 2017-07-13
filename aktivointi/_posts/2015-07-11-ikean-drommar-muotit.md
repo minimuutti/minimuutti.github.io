@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Koirille suunnitellut syömistä hidastavat ruokakupit ovat usein aika kalliita. Ikeasta saa Drömmar muottisetin alle kuudella eurolla, joka ajaa käytännössä saman asian.
+Ikeasta saa Drömmar muottisetin alle kuudella eurolla, joka ajaa käytännössä saman asian kuin kallis, syömistä hidastava ruokakuppi.
 
 Muottien sekaan ripotellaan nappulat ja sen voi antaa koiralle suoraan tai muottien koloihin voi lisäksi laittaa jotain esteitä päälle. Itse olen laittanut esteeksi pieniä [koralleja](/aktivointi/korallit/).
 

@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Rauhoittuminen on Mikille vaikeaa ja siksi sitä harjoitellaan meillä erikseen.
+
 Harjoittelemme Mikin kanssa rauhoittumista sieppaamalla. Kun Miki käy viereeni maahan omatoimisesti, se saa nappulan (joita on aina muutama taskun pohjalla). Asetan namin lattialle Mikin eteen, jotta sille ei tule kiusausta nousta ylös. Seuraavan nappulan se saa joko sillä, että omatoimisesti pysyy maassa (ja on hiljaa) esim. minuutin tai pari. Myös se, jos Miki laskee päänsä maahan, saa omistajan kaivamaan nappulan taskusta.
 
 Hyvä vaikeutus tähän on sellainen, että koiralle laitetaan esim. pieni matto lattialle ja koiran pitää pysyä tuolla matolla vaikka 10 minuuttia, eikä yksikään tassu saa valua maton yli.

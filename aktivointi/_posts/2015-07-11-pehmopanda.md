@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Ostimme Mikille tällaisen pehmopanda-jalkapallolelun, kun Miki tuli meille pentuna. Tämän pandaksi muuntautuvan jalkapallon kanssa ollaan leikitty monet hauskat leikit Mikin ollessa pieni, mutta nyt Mikin aikuistuttua lelu on jäänyt vähän unholaan.
+Pehmopandan tullessa elinkaarensa päähän se pääsi vielä osaksi Mikin päivittäistä aktivointia.
+
+Ostimme Mikille tällaisen pehmopanda-jalkapallolelun, kun Miki tuli meille pentuna. Tämän pandaksi muuntautuvan jalkapallon kanssa ollaan leikitty monet hauskat leikit Mikin ollessa pieni, mutta nyt Mikin aikuistuttua lelu on jäänyt unholaan.
 
 Käänsin lelun pandaksi, jolloin pandan mahaan jäi reilun nyrkin kokoinen kolo. Laitoin koloon nappuloita etsittäväksi ja Mikiltä kesti noin minuutti löytää kaikki nappulat tuolta pandan mahasta.
 
