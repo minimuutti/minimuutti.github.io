@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-You can use any small yoghurt bottles fot this game. If you don't have any carton bottles, you can use plastic bottles like Actimel bottles.
+You can use any small yoghurt bottles for this game. If you don't have any carton bottles, you can use plastic bottles like Actimel bottles.
 
 Anyway you need to wash the bottles before you give them to your dog.
 
