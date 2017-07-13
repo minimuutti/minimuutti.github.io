@@ -15,7 +15,7 @@ Sivusto sisältää vinkkejä vilkkaiden koirien energian kuluttamiseksi. Kaikki
 
 [**Temput**](/temput/) –kategoriassa on listattuna Mikin osaamat sekä opetteluvaiheessa olevat temput, jotta sinä saisit ideoita omalle koirallesi opetettavista tempuista.
 
-[**Blogista**](/blogi/) löytyy ajankohtaisia kuulumisia sekä muita kirjoituksia.
+[**Blogista**](/blogi/) löytyy ajankohtaisia kirjoituksia sekä muita asioita, jotka haluan jakaa kanssanne.
 
 [**Info**](/info/) –linkin takaa löydät listan viimeksi lisätyistä posteista, yhteistyökumppaneiden linkit sekä yhteystiedot.
 
