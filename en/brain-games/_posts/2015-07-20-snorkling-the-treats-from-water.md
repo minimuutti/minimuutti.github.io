@@ -11,7 +11,7 @@ redirect_from:
 
 For this game you need a bowl or a basin and some treats that won’t dissolve in the water.
 
-Suitable treats are for example pieces of dried chicken filets, pieces of wiener or something like that (but not kibble).
+Suitable treats are for example pieces of dried chicken fillets, pieces of wiener or something like that (but not kibble).
 
 I put like 10 centimeters (three to four inches) of water in the basin and then dropped the treats in. The pieces of wiener vanished in about five seconds :D
 

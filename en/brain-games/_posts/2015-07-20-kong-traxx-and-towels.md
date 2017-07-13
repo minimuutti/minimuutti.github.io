@@ -72,7 +72,7 @@ It took Miki 7 minutes to get the treats out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABsy9KclWwOvoMLQ99XrsHWa/aktivointi/kong-traxx-ja-pyyhe/DSC57527-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABKfj_XuISjZUluSn0t2NGFa/aktivointi/kong-traxx-ja-pyyhe/DSC57527.jpg)
 
-###### 6. In this game I put a duck fillet inside the toy. Then I rolled two towels (with duck filets inside) sideways and then pushed them through the toy.
+###### 6. In this game I put a duck fillet inside the toy. Then I rolled two towels (with duck fillets inside) sideways and then pushed them through the toy.
 It took Miki 4 minutes to get the treats out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACNkrQwTZdX4PM46zc0tlsta/aktivointi/kong-traxx-ja-pyyhe/Kollaasi_3-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABCqNYSpnIpmzOSaCP1nzdca/aktivointi/kong-traxx-ja-pyyhe/Kollaasi_3.jpg)

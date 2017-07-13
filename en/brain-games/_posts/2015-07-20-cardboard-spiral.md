@@ -11,7 +11,7 @@ redirect_from:
 
 You can make a fun treat spiral out of corrugated cardboard.
 
-I used small pieces of semi-moist duck filets for this game, but you can use any soft and sticky treats, like semi-moist checken fillet, small slices of cheese or small slices of ham. Dry treats would probably fall straight out.
+I used small pieces of semi-moist duck fillets for this game, but you can use any soft and sticky treats, like semi-moist checken fillet, small slices of cheese or small slices of ham. Dry treats would probably fall straight out.
 
 I cut eight 6 cm x 130 cm (about 2,5" x 53") strips out of corrugated cardboard. I cut them with modelling knife but you can use scissors as well. Then I rolled the long strips into a spiral and I put the treats in between the layers. I secured every strip with masking tape, so that the spiral stayed intact. The complete spiral was about 20 cm (8") in diameter.
 
