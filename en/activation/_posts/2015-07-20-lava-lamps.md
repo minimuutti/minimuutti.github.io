@@ -7,9 +7,11 @@ image:
   thumb:
 ---
 
-I made these lava lamp looking cones by using Ikea’s Kalas cups and paper cups. I put some kibbles in each paper cup and then I pushed the plastic cups on top of them.
+I made these lava lamp looking cones by using Ikea’s Kalas cups and paper cups.
 
-It took Miki about three minutes to get all the kibbles from these six lava lamps.
+I put some kibble in each paper cup and then I pushed the plastic cups on top of them.
+
+It took Miki about three minutes to get all the kibble from these six lava lamps.
 
 ---
 

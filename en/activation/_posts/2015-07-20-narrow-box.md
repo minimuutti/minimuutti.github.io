@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-The idea of this game is to put some treats on the bottom of a narrow box, and then put some obstacles on top of the treats. The dog is supposed to lift the obstacles out in order to get the treats.
+The dog is supposed to lift the obstacles out of the narrow box in order to get the treats.
 
 The box needs to be wide enough, so the dog will be able to eat the treats from the bottom of the box. And for the same reason the box can't be too tall either. The box I've used, is about 15cm (5,9") tall and 11cm (4,3") wide.
 

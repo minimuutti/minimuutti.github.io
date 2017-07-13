@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-If you are about to throw away any old clothes, sheets or towels - don’t. Cut them to 5 cm (2”) wide shreds and attach them to each other with knots. This “yarn” should be at least 10 m (33 feet) long, mine was 12 m (40 feet) long and I cut a single shred from a t-shirt (the first picture).
+If you are about to throw away any old clothes, sheets or towels - don’t.
+
+Cut them to 5 cm (2”) wide shreds and attach them to each other with knots. This “yarn” should be at least 10 m (33 feet) long, mine was 12 m (40 feet) long and I cut a single shred from a t-shirt (the first picture).
 
 Then just roll it to a ball an put any dry treats in between, I used kibbles and some soft chicken sticks. If you want, you can tie the end under the lower layers. The ball was about 10 cm (4”) in diameter.
 

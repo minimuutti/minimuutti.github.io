@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-Preparing this game takes a bit time, but Miki found this game super fun so I recommend you to try this with your own dog. Miki was so proud of himself when he figured this game out :)
+Preparing this game takes a bit time, but Miki found this game super fun so I recommend you to try this with your own dog.
+
+Miki was so proud of himself when he figured this game out :)
 
 The idea of this game is that there is a cut almost all the way through the tube and there is a piece of cardboard in the cut. The treats are on top of that piece of cardboard and the dog needs to pull that out so that the treats will fall out.
 

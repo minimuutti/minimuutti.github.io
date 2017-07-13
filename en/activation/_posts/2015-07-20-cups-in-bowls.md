@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-You can modify this game almost endlessly. For this game you need at least two different size of cups, bowls, jars or yoghurt cups that fit inside one another. The tighter the fit the harder the game will be. I used kibbles for these games, but you can use any small treats your dog likes.
+These games are great because you can modify them almost endlessly.
+
+For this game you need at least two different size of cups, bowls, jars or yoghurt cups that fit inside one another. The tighter the fit the harder the game will be. I used kibbles for these games, but you can use any small treats your dog likes.
 
 Here I’ve described some of the variations we have done with the cups. In these games I’ve used Ikea’s Kalas cups and bowls, paper cups and shallow yoghurt cups.
 

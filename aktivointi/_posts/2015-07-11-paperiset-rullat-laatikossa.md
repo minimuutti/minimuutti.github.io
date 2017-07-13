@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Paperiset rullat laatikossa -tehtävä oli mukavan haastava tehtävä Mikille.
+Paperiset rullat laatikossa oli mukavan haastava tehtävä Mikille.
 
 Tähän tehtävään tarvitset pari aikakauslehteä joista niitit on poistettu, maalarinteippiä sekä minkä tahansa tyhjän laatikon. Tehtävän valmistelu vie hieman aikaa, joten jos sinulla on lapsia, niin tämän tehtävän valmistelu sopii erinomaiseksi ajanvietteeksi myös lapsille.
 

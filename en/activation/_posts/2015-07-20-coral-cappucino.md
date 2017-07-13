@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-I choose a Nescafe jar for this game because of the narrower section in the middle of the jar. You can use any jars for this game, but I recommend using only plastic ones.
+I choose a Nescafe jar for this game because of the narrower section in the middle of the jar.
+
+You can use any jars for this game, but I recommend using only plastic ones.
 
 I used some crocheted corals as obstacles and they were slightly smaller than I normally use, about 5-6 cm (2") in diameter. Learn how to crochet corals in [here](/en/activation/corals/).
 

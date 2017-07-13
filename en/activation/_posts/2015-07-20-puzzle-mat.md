@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-I made several fun games for Miki from these puzzle mat pieces. Toys for small children are usually safe for dogs as well because they seldom have any small loose parts in them.
+I made several fun games for Miki from these puzzle mat pieces.
+
+Toys for small children are usually safe for dogs as well because they seldom have any small loose parts in them.
  
 ### Game 1
 

@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-This is a confidence boosting game for your dog, by absolute-dogs.com. This is a great start if you need to train your dog to wear a muzzle. You can download a free e-book from [here](https://nbn.absolute-dogs.com/opt-in) provided by absolute dogs.
+This is a confidence boosting game for your dog, by absolute-dogs.com. This is a great start if you need to train your dog to wear a muzzle.
+
+You can download a free e-book from [here](https://nbn.absolute-dogs.com/opt-in) provided by absolute dogs.
 
 I didn't have a cone so I improvised and used the top section of [Kong Wobbler](/en/treat-dispensers/kong-wobbler/) instead which was perfect for this game :)
 

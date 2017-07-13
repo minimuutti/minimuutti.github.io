@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-For this game you need two laundry balls and an empty paper roll. You need to wash the laundry balls properly before you give them to your dog.
+For this game you need two laundry balls and an empty paper roll.
+
+You need to wash the laundry balls properly before you give them to your dog.
 
 The diameter of the rolls vary depending on the manufacturer. You can adjust the difficulty by changing the rolls thinner or wider so they are either easier or harder to pull out of the laundry balls.
 

@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-This game has two parts in it. The dog needs to open the first flap of the box and after that he needs to push the box open. You need a specific type of cardboard box for this game, as you can see in the pictures.
+This game has two parts in it. The dog needs to open the first flap of the box and after that he needs to push the box open.
+
+You need a specific type of cardboard box for this game, as you can see in the pictures.
 
 Before I gave the box to Miki I reinforced the edges and the flaps of the box with some clear packing tape.
 

@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Tarvitset vain erilaisia kippoja tai purkkeja ja mitä tahansa nameja.
+Tarvitset vain erilaisia kippoja tai purkkeja ja mitä tahansa namej ja etsintä voi alkaa.
 
 Mikäli koirasi ei ole tottunut hajutyöskentelyyn ja etsimiseen, niin kannattaa aloittaa sillä että laittaa namin lattialle ilman kippoa ja pyytää koiraa "etsimään" se. Tämän jälkeen voi aloittaa namien piilotuksen vain yhdellä kipolla. Nami siis laitetaan alassuin käännetyn kipon alle ja pyydetään etsimään.
 

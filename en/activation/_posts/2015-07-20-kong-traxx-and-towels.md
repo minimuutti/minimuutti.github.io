@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-How many fun games can you create with a rubber tire toy and a towel. You can use any tire toy for this game, it doesn't have to be the Kong Traxx toy which I've used. In addition you need one or two small towels and some treats.
+So many fun games can you create with a rubber tire toy and a towel.
+
+You can use any tire toy for this game, it doesn't have to be the Kong Traxx toy which I've used. In addition you need one or two small towels and some treats.
 
 In each game I've opened the towel, put some treats on the top and then rolled it into a long tube.
 

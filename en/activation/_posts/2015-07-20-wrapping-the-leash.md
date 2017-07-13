@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+This is proper a mental challenge for your dog.
+
 Most of the dogs probably know how to circle a streetlamp or a tree if he has gone around on the different side than the owner (knows where he got there and where to get back).
 
 But when the owner wraps the leash around something, the dog doesn’t know which way he should circle and he need to figure that out.

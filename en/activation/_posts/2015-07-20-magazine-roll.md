@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-For this game you need a magazine (pages glued, not stapled), masking tape and some thin and sticky treats, like semi-moist duck filets or chicken filets, or small slices of cheese or ham.
+For this game you need a magazine, masking tape and some thin and sticky treats, like semi-moist duck filets or chicken filets, or small slices of cheese or ham.
+
+Make sure that the pages of the magazine are glued, not stapled.
 
 I cut the filets into small pieces and put them in between the pages, near the center of the magazine. Then I rolled the magazine and secured it with masking tape at both ends.
 

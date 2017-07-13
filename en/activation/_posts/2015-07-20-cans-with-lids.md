@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+These games are quite difficult so they suit best for dogs that already have some experience with puzzle toys.
+
 I read an article about a study made with dogs and wolves. There were 10 dogs from shelters, 10 pet dogs and 10 wolves. Each animal was given the same task; open a can with treat inside and with lid on it. And the task needed to be completed within 2 minutes in order to succeed. I tried to look up more information about the can used in the study, but they didn't describe it. 
 
 The results were really interesting. Eight out of ten wolves succeeded in the task in the given time. Neighter of the remaining two wolves gave up, but it just took longer than two minutes to get the can open. Only one of the shelter dogs succeeded in the task, while the pet dogs didn't even bother to try.

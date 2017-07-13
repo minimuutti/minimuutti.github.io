@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+This is so cheap and easy to make and it's as good as any food dispenser toy or even better.
+
 For this one you need a small closable cardboard box size 8 x 8 cm (about 3" x 3"), masking tape and any dry treats.
 
 You can do the box by your self like I did and for that you need a piece of cardboard size 24 x 32 cm (about 9,5" x 12,5"). I draw the cube on the cardboard (see the last picture) and cut it out with a modelling knife. I'm sure you can cut it with scissors too. I also cut a small hole in the middle for the treats to come out.

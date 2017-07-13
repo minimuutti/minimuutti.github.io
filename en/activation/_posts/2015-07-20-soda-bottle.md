@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Soda bottles are great food dispensing toys because they are always available.
+
 Put the kibbles in an empty (rinsed and dried) soda bottle. I gave them to Miki without the cork, but I have heard some people encourage their dogs to first open the cork to get the kibbles. If you give the bottle to your dog with the cork on it, there’s a chance that your dog might eat the cork or a piece of it.
 
 I also tried to put pieces of a wiener in the bottle, but they didn’t come out so easy so Miki ended up chewing the bottleneck shut and tearing the bottle from the side to get the treats.

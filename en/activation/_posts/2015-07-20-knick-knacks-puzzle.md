@@ -7,9 +7,9 @@ image:
   thumb:
 ---
 
-I got a dog treat advent calendar as a gift from Zooplus' online store on last christmas. When Miki had eaten all the treats, I saved the tray from the package.
+I got a dog treat advent calendar as a gift from Zooplus' online store on last christmas.
 
-I collected 24 different knick-knacks and other small items and placed them into the holes.
+When Miki had eaten all the treats, I saved the tray from the package. I collected 24 different knick-knacks and other small items and placed them into the holes.
 
 Choose large enought objects, so your dog won't accidentally eat them. In addition, the objects can't have any sharp details and they need to be toxic free.
 

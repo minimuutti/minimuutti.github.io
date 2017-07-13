@@ -7,9 +7,9 @@ image:
   thumb:
 ---
 
-Task boxes are great for dogs that like to dig or search for their food. Also you don't need any specific packages on items for these games but you can use almost anything that is available. You can see some examples listed below.
+Task boxes are great for dogs that like to dig or search for their food. Also you don't need any specific packages on items for these games. 
 
-You can adjust these games to fit your dog's level and it's important to start with something easy. Task boxes with bottles and paper balls are easier. Task boxes with multiple kibble dispenser toys, cans with lids and taped packages are for advanced dogs only.
+You can adjust these games to fit your dog's level and it's important to start with something easy. Task boxes with bottles and paper balls are easier. Task boxes with multiple kibble dispensing toys, cans with lids and taped packages are for advanced dogs only.
 
 Depending of the content in the box it takes Miki 10-50 minutes to find all his food.
 

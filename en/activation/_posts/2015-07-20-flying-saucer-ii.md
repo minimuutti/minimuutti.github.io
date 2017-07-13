@@ -7,7 +7,9 @@ image:
   thumb:
 ---
 
-I got carried away again when I got some yarn as a Christmas present and I crocheted this flying saucer toy to Miki. The diameter of the toy is about 25 cm (10").
+I got carried away again when I got some yarn as a Christmas present and I crocheted this flying saucer toy to Miki.
+
+The diameter of the toy is about 25 cm (10").
 
 The greatest thing in making toys to your dog is that a) he doensn't mind the colours - you can use any left over yarns no matter the colour b) your dog will love the toy just as much even if it doesn't come out just perfect :)
 
