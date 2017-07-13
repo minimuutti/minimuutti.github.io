@@ -39,18 +39,18 @@ This classic toy is one of my favourite toys and it certainly is a versatile bor
 
 I've used this toy also in the following games:
 
-[Cones:](/en/activation/cones/)
+[Cones:](/en/brain-games/cones/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOZAAx7MN9lSDAZuzxKTyPa/aktivointi/totterot/DSC40378-800px.jpg)](/en/activation/cones/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOZAAx7MN9lSDAZuzxKTyPa/aktivointi/totterot/DSC40378-800px.jpg)](/en/brain-games/cones/)
 
-[Treat tube:](/en/activation/treat-tube/)
+[Treat tube:](/en/brain-games/treat-tube/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADb_1jJmaZ2HAOTX1KXkhLDa/aktivointi/putkipiilo/DSC47917-800px.jpg)](/en/activation/treat-tube/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADb_1jJmaZ2HAOTX1KXkhLDa/aktivointi/putkipiilo/DSC47917-800px.jpg)](/en/brain-games/treat-tube/)
 
-[Stuffed panda:](/en/activation/stuffed-panda/)
+[Stuffed panda:](/en/brain-games/stuffed-panda/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAovy7RC8sMOubZ18cCUyvxa/aktivointi/pehmopanda/DSC49437-800px.jpg)](/en/activation/stuffed-panda/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAovy7RC8sMOubZ18cCUyvxa/aktivointi/pehmopanda/DSC49437-800px.jpg)](/en/brain-games/stuffed-panda/)
 
-[Kongs in cups:](/en/activation/kongs-in-cups/)
+[Kongs in cups:](/en/brain-games/kongs-in-cups/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAPad9TgyJqORWgVqVVHFZ1a/aktivointi/kongit-mukeissa/DSC48179-800px.jpg)](/en/activation/kongs-in-cups/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAPad9TgyJqORWgVqVVHFZ1a/aktivointi/kongit-mukeissa/DSC48179-800px.jpg)](/en/brain-games/kongs-in-cups/)

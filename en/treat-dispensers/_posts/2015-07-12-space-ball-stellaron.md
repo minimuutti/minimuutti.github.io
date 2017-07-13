@@ -25,9 +25,9 @@ It took Miki about 2 to 3 minutes to get the treats out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACDVTDYX5ny5xTTL34agEY3a/aktivointi/space-ball-stellaron/DSC49583-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAJWNMdoDeDbOpgN4Nlfeu_a/aktivointi/space-ball-stellaron/DSC49583.jpg)
 
-I used this toy also in the game [Fleece wraps](/en/activation/fleece-wraps/):
+I used this toy also in the game [Fleece wraps](/en/brain-games/fleece-wraps/):
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABB0qXNBsPMDwaNIQGIghoca/aktivointi/fleecekiepit/DS08123-800px.jpg)](/en/activation/fleece-wraps/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABB0qXNBsPMDwaNIQGIghoca/aktivointi/fleecekiepit/DS08123-800px.jpg)](/en/brain-games/fleece-wraps/)
 
 and this toy has been used to make the [Kong Wobbler](/en/treat-dispensers/kong-wobbler/) toy more difficult:
 

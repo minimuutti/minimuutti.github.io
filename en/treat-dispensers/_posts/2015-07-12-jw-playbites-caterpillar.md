@@ -27,9 +27,9 @@ The time I put kibble in the holes, Miki got tired before he even got all the ki
 
 I’ve used this toy also in the games:
 
-[Fleece wraps:](/en/activation/fleece-wraps/)
+[Fleece wraps:](/en/brain-games/fleece-wraps/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACLOvk9Yb9PLXrqbY3hwRbTa/aktivointi/fleecekiepit/DS06789-800px.jpg)](/en/activation/fleece-wraps/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACLOvk9Yb9PLXrqbY3hwRbTa/aktivointi/fleecekiepit/DS06789-800px.jpg)](/en/brain-games/fleece-wraps/)
 
 [Toys combined:](/en/treat-dispensers/toys-combined/)
 

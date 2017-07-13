@@ -15,7 +15,7 @@ This toy is suitable also for freezing. It takes Miki about 10 minutes to lick t
 
 The first time I gave this toy to Miki I put some leftover pieces of meat in it, and the pieces were inhaled in about 10 seconds… :D Later on I've used pieces of chicken fillet or some treat sticks with this.
 
-You can adjust the difficulty by choosing different size treats and the larger treats have usually been the hardest ones to get out. 
+You can adjust the difficulty by choosing different size treats and the larger treats have usually been the hardest ones to get out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACFOIXF2rxtor8hynw1WWwNa/aktivointilelut/kongit/DSC34912-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACUo0NUZHIeoB3CoIk1xqLLa/aktivointilelut/kongit/DSC34912.jpg)
 
@@ -29,6 +29,6 @@ You can adjust the difficulty by choosing different size treats and the larger t
 
 I’ve used this toy also in the game:
 
-[Fleece wraps:](/en/activation/fleece-wraps/)
+[Fleece wraps:](/en/brain-games/fleece-wraps/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQNwBTbrzTttU0MWcmQ1R9a/aktivointi/fleecekiepit/DS06895-800px.jpg)](/en/activation/fleece-wraps/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQNwBTbrzTttU0MWcmQ1R9a/aktivointi/fleecekiepit/DS06895-800px.jpg)](/en/brain-games/fleece-wraps/)

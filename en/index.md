@@ -7,7 +7,7 @@ layout: default
 
 This site introduces ideas how you can drain your dog's excess energy in various fun ways. All the games have been tested by my energetic dog Miki.
 
-[**Activation**](/en/activation/) –category contains over a hundred different games including nose work games, brain games and enrichment ideas including instructions with pictures.
+[**Activation**](/en/brain-games/) –category contains over a hundred different games including nose work games, brain games and enrichment ideas including instructions with pictures.
 
 [**Treat dispensers**](/en/treat-dispensers/) –category introduces various toys and puzzle feeders and also some recommendations about the treats suitable for different toys.
 

@@ -15,7 +15,7 @@ I usually put only kibble in this toy. Miki learned the idea of this toy very qu
 
 So then I wondered how I could make this otherwise great toy more difficult. I cut about 20 x 20 cm (about 8" x 8") piece from a towel, and put it in the toy along with the kibble. That slowed Miki downabout a minute, so then it took Miki two or three minutes to get the kibble out.
 
-You can also put some tennis balls or some other soft balls inside the toy with the kibble. I've put a laundry ball into the toy, and then it takes Miki about five minutes to get all the kibble out. You can also put another toy inside it, like this [Space Ball Stellaron](/en/treat-dispensers/space-ball-stellaron/) toy or some small [corals](https://minimuutti.com/en/activation/corals/) to add the challenge.
+You can also put some tennis balls or some other soft balls inside the toy with the kibble. I've put a laundry ball into the toy, and then it takes Miki about five minutes to get all the kibble out. You can also put another toy inside it, like this [Space Ball Stellaron](/en/treat-dispensers/space-ball-stellaron/) toy or some small [corals](https://minimuutti.com/en/brain-games/corals/) to add the challenge.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5ph3fDeq_8Ar94AOpWDpLa/aktivointilelut/kongit/DSC12846_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABMwR0FbwtSutSjC1GCUBKga/aktivointilelut/kongit/DSC12846_2.jpg)
 

@@ -35,17 +35,17 @@ Miki likes to play with this toy also without any food because it can be rolled 
 
 I’ve used this toy also in these games:
 
-[Kong Traxx and towels:](/en/activation/kong-traxx-and-towels/)
+[Kong Traxx and towels:](/en/brain-games/kong-traxx-and-towels/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADE-txlKM-zMtbe0Dg3DFaoa/aktivointi/kong-traxx-ja-pyyhe/DSC57081-800px.jpg)](/en/activation/kong-traxx-and-towels/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADE-txlKM-zMtbe0Dg3DFaoa/aktivointi/kong-traxx-ja-pyyhe/DSC57081-800px.jpg)](/en/brain-games/kong-traxx-and-towels/)
 
-[Fleece wraps:](/en/activation/fleece-wraps/)
+[Fleece wraps:](/en/brain-games/fleece-wraps/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD3-pPBBv4bmldatbgMzZj8a/aktivointi/fleecekiepit/DS06648-800px.jpg)](/en/activation/fleece-wraps/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD3-pPBBv4bmldatbgMzZj8a/aktivointi/fleecekiepit/DS06648-800px.jpg)](/en/brain-games/fleece-wraps/)
 
-[Toys on a stick:](/en/activation/toys-on-a-stick/)
+[Toys on a stick:](/en/brain-games/toys-on-a-stick/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADKJKsDBn_QIru8kDvuUbO5a/aktivointi/lelut-tikussa/DS07913-800px.jpg)](/en/activation/toys-on-a-stick/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADKJKsDBn_QIru8kDvuUbO5a/aktivointi/lelut-tikussa/DS07913-800px.jpg)](/en/brain-games/toys-on-a-stick/)
 
 [Toys combined:](/en/treat-dispensers/toys-combined/)
 

@@ -39,10 +39,10 @@ In these pictures Miki plays with the toy for the first time.
 
 I've used this toy also in the following games:
 
-[Kongs in cups:](/en/activation/kongs-in-cups/)
+[Kongs in cups:](/en/brain-games/kongs-in-cups/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAlPN0N_pKP1-8o0wWJq_Mua/aktivointi/kongit-mukeissa/DSC47968-800px.jpg)](/en/activation/kongs-in-cups/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAlPN0N_pKP1-8o0wWJq_Mua/aktivointi/kongit-mukeissa/DSC47968-800px.jpg)](/en/brain-games/kongs-in-cups/)
 
-[Tug a fleece:](/en/activation/tug-a-fleece/)
+[Tug a fleece:](/en/brain-games/tug-a-fleece/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACZqPq6gXdoNc87lplDucGua/aktivointi/solmupiilo/DS02879-800px.jpg)](/en/activation/tug-a-fleece/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACZqPq6gXdoNc87lplDucGua/aktivointi/solmupiilo/DS02879-800px.jpg)](/en/brain-games/tug-a-fleece/)

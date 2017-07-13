@@ -30,6 +30,6 @@ The toy you see in the pictures has been around for many years. Although we use 
 
 I’ve used this toy also in the game:
 
-[Treat tube:](/en/activation/treat-tube/)
+[Treat tube:](/en/brain-games/treat-tube/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACvGxg0oMZqHsIKH5yMZPi7a/aktivointi/putkipiilo/DSC47941-800px.jpg)](/en/activation/treat-tube/)
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACvGxg0oMZqHsIKH5yMZPi7a/aktivointi/putkipiilo/DSC47941-800px.jpg)](/en/brain-games/treat-tube/)
