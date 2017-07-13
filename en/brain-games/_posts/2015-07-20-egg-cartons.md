@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD6h4-2jG351nw_fLMjqqqca/aktivointi/kananmunakotelot/DS12227_-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/egg-cartons
+  - /en/activation/egg-cartons/
 ---
 
 Egg cartons are amongst the classics of diy food puzzle toys for dogs.

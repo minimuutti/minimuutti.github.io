@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABgUCtKlD9VAQM6WBT1yWVua/aktivointi/kupit-vadissa/DSC40120-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/cups-in-a-basin
+  - /en/activation/cups-in-a-basin/
 ---
 
 Slippery basin gives an extra challenge in this treat hunt.

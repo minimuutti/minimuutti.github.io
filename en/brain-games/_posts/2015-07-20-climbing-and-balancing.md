@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABDKx20poIhlCCqIRajf7Dfa/mikin-kuvat/2/DSC29282-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/climbing-and-balancing
+  - /en/activation/climbing-and-balancing/
 ---
 
 On our daily walks I often ask Miki to climb onto various things, such as rocks, trunks of fallen trees, stumps, benches etc.

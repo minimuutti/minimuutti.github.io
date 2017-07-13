@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC5Oa0tQDyVbYMqfz7wZXlVa/aktivointi/sateenvarjot/DSC38196-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/umbrellas
+  - /en/activation/umbrellas/
 ---
 
 For this one you only need an umbrella and any treats.

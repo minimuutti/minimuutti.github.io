@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADb6hWcvIWmXhQtWJ9W17jwa/aktivointi/haistelulaatikko/DS41144-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/snuffle-box
+  - /en/activation/snuffle-box/
 ---
 
 A snuffle box is a hardened version of a [snuffle mat](/en/brain-games/snuffle-mat/).

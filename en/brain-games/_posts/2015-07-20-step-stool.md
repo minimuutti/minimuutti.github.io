@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAfegKIA-UhXZ3U8TPCjaTna/aktivointi/jakkara/DS00940-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/step-stool
+  - /en/activation/step-stool/
 ---
 
 Ikea's step stool can be used with medium size or large dogs. The stool has perfect grid to hide some treats when you turn it upside down.

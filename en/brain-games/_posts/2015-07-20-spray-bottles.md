@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACPKCSkJHdKk8C1-n23z5gAa/aktivointi/suihkepullot/DS00081-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/spray-bottles
+  - /en/activation/spray-bottles/
 ---
 Spray bottles are outdated tools in dog training. Nevertheless they are excellent as food dispensing toys.
 

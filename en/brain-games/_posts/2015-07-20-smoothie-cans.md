@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADjgB_cZHvFaYWSQsvmxQmoa/aktivointi/smoothie-tolkit/DS07129_-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/smoothie-cans
+  - /en/activation/smoothie-cans/
 ---
 
 Froosh’s new smoothie cans look like they were designed as dogs’ food puzzle toys.

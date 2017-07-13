@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABC3P2esT6eQguQ5q-4koRSa/aktivointi/pehmopanda/DSC49366-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/stuffed-panda
+  - /en/activation/stuffed-panda/
 ---
 
 When this panda toy reached the end of his life it was still usable in Miki's daily activation.

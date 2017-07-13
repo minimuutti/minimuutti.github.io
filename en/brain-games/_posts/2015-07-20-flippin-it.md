@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADfUNIAHfQ_ifzW8z_qPieua/aktivointi/flippailu/DS060441-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/flippin-it
+  - /en/activation/flippin-it/
 ---
 
 In this game the dog needs to flip the blue baskets to get the treats.

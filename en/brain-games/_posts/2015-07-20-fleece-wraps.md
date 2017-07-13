@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAzjY2dJJR3OrHeSbMf3-yMa/aktivointi/fleecekiepit/DS06648-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/fleece-wraps
+  - /en/activation/fleece-wraps/
 ---
 
 Are treat dispensing toys too easy for your dog too? You can make some of the toys more difficult with a piece of fleece.

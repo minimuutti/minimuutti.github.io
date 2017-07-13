@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABX4v7BqDM9SBaqaW0ziUt1a/aktivointi/tuubin-pyoritys/DS28661-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/high-rollers-alternatives
+  - /en/activation/high-rollers-alternatives/
 ---
 
 These games are similar as the [High roller](/en/brain-games/high-roller/) game but here are some alternatives.

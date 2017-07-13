@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADi_NXnb0a818xsRJAX2rBxa/aktivointi/namien-piilotus-asuntoon/DSC30804-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/hiding-the-treats-in-the-house
+  - /en/activation/hiding-the-treats-in-the-house/
 ---
 
 I often hide Miki's kibble dinner around the apartment.

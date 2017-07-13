@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD73vut7nD_ZYXATmlQfYxGa/aktivointi/aaltopahviwrapit/DSC55675-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/corrugated-cardboard-wraps
+  - /en/activation/corrugated-cardboard-wraps/
 ---
 
 In this wrap there are two pieces of duck fillet hidden under the corrugated cardboard.

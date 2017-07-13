@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAv0Q4utFypi1nSyIPlG-pba/aktivointi/palapelimatto/DS07724-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/puzzle-mat
+  - /en/activation/puzzle-mat/
 ---
 
 I made several fun games for Miki from these puzzle mat pieces.

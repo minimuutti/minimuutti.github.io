@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJHl-lgHbDCrXxK4Sb3W_ha/aktivointi/onginta/DS15029-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/gone-fishin
+  - /en/activation/gone-fishin/
 ---
 
 In this game a dog needs to fish a cup attached to a rope out of a plastic jar.

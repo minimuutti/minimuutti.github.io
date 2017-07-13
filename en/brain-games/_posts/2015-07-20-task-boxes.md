@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABewxD4IEK2jzxfYcYw3foIa/aktivointi/tehtavalaatikko-pulloilla/DSC52610-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/task-boxes
+  - /en/activation/task-boxes/
 ---
 
 Task boxes are great for dogs that like to dig or search for their food. Also you don't need any specific packages on items for these games.

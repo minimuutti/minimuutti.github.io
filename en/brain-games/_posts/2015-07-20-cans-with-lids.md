@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADOthucqhfOsfNfthe6iCCMa/aktivointi/kannelliset-rasiat/DSC53153-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/cans-with-lids
+  - /en/activation/cans-with-lids/
 ---
 
 These games are quite difficult so they suit best for dogs that already have some experience with puzzle toys.

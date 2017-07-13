@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC8BfEiawbfjrKKJBtVtj3la/aktivointi/namien-etsinta-kippojen-alta/DSC42562-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/searching-under-the-cups
+  - /en/activation/searching-under-the-cups/
 ---
 
 Get few cups from the kitchen or if you have small cardboard boxes or paper cups, you can use them too.

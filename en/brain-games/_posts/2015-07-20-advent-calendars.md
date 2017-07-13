@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA2qizwdW6GowcmpCc5oN9Xa/aktivointi/joulukalenterit/DSC59121-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/advent-calendars
+  - /en/activation/advent-calendars/
 ---
 
 You can give empty chocolate advent calendars to your dog.

@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAZS41Om0VssIC0L2CTx5uxa/aktivointi/puhelinluetteloviuhka/DSC25474-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/phonebook-fan
+  - /en/activation/phonebook-fan/
 ---
 
 You need a phonebook or a mail order catalog and some kibble for this one.

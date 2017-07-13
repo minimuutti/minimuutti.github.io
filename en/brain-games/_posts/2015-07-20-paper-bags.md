@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADzR3jRdJRXZ0ukc9V3cd_Ja/aktivointi/paperikassit/DS10618-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/paper-bags
+  - /en/activation/paper-bags/
 ---
 
 You can give paper bags to your dog to play with as long as they don't have any metallic parts in them.

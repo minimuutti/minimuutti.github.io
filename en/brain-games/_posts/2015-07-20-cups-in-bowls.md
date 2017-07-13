@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACknxixOrVftjWX7iFXmog5a/aktivointi/kupit-kulhoissa/DSC43090-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/cups-in-bowls
+  - /en/activation/cups-in-bowls/
 ---
 
 These games are great because you can modify them almost endlessly.

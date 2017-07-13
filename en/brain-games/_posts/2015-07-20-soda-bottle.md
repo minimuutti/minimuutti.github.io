@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD6OxtEc0NUBiS37OF6YC6Va/aktivointi/limupullo/DSC25203-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/soda-bottle
+  - /en/activation/soda-bottle/
 ---
 
 Soda bottles are great food dispensing toys because they are always available.

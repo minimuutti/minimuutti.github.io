@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABqKBQyizl5fWo0UqaQTn7Ra/aktivointi/putoilevat-namit/DSC51366-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/falling-treats
+  - /en/activation/falling-treats/
 ---
 
 Preparing this game takes a bit time, but Miki found this game super fun so I recommend you to try this with your own dog.

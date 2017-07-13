@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADfZ5WzCxbXg-IlMq5s05Aya/aktivointi/aaltopahvispiraali/DSC53683-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/cardboard-spiral
+  - /en/activation/cardboard-spiral/
 ---
 
 You can make a fun treat spiral out of corrugated cardboard.

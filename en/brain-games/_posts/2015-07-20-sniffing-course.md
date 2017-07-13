@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADsLz0jKT0IjVpV4D13rLCla/aktivointi/haistelurata/DSC58497-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/sniffing-course
+  - /en/activation/sniffing-course/
 ---
 
 Sniffing is one of the most efficient way to drain your dog's energy. If your dog hasn't searched much before, you need to start with only three items/obstacles.

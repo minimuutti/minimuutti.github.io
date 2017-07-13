@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB4zH1IfQTacQ8w7iielcHma/aktivointi/levysoittimet/DSC54548-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/turntables
+  - /en/activation/turntables/
 ---
 
 It takes tome effort to craft the game, but the end result is worth it.

@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACWoX4FhkP7rFeBObrOH9Jga/aktivointi/lentava-lautanen-ii/DS45091-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/flying-saucer-ii
+  - /en/activation/flying-saucer-ii/
 ---
 
 I got carried away again when I got some yarn as a Christmas present and I crocheted this flying saucer toy to Miki.

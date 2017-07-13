@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACrqCjeCVacW85OAJnJDC_Oa/aktivointi/putkilot-laatikossa/DSC48624-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/tubes-in-the-box
+  - /en/activation/tubes-in-the-box/
 ---
 
 Just a few tubes and a box and you can make these fun games for your dog.

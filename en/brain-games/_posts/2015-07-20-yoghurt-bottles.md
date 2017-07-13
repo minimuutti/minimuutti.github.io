@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADwZWh1mGqEkNEOvDN9mAgFa/aktivointi/jogurttipullot/DSC52520-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/yoghurt-bottles
+  - /en/activation/yoghurt-bottles/
 ---
 
 You can use any small yoghurt bottles for this game. If you don't have any carton bottles, you can use plastic bottles like Actimel bottles.

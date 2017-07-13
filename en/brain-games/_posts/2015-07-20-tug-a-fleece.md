@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAQZ5onSvDEItMHDacxweu-a/aktivointi/solmupiilo/DS02879-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/tug-a-fleece
+  - /en/activation/tug-a-fleece/
 ---
 
 This is a two-part game. First the dog needs to pull the knotted fleece out of the toy and then he needs to dig the treats out of the knots.

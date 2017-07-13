@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACoF4hYVlC04T2kRrsL2sBaa/aktivointi/lentava-lautanen/DS03631%20%282%29-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/flying-saucer
+  - /en/activation/flying-saucer/
 ---
 
 I made a diy kibble dispenser out of two deep paper plates.

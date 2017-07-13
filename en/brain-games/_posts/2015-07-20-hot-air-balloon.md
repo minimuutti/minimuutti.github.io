@@ -7,7 +7,7 @@ image:
   thumb:
 
 redirect_from:
-  - /en/activation/hot-air-balloon
+  - /en/activation/hot-air-balloon/
 ---
 
 The hot-air balloon is a completely different game that Miki is used to.

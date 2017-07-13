@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACa8Tg4Ea6XmT_EJp3dL8S-a/muut/Picture%20coming%20soon.jpg
   thumb:
 redirect_from:
-  - /en/activation/scent-trace
+  - /en/activation/scent-trace/
 ---
 
 Dogs naturally follow scent traces and you can make these at your home too.

@@ -7,7 +7,7 @@ image:
   thumb:
 
 redirect_from:
-  - /en/activation/pulling-cart
+  - /en/activation/pulling-cart/
 ---
 
 In this game Miki is pulling a cart but in a slightly different way than normal sled dogs do :D

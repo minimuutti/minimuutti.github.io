@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABZVuXpWCHVzqnsLPVrBHWxa/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29607-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/walking-on-different-surfaces
+  - /en/activation/walking-on-different-surfaces/
 ---
 
 Walking on different surfaces can be count as sosializing, but always when there is a chance to try something new, I adress Miki to try it.

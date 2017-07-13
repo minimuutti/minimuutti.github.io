@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABD5xpUjRf3WouOE_hn6KHia/aktivointi/paperituubi/DSC29173-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/papertube
+  - /en/activation/papertube/
 ---
 
 For this one you only need two or three pages from the magazine (staples taken out), masking tape and some dry treats.

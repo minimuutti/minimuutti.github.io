@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABUV_PcyiMFN4XCDxcbQWy3a/aktivointi/rauhoittuminen/DSC14799-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/calming-down
+  - /en/activation/calming-down/
 ---
 
 Calming down is very hard for Miki so that's why we need to practise it.

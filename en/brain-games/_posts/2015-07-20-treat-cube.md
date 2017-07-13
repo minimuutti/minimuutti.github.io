@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC0jvs23ni3Lb5lKU6fQ-xBa/aktivointi/herkkukuutio/DSC37126-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/treat-cube
+  - /en/activation/treat-cube/
 ---
 
 This is so cheap and easy to make and it's as good as any food dispenser toy or even better.

@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABalE-tSxkSFN7y3DVo65pMa/aktivointi/kangaspallo/DSC38537-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/textile-ball
+  - /en/activation/textile-ball/
 ---
 
 If you are about to throw away any old clothes, sheets or towels - don’t.

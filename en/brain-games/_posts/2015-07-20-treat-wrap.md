@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAt8bfDFv0lc1KPZj0CIwVSa/aktivointi/herkkuwrappi/DSC55799-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/treat-wrap
+  - /en/activation/treat-wrap/
 ---
 
 For treat wrap you need a piece of cardboard, some textile yarn and some thin and sticky treats like pieces of duck fillet or chicken fillet.

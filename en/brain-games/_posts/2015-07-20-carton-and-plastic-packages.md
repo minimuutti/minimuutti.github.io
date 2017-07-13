@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABi4IiqN2uiTM9P_-Wmvt0_a/aktivointi/kartonkipakkaukset/DSC25797-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/carton-and-plastic-packages
+  - /en/activation/carton-and-plastic-packages/
 ---
 
 All small grocery packages are good to be given to the dog to shred.

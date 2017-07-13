@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABjaGqAni6aRT4wIfD760SXa/aktivointi/jaapalamuotit/DSC46427-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/ice-cube-trays
+  - /en/activation/ice-cube-trays/
 ---
 
 Ice cube trays are the best in those hot summer days, but you can also use them otherwise.

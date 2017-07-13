@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADxolDHPexBFWptKsvbN-O6a/aktivointi/koysilaatikko/DSC30102-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/rope-in-a-box
+  - /en/activation/rope-in-a-box/
 ---
 
 Miki absolutely loves to search for his food so I always try new obstacles with different boxes.

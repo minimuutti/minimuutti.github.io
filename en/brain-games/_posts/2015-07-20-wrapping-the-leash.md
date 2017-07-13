@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACVFSroqeLOgkx4WaPnhhbRa/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32210-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/wrapping-the-leash
+  - /en/activation/wrapping-the-leash/
 ---
 
 This is proper a mental challenge for your dog.

@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_vggi0yefXTv3aSTCOpi_a/aktivointi/nappulajahti/DS38593-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/kibble-hunt
+  - /en/activation/kibble-hunt/
 ---
 
 If your dog loves to chase and hunt his food then this is a perfect game for him.

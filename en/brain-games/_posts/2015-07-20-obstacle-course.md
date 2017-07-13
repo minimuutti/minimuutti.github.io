@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAMjFWZhmPAvpQD0bZysdJpa/aktivointi/esterata/DSC58098_-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/obstacle-course
+  - /en/activation/obstacle-course/
 ---
 
 This game is nice because you don't need any expensive agility hurdles. Instead you can use any light weight or soft objects you can find in your home.

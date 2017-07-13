@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAOCch4RQDxUSbubex0Jy8Ra/aktivointi/paperikuplat/DS04272_-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/reversed-muffin-tray
+  - /en/activation/reversed-muffin-tray/
 ---
 
 As I was shopping, I drooled over some muffin trays and came up with an idea for this game.

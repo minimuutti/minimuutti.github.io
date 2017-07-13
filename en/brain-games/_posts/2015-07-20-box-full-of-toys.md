@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACnsTr55GZmVmK7fliyH-hXa/aktivointi/lelulaatikko/DSC30079-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/box-full-of-toys
+  - /en/activation/box-full-of-toys/
 ---
 
 At first I thought of making a ball pool in the cardboard box, but the balls would have cost about 50 euros so I ended up improvising.

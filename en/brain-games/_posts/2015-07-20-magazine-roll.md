@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAlD70hkSYFQuTRumHvckjLa/aktivointi/lehtirulla/DSC36316-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/magazine-roll
+  - /en/activation/magazine-roll/
 ---
 
 For this game you need a magazine, masking tape and some thin and sticky treats, like semi-moist duck fillets or chicken fillets, or small slices of cheese or ham.

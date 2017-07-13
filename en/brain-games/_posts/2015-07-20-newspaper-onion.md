@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABaT7uZScdcQ8_I6m29JyIua/aktivointi/sanomalehtisipuli/DSC37764-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/newspaper-onion
+  - /en/activation/newspaper-onion/
 ---
 
 For this one you need a newspaper (staples taken out), some masking tape and any dry treats or just kibble.

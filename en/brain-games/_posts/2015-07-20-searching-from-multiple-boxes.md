@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABXS3vk7vkGHB9gGjkDhqena/aktivointi/etsinta-useista-laatikoista/DSC29381-245px%20%282%29.jpg
   thumb:
 redirect_from:
-  - /en/activation/searching-from-multiple-boxes
+  - /en/activation/searching-from-multiple-boxes/
 ---
 
 Dogs love to search because then they can really use their nose. Miki loves to search his food from boxes.

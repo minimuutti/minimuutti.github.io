@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAANvfWKx3f0sp8z4VfAf6tma/aktivointi/useita-purkkeja-paallekkain/DSC42367-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/multiple-cups-inside-others
+  - /en/activation/multiple-cups-inside-others/
 ---
 
 Hiding your dog's dinner between cups gives him a nice challenge.

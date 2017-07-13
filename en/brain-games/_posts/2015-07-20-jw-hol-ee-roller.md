@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA0hlQwp3MLozqLqZ7uzk5ha/aktivointi/jw-hol-ee-roller/DSC49928%20%282%29-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/jw-hol-ee-roller
+  - /en/activation/jw-hol-ee-roller/
 ---
 
 JW Hol-ee Roller toy (size L) is one of the best toys we have bought for Miki, because it's so versatile.

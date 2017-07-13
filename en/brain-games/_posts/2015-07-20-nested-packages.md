@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACtNa3YSjzjuolnwEWTykUNa/aktivointi/laatikot-sisakkain/DS09520-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/nested-packages
+  - /en/activation/nested-packages/
 ---
 
 You can give carton packages as such for your dog to shred but you can create something different when you nest several packages.

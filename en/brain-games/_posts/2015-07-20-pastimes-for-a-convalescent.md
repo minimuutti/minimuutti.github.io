@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-6pP1HfXaMVsrHW8Pbimsa/aktivointi/ajanvietetta-toipilaalle/DS37405-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/pastimes-for-a-convalescent
+  - /en/activation/pastimes-for-a-convalescent/
 ---
 
 I believe every dog has an upset stomach or diarrhea at some point of his life.

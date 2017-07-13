@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABQs78v0sZ22acs_lfLRTL3a/aktivointi/minitehtavia/DSC51202-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/small-games
+  - /en/activation/small-games/
 ---
 
 In this post you can find various small games.

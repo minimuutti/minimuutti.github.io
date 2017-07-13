@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABCbkb3rwCRjafwCwKeNKt0a/aktivointi/tuubin-pyoritys/DS23531-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/high-roller
+  - /en/activation/high-roller/
 ---
 
 In this game a dog needs to roll the tube so the treats fall out from the holes.

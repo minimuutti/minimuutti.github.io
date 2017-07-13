@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC-pV19GYO5KXyejrM7HBhva/aktivointi/kori-laatikossa/DSC45276-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/basket-in-the-box
+  - /en/activation/basket-in-the-box/
 ---
 
 For this one you only need two baskets or boxes and any treats or just kibble.

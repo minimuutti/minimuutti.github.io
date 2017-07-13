@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADieokCzbi1g09PFFPVywzxa/aktivointi/paperipallot-mukeissa/DSC46322-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/paper-balls-in-cups
+  - /en/activation/paper-balls-in-cups/
 ---
 
 To make paper balls, take one page from a magazine. Then put some treats or just kibble on the top of the paper and then scrunch it into a ball.

@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACPi9pdbO0-X7zFM_geuZzFa/aktivointi/ystavanpaivan-sydan/DS04759-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/valentines-heart
+  - /en/activation/valentines-heart/
 ---
 
 I gave Miki two of these cardboard hearts as a valentine's day gift.

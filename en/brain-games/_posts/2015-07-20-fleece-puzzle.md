@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD0KwusZJ28f2KWsWh0jNoVa/aktivointi/fleecerullat/DS09098-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/fleece-puzzle
+  - /en/activation/fleece-puzzle/
 ---
 
 This game is convenient because you can adjust the difficulty to fit your dog's level.

@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAJ-wIRnJ8RUXTj7IDYPuOxa/aktivointi/under-the-dome/DSC58235-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/under-the-dome
+  - /en/activation/under-the-dome/
 ---
 
 The dog is supposed to pull the towel out so he can get the treats. 

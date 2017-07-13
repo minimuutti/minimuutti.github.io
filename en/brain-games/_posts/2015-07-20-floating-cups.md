@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACNx1tlu1OmiSHesLi-PbiHa/aktivointi/kelluvat-kupit/DSC39318-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/floating-cups
+  - /en/activation/floating-cups/
 ---
 
 I thought this would've been easy for Miki, but it turned out if was quite difficult.

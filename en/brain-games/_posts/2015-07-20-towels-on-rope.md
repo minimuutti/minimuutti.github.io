@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADM_FtFykY5fj9m00eaainJa/aktivointi/pyyhekoysi/DS02416-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/towels-on-rope
+  - /en/activation/towels-on-rope/
 ---
 Rope toy brings new elements to towel games.
 

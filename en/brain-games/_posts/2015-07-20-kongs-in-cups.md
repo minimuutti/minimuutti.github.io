@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_N120pazKjkRIUVKI5-Vta/aktivointi/kongit-mukeissa/DSC48000-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/kongs-in-cups
+  - /en/activation/kongs-in-cups/
 ---
 
 If food dispensing toys are too easy for your dog, you can make some of them more difficult by combining them with other objects.

@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACCbwVhSL25ggboCWiz_6G0a/aktivointi/farkkuletti/DS02297-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/denim-plait
+  - /en/activation/denim-plait/
 ---
 
 For these games you need a pair of jeans that you are about to throw away and some dry and hard treats.

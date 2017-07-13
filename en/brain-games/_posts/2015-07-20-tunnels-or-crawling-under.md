@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD5erhX5CcQcxIrbd3tvPqUa/temput/1/DSC41885-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/tunnels-or-crawling-under
+  - /en/activation/tunnels-or-crawling-under/
 ---
 
 You may know the tunnel from dog agility sport. We made a tunnel from a sidetable and a towel and Miki has to crawl under the table and the towel.

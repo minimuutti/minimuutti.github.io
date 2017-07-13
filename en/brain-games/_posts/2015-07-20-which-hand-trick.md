@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC9XE0m3C8xO6FWG5eObD9za/aktivointi/kumpi-kasi/DSC29523-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/which-hand-trick
+  - /en/activation/which-hand-trick/
 ---
 
 This trick was one of the first I taught to Miki.

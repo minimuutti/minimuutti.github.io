@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAyy0-IboH57RQIhdypoPtLa/aktivointi/mukidonitsi/DSC38826-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/cup-doughnut
+  - /en/activation/cup-doughnut/
 ---
 
 You need at least 10 carton or plastic cups and some string or yarn.

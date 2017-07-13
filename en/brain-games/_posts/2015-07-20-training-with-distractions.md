@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJjxiK5go8V_mZi3K-oVTga/aktivointi/hairioharjoitukset/DSC41355-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/training-with-distractions
+  - /en/activation/training-with-distractions/
 ---
 
 Working around distractions has always been very difficult to Miki.

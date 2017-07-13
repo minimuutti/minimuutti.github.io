@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAD5NoXpaHrmr2FCkpgS3Spa/aktivointi/purkin-pyoritys/DSC55886%20-%20Copy-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/kibble-dispenser
+  - /en/activation/kibble-dispenser/
 ---
 
 This game is easy to prepare, but it still gives a good challenge for your dog.

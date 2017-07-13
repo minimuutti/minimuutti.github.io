@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADlLgldhha6VnrIWK2_HM0Ba/aktivointi/putkipiilo/DSC37492-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/treat-tube
+  - /en/activation/treat-tube/
 ---
 
 For this you only need a tube, a towel or a newspaper and any kind of treats. I used pieces of dried chicken fillet.

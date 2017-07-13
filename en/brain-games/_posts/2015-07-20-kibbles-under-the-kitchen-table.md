@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACclW0RmwjFQjR26QroOi_Ga/aktivointi/nappulat-poydan-alla/DSC29490-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/kibble-under-the-kitchen-table
+  - /en/activation/kibble-under-the-kitchen-table/
 ---
 
 Throw the kibble under the kitchen table and under the chairs. It may sound "too easy", but it's not.

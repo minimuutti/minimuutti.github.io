@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAChMh_RR_9XyUcT3PTYLd5ga/aktivointi/itsevarmuusbuusteri/DS33929-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/confidence-booster
+  - /en/activation/confidence-booster/
 ---
 
 This is a confidence boosting game for your dog, by absolute-dogs.com. This is a great start if you need to train your dog to wear a muzzle.

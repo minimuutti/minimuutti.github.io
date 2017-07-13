@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABivp46MnHGFduWK1Ri4OJOa/aktivointi/Palloputket/DS38807-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/dumbbells
+  - /en/activation/dumbbells/
 ---
 
 For this game you need two laundry balls and an empty paper roll.

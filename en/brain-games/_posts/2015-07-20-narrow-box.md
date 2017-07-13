@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABgQv0GNOtt4GZ5oZbmM_ewa/aktivointi/kapea-laatikko/DSC57694-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/narrow-box
+  - /en/activation/narrow-box/
 ---
 
 The dog is supposed to lift the obstacles out of the narrow box in order to get the treats.

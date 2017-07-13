@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACm5bXzVo6-EH55syBfrDZWa/aktivointi/namien-poiminta-vedesta/DSC39375-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/snorkling-the-treats-from-water
+  - /en/activation/snorkling-the-treats-from-water/
 ---
 
 For this game you need a bowl or a basin and some treats that won’t dissolve in the water.

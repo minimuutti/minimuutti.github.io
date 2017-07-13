@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACXPDbJ4rDCl2AX1OqxOqRQa/aktivointi/laavalamput/DSC44309-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/lava-lamps
+  - /en/activation/lava-lamps/
 ---
 
 I made these lava lamp looking cones by using Ikea’s Kalas cups and paper cups.

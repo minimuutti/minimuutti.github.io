@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADnVKKl75JMbBGxHXL_0hGGa/aktivointi/lelut-tikussa/DS07913_-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/toys-on-a-stick
+  - /en/activation/toys-on-a-stick/
 ---
 
 Pulling toys away from the stick gives a new kind of challenge for your dog.

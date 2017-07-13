@@ -7,7 +7,7 @@ image:
   thumb:
 
 redirect_from:
-  - /en/activation/ikeas-mula-wagon
+  - /en/activation/ikeas-mula-wagon/
 ---
 
 Toys for small children are mainly safe for dogs as well because they are tested for toxics (at least in Finland) and they seldom have any small loose parts.

@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACQK2mvYzaxqwZfMqqjIxwYa/aktivointi/kiekon-pyoritys/DSC57855-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/spin-the-disk
+  - /en/activation/spin-the-disk/
 ---
 
 You can make amazing things out of garbage if you just use a bit of imagination.

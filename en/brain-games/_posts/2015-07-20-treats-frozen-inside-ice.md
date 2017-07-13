@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACI-xHsAUN2_cQP1aWXK4Ava/aktivointi/jaan-sisalla-olevat-namit/DSC36569-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/treats-frozen-inside-ice
+  - /en/activation/treats-frozen-inside-ice/
 ---
 
 Treats frozen inside ice are the best thing that you can give to your dog on a hot summer day.

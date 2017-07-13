@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAHZbNZBrv_GoYOPIT6Hsx3a/aktivointi/laatikon-arvoitus/DS08867-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/mystery-box
+  - /en/activation/mystery-box/
 ---
 
 This game has two parts in it. The dog needs to open the first flap of the box and after that he needs to push the box open.

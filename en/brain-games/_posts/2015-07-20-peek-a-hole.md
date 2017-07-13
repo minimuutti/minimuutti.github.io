@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADI4P-kdkEBcMd9BPC0Z5fda/aktivointi/kurkkaa-koloon/DSC34707-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/peek-a-hole
+  - /en/activation/peek-a-hole/
 ---
 
 This is like a giant version of a slow feeding foodbowl.

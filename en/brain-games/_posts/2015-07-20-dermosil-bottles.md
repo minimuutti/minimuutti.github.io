@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABLlwXu_1DoM3oKU5GJMsMza/aktivointi/dermosil-pullot/DSC50022-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/dermosil-bottles
+  - /en/activation/dermosil-bottles/
 ---
 
 Dermosil soap bottles are shaped like they were designed as treat dispensing toys for dogs.

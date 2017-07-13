@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADNhOLo77gBj0AdhaTNQgVBa/aktivointi/paperiset-rullat-laatikossa/DS04457-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/paper-rolls-in-a-box
+  - /en/activation/paper-rolls-in-a-box/
 ---
 
 Paper rolls in a box gave Miki a nice challenge.

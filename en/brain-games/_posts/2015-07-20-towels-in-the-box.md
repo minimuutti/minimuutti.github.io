@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA1HlBAl9i5O3dYnTm5fHZna/aktivointi/pyyhelaatikko/DSC44367-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/towels-in-the-box
+  - /en/activation/towels-in-the-box/
 ---
 
 You can make lots of fun games for your dog with just a few towels and a box.

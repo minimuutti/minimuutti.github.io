@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACa8Tg4Ea6XmT_EJp3dL8S-a/muut/Picture%20coming%20soon.jpg
   thumb:
 redirect_from:
-  - /en/activation/hide-and-seek
+  - /en/activation/hide-and-seek/
 ---
 
 We play hide and seek with Miki every now and then.

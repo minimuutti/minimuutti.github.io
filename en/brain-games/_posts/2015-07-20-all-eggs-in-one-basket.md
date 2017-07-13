@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABHwaa24Kv-BVozHa1diJZ7a/aktivointi/kaikki-munat-samassa-korissa/DSC58683_.jpg
   thumb:
 redirect_from:
-  - /en/activation/all-eggs-in-one-basket
+  - /en/activation/all-eggs-in-one-basket/
 ---
 
 We got this basket full of delicacies as a christmas present, but it soon found its way to be part of Miki's games.

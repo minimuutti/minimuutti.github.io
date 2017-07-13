@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADeE0ESyZifLOulpQ_lKEdca/aktivointi/nescafe-purkki/DS11538-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/coral-cappucino
+  - /en/activation/coral-cappucino/
 ---
 
 I choose a Nescafe jar for this game because of the narrower section in the middle of the jar.

@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADzADjYVBu4GwblsYeD-Naea/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/hiding-the-treats-in-the-grass-or-in-the-snowdrift
+  - /en/activation/hiding-the-treats-in-the-grass-or-in-the-snowdrift/
 ---
 
 Searching the treats outside shoud begin with easier tasks if your dog hasn’t search anything before.

@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAXzeiRFfnPq3IiZVOFTSdya/aktivointi/herkkuhelmet/DSC41292-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/treat-necklace
+  - /en/activation/treat-necklace/
 ---
 
 We were about to visit my fiancés parents who have an own yard with trees. So I came up with an idea of these treat necklaces which I could hang from a tree for Miki.

@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAARDKtXVpQrCS2vN0NZpwzGa/aktivointi/namikoysi/DSC47417-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/treat-rope
+  - /en/activation/treat-rope/
 ---
 
 You can use old and worn out rope toys for this game. I cut a chicken fillet to thin strips and then I pushed the strips into the holes of the rope.

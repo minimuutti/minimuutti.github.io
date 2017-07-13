@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABIAlUZSEQ9LlDtM38rf3LSa/aktivointi/pyyhelasagne/DS49199-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/towel-lasagna
+  - /en/activation/towel-lasagna/
 ---
 
 Dogs love to search because it allows them to really work with their nose. This towel lasagna is one of Miki's favourite games.

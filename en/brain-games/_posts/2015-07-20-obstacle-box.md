@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAANekC__tHxANOcsGGPbkaea/aktivointi/estelaatikko/DSC41627-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/obstacle-box
+  - /en/activation/obstacle-box/
 ---
 
 I've always wanted to craft this kind of box to Miki and fortunately I had some free time at the weekend.

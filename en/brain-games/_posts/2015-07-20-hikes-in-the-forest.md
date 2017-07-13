@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABTMWJxiTpirXTBb_hg-n05a/mikin-kuvat/2/DSC10631-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/hikes-in-the-forest
+  - /en/activation/hikes-in-the-forest/
 ---
 
 Forests have multiple times more of scents and sounds compared to residental areas.

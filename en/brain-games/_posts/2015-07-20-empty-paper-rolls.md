@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAACdN8GV4NYzXQPs8Ju7l6za/aktivointi/paperirullien-hylsyt/DS03018-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/empty-paper-rolls
+  - /en/activation/empty-paper-rolls/
 ---
 
 Empty paper rolls are diy dog toy's absolute classic.

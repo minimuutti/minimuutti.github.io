@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAABJv1OBZjeslrPKmJ2PZWRa/aktivointi/ikean-drommar-muotit/DS16238-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/ikeas-drommar-set
+  - /en/activation/ikeas-drommar-set/
 ---
 
 Slow feeding bowls are usually quite expensive but you can purchase this Drömmar pastry cutter set from Ikea for under six dollars.

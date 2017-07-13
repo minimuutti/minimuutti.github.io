@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAH-HvMT6r01v23Hg3NOjlMa/aktivointi/jotain-muuta-leikki/DSC60100-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/something-else-game
+  - /en/activation/something-else-game/
 ---
 
 This game is suitable for dogs that already know multiple tricks/commands and who are already familiar with clicker training.

@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAp9PQfxZcYrtSNpPhF0nS4a/aktivointi/kuusi-kuppia-piilossa/DS39554-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/twelve-cup-puzzle
+  - /en/activation/twelve-cup-puzzle/
 ---
 
 This game has six cups hidden inside larger cups. The number of the cups depends on the tray you are using - my tray had six holes :)

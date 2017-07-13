@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA9AixMp5Wi2OxxhE_dOKMna/aktivointi/esteradan-miniversio/DS15253-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/mini-obstacle-course
+  - /en/activation/mini-obstacle-course/
 ---
 
 You can make a mini version of the obstacle course.

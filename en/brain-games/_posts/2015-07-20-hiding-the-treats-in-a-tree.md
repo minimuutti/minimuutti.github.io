@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJJzh6v54YpTBvPq1yeF0Va/mikin-kuvat/2/DSC29249-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/hiding-the-treats-in-a-tree
+  - /en/activation/hiding-the-treats-in-a-tree/
 ---
 You can hide the treats under the trees bark or in the holes of the bark.
 

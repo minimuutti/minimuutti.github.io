@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACsWrhTZPD6jglbWNPtOIoNa/aktivointi/fleecematto/DS16409-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/snuffle-mat
+  - /en/activation/snuffle-mat/
 ---
 
 You might need to spend a few hours in making a snuffle mat for your dog. But I recommend doing it, because using the mat calms yor dog and allows him to work for his food. And the mat can be used even for several years.

@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADur57izDKk7hN8OppPuVaHa/aktivointi/lokerikko/DS08655-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/knick-knacks-puzzle
+  - /en/activation/knick-knacks-puzzle/
 ---
 
 I got a dog treat advent calendar as a gift from Zooplus' online store on last christmas.

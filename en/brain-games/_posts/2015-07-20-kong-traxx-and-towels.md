@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADEW90TE9i16TlEW3e2IRlHa/aktivointi/kong-traxx-ja-pyyhe/DSC57081-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/kong-traxx-and-towels
+  - /en/activation/kong-traxx-and-towels/
 ---
 
 So many fun games can you create with a rubber tire toy and a towel.

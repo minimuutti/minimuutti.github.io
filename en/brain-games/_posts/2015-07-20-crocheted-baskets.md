@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADRP7pxeR-efNpNbkKdWKjUa/aktivointi/pussukat/DS01550-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/crocheted-baskets
+  - /en/activation/crocheted-baskets/
 ---
 
 I got the idea for these baskets from Ikea's Nordrana baskets. So, if you don't want to crochet the baskets yourself, you can buy them from Ikea.

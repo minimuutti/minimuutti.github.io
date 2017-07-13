@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAAPAVsXTgt2TELJBYBWlVwa/aktivointi/muki-tuubissa/DSC56649-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/cup-in-the-tube
+  - /en/activation/cup-in-the-tube/
 ---
 
 You should make the effort to build this game because it's just so much fun to watch your dog to solve the puzzle.

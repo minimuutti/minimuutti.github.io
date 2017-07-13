@@ -6,7 +6,7 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADCNyy51Ch-GfXImBVk_KA_a/aktivointi/etsiminen-pimeassa/DSC29829_-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/searching-in-the-dark
+  - /en/activation/searching-in-the-dark/
 ---
 
 Dog really gets to use its nose when searching in the dark.
