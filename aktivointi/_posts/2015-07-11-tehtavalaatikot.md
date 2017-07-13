@@ -118,7 +118,7 @@ Mikillä vaikutti olevan taas liikaa energiaa, eli oli aika ottaa kovat panokset
 - 2 koirannamituubia
 - 1 kiinni teipattu muropaketti, jonka sisällä oli 20 [paperipalloa](/aktivointi/minitehtavia/#paperipallot), joissa jokaisessa oli 1 nappula
 - 15 pientä [jogurttipulloa](/aktivointi/jogurttipullot/)
-- 3 [pilleripurkkia](http://localhost:4000/aktivointi/pilleripurkit/)
+- 3 [pilleripurkkia](/aktivointi/pilleripurkit/)
 - 1 pyyheliina solmittuna
 - 2 rullattua pyyheliinaa [JW Hol-ee Rollerin](/aktivointi/jw-hol-ee-roller/) sisällä
 - 1 pieni pahvikotelo

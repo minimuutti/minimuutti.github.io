@@ -78,7 +78,7 @@ The single games were relatively easy for Miki. However he needed to think how t
 
 ###### Game 15: Corals
 
-You can find the directions how to make corals from [here](http://localhost:4000/en/brain-games/corals/).
+You can find the directions how to make corals from [here](/en/brain-games/corals/).
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADy3tkJwrI5BLXcnTmaAg-ma/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__32-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADYxUPMZM_W5CDad2VPXCGNa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__32.jpg)
 

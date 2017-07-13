@@ -19,7 +19,7 @@ Mietin, että miten tätä muuten hyvää lelua voisi vaikeuttaa. Keksin leikata
 
 Wobblerin sisään voi laittaa myös tennispallon tai useamman pehmeän pikkupallon niin nappulat ei tule niin helposti ulos. Välillä vaikeutan tätä niin, että laitan lelun sisälle pesupallon, johon nappulat jäivät sopivasti jumiin. Mikiltä kestää tällöin lelun tyhjentäminen noin 5 minuuttia.
 
-Olen kokeillut laittaa lelun sisään myös [Space Ball Stellaron](/aktivointilelut/space-ball-stellaron/) -lelun sekä muutamia [koralleja](https://minimuutti.com/aktivointi/korallit/) ja nekin hidastivat tämän Kongin tyhjentämistä parilla minuutilla.
+Olen kokeillut laittaa lelun sisään myös [Space Ball Stellaron](/aktivointilelut/space-ball-stellaron/) -lelun sekä muutamia [koralleja](/aktivointi/korallit/) ja nekin hidastivat tämän Kongin tyhjentämistä parilla minuutilla.
 
 Voin lämpimästi suositella tätä lelua. Tämä kuvissa näkyvä lelu on meillä käytössä viikottain eikä lelu näytä mitään kulumisen merkkejä vaikka sen on meillä käytössä jo vuosia.
 

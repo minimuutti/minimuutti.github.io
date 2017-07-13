@@ -15,7 +15,7 @@ Purkkeihin voi laittaa mitä tahansa kuivia nameja, itse olen yleensä laittanut
 
 Nämä tehtävät ovat Mikille todella helppoja. Koska yksittäisen purkin tyhjentäminen kestää Mikiltä vain muutaman sekunnin, niin annan Mikille aina useamman purkin yhtä aikaa.
 
-Purkkeihin joissa on iso suuaukko, voi vaikeutuksena laittaa pieniä [koralleja](https://minimuutti.com/aktivointi/pilleripurkit/) tai palan kangasta esteeksi niin nappulat putoilevat purkista vähitellen.
+Purkkeihin joissa on iso suuaukko, voi vaikeutuksena laittaa pieniä [koralleja](/aktivointi/pilleripurkit/) tai palan kangasta esteeksi niin nappulat putoilevat purkista vähitellen.
 
 ---
 

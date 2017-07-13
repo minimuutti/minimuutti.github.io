@@ -112,7 +112,7 @@ I made this - the hardest task box ever, which included:
 - 2 dog treat tubes
 - 1 taped cereal package, which had 20 [paper balls](/en/brain-games/small-games/#paperballs) inside (and one kibble in each ball)
 - 15 small [yoghurt bottles](/en/brain-games/yoghurt-bottles/)
-- 3 [pill jars](http://localhost:4000/en/brain-games/pill-jars/)
+- 3 [pill jars](/en/brain-games/pill-jars/)
 - 1 towel tied to a knot
 - 2 rolled towels inside a [JW Hol-ee Roller](/en/brain-games/jw-hol-ee-roller/) toy
 - 1 small carton package
