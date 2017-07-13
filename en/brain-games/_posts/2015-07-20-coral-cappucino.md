@@ -17,11 +17,11 @@ I used some crocheted corals as obstacles and they were slightly smaller than I 
 
 If you don't want to make corals, you can make similar game with [paper balls](/en/brain-games/small-games/#paperballs).
 
-I thought this game would be difficult, so first I gave the jar to Miki with only some kibbles on the bottom. The kibbles vanished in seconds :D
+I thought this game would be difficult, so first I gave the jar to Miki with only some kibble on the bottom. The kibble vanished in seconds :D
 
-Then I made the game harder. I put some kibbles on the bottom and then 10-15 corals loosely on top. It took Miki about a minute to get the kibbles out.
+Then I made the game harder. I put some kibble on the bottom and then 10-15 corals loosely on top. It took Miki about a minute to get the kibble out.
 
-After a couple of easy games I put some kibbles on the bottom and then I pushed over 20 corals on top quite tightly. It took Miki about 2-3 minutes to get the kibbles out.
+After a couple of easy games I put some kibble on the bottom and then I pushed over 20 corals on top quite tightly. It took Miki about 2-3 minutes to get the kibble out.
 
 ---
 

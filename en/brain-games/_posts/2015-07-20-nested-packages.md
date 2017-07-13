@@ -15,7 +15,7 @@ I recommend starting with something easy and you can make the game harder later.
 
 You can also alternate the difficulty with the type of the packages that you are using. Thin carton is easier to shred than cardboard. The size of the boxes matters too. If you nest the boxes loosely it's easier for the dog to shred them. But if you nest the boxes tightly the game becomes more difficult.
 
-You can use just kibbles (or any other dry treats) but I've used some tastier treats with the kibbles. It's best to put the tastier treats in the smallest and innermost package and the kibbles in the outer packages.
+You can use just kibble (or any other dry treats) but I've used some tastier treats with the kibble. It's best to put the tastier treats in the smallest and innermost package and the kibble in the outer packages.
 
 #### Game 1: 3 nested packages
 

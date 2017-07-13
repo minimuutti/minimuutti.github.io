@@ -12,7 +12,7 @@ redirect_from:
 I made several fun games for Miki from these puzzle mat pieces.
 
 Toys for small children are usually safe for dogs as well because they seldom have any small loose parts in them.
- 
+
 ### Game 1
 
 First I made a box out of these pieces. I put the box on its side on the floor and then I put few treats inside and let Miki search them. Later on I attached a piece of paper as an obstacle at the front of the box.
@@ -25,9 +25,9 @@ First I made a box out of these pieces. I put the box on its side on the floor a
 
 ### Game 2
 
-I made another box out of these pieces. I placed the boxes on the floor back to back, so that the openings were facing in opposite directions. Then I placed some kibbles in turns inside the boxes, so that Miki needed to circle them constantly.
+I made another box out of these pieces. I placed the boxes on the floor back to back, so that the openings were facing in opposite directions. Then I placed some kibble in turns inside the boxes, so that Miki needed to circle them constantly.
 
-This game may cause your dog to get excited, so you may not want to play this game just before you are leaving your dog home alone. 
+This game may cause your dog to get excited, so you may not want to play this game just before you are leaving your dog home alone.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB3M7aTPTiHxMzu3VICkyeZa/aktivointi/palapelimatto/DSC47506-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVBL4BVSOatkWYCZ-_L4eoa/aktivointi/palapelimatto/DSC47506.jpg)
 
@@ -55,7 +55,7 @@ I joined four of these pieces together and put some treats under it. Then I put 
 
 ### Game 5
 
-I stacked five separate pieces and put one kibble in between every layer. This game was too easy, so the next time we played this game I stacked all ten pieces with kibbles in between.
+I stacked five separate pieces and put one kibble in between every layer. This game was too easy, so the next time we played this game I stacked all ten pieces with kibble in between.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACHYNAQuMUJpzDTvHs9CDawa/aktivointi/palapelimatto/DSC48053-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAAGJCZGsqtj-8nMv-fLbWMa/aktivointi/palapelimatto/DSC48053.jpg)
 
@@ -69,7 +69,7 @@ I stacked five separate pieces and put one kibble in between every layer. This g
 
 ### Game 6
 
-I put two separate pieces into a cardboard box and sprinkled some kibbles on the bottom of the box. At the second time I attached these two pieces together before I placed them in to the box with the kibbles.
+I put two separate pieces into a cardboard box and sprinkled some kibble on the bottom of the box. At the second time I attached these two pieces together before I placed them in to the box with the kibble.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC4Wlc_vT2ZbfTsA0XgXRGZa/aktivointi/palapelimatto/DSC48294-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADKbBsT7rK0lr40eZlNzV7wa/aktivointi/palapelimatto/DSC48294.jpg)
 

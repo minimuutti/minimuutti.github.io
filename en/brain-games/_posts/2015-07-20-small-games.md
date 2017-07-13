@@ -13,7 +13,7 @@ In this post you can find various small games.
 
 ### Kibbles under an office chair
 
-For this game you only need an office chair and any treats. I sprinkled some kibbles under the chair and let Miki search them. Although this game is relatively easy for the dog, this is definately fun to watch :)
+For this game you only need an office chair and any treats. I sprinkled some kibble under the chair and let Miki search them. Although this game is relatively easy for the dog, this is definately fun to watch :)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABQNqUp-Ssnpzb5iMaNYOqIa/aktivointi/minitehtavia/DSC51202-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABZjOkNfRQNJrRPpK_esh1Ma/aktivointi/minitehtavia/DSC51202.jpg)
 
@@ -23,7 +23,7 @@ For this game you only need an office chair and any treats. I sprinkled some kib
 
 ### <a name="paperballs">Paper balls</a>
 
-Take single sheets of paper from the magazine and wrap one sheet around a few kibbles or any dry treats.
+Take single sheets of paper from the magazine and wrap one sheet around a few kibble or any dry treats.
 
 At first time you may wanna use thicker piece of paper, like the covers of the magazine, so your dog doesn’t eat the paper itself but only the treats inside.
 
@@ -74,7 +74,7 @@ Sometimes I've used bubble wrap as an obstacle:
 
 ### Packing paper
 
-I put couple of kibbles on the bottom of a cardboard box and then I put some packing paper on top. I also put some kibbles in the gaps of the paper.
+I put couple of kibble on the bottom of a cardboard box and then I put some packing paper on top. I also put some kibble in the gaps of the paper.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADV89HigZ6yffntMsPfBbOma/aktivointi/minitehtavia/DS00125-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADDv9b1SZnVPAca30aMOkXsa/aktivointi/minitehtavia/DS00125.jpg)
 
@@ -106,7 +106,7 @@ You can put the box on the floor facing up or down and with or without the lid. 
 
 ### Gym mat
 
-I put some kibbles inside a gym mat for Miki to search.
+I put some kibble inside a gym mat for Miki to search.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACwSkNtaAH9WdN8En2zk5WVa/aktivointi/minitehtavia/DS01099-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABTSUGn55t59GpD4w2PLwfFa/aktivointi/minitehtavia/DS01099.jpg)
 
@@ -116,7 +116,7 @@ I put some kibbles inside a gym mat for Miki to search.
 
 ### A large jar in a basket
 
-I put some kibbles on the bottom of the basket and then I put a large jar on top as obstacle.
+I put some kibble on the bottom of the basket and then I put a large jar on top as obstacle.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABz1mIOfKz7V8OJf9iFnLlQa/aktivointi/minitehtavia/DS15125-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAATKqIDmUW-8FWT9wkEwVPva/aktivointi/minitehtavia/DS15125.jpg)
 

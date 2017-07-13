@@ -23,7 +23,7 @@ If you are going to do this game with an empty Pringles tube you need to cut out
 
 When the tube is finished you still need that small piece of cardboard or carton. Start with a thin and large piece of cardboard and make the game harder by moving to a thicker and smaller piece when your dog has learned the game.
 
-For this game you should use any dry treats or just kibbles so that the treats fall easily and won't get stuck on the cardboard.
+For this game you should use any dry treats or just kibble so that the treats fall easily and won't get stuck on the cardboard.
 
 Miki learned this game in a couple of seconds. After a few tries I changed the cardboard to a thicker one so that it was harder to pull out. Then after a couple of tries I cut the cardboard so small that only a small part of it was visible when it was in place.
 

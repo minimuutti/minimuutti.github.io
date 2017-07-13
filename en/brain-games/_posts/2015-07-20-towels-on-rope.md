@@ -10,9 +10,9 @@ redirect_from:
 ---
 Rope toy brings new elements to towel games.
 
-I put some kibbles inside three towels and I tied the towels onto a large rope toy. You can use other treats as well but I recommend using dry treats with the towels.
+I put some kibble inside three towels and I tied the towels onto a large rope toy. You can use other treats as well but I recommend using dry treats with the towels.
 
-It took Miki about 3 minutes to get all the kibbles out.
+It took Miki about 3 minutes to get all the kibble out.
 
 ---
 

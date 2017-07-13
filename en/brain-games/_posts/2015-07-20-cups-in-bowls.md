@@ -11,7 +11,7 @@ redirect_from:
 
 These games are great because you can modify them almost endlessly.
 
-For this game you need at least two different size of cups, bowls, jars or yoghurt cups that fit inside one another. The tighter the fit the harder the game will be. I used kibbles for these games, but you can use any small treats your dog likes.
+For this game you need at least two different size of cups, bowls, jars or yoghurt cups that fit inside one another. The tighter the fit the harder the game will be. I used kibble for these games, but you can use any small treats your dog likes.
 
 Here I’ve described some of the variations we have done with the cups. In these games I’ve used Ikea’s Kalas cups and bowls, paper cups and shallow yoghurt cups.
 
@@ -21,7 +21,7 @@ At some point Miki figured out that it’s faster to get the treats out by lifti
 
 ### Game 1
 
-I put some kibbles into each yoghurt cup and then I put the Kalas bowls as obstacles on top of them face down. On the floor it took Miki two minutes to get all the kibbles out and when I put them into the cardboard box it took Miki about four minutes.
+I put some kibble into each yoghurt cup and then I put the Kalas bowls as obstacles on top of them face down. On the floor it took Miki two minutes to get all the kibble out and when I put them into the cardboard box it took Miki about four minutes.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD9y9Rx-UWzrxRa1P2KyBwDa/aktivointi/kupit-kulhoissa/DSC43157-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABF5cpoyBPAFOPNEWSK-Dg2a/aktivointi/kupit-kulhoissa/DSC43157.jpg)
 
@@ -35,7 +35,7 @@ I put some kibbles into each yoghurt cup and then I put the Kalas bowls as obsta
 
 ### Game 2
 
-I put some kibbles into the bowls and then I put yoghurt cups as obstacles on top of them face down. On the floor it took Miki two minutes to get all the kibbles out and when I put them into the cardboard box it took Miki about four minutes.
+I put some kibble into the bowls and then I put yoghurt cups as obstacles on top of them face down. On the floor it took Miki two minutes to get all the kibble out and when I put them into the cardboard box it took Miki about four minutes.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAIcHdmRNP992p8QlkB9EqSa/aktivointi/kupit-kulhoissa/DSC43086-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAoWBotWnzlLz9Dy4GGe60Ca/aktivointi/kupit-kulhoissa/DSC43086.jpg)
 
@@ -47,7 +47,7 @@ I put some kibbles into the bowls and then I put yoghurt cups as obstacles on to
 
 ### Game 3
 
-I put some kibbles into the plastic bowls and then I stacked the yoghurt cups as obstacles on top of them. On the floor it took Miki about a minute to get all the kibbles out and when I put them into the cardboard box it took Miki about three minutes.
+I put some kibble into the plastic bowls and then I stacked the yoghurt cups as obstacles on top of them. On the floor it took Miki about a minute to get all the kibble out and when I put them into the cardboard box it took Miki about three minutes.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADl47h2y6JrUYSE4AOyX1Lta/aktivointi/kupit-kulhoissa/DSC43584-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABZjbJ9WfMnttxdGZoLVfi2a/aktivointi/kupit-kulhoissa/DSC43584.jpg)
 
@@ -57,7 +57,7 @@ I put some kibbles into the plastic bowls and then I stacked the yoghurt cups as
 
 ### Game 4
 
-I put some kibbles into the plastic cups and then I stacked the paper cups as obstacles on top of them. On the floor it took Miki about two minutes to get all the kibbles out and when I put them into the cardboard box it took Miki about four minutes.
+I put some kibble into the plastic cups and then I stacked the paper cups as obstacles on top of them. On the floor it took Miki about two minutes to get all the kibble out and when I put them into the cardboard box it took Miki about four minutes.
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD-dXmEpymIur58zqcPTXiLa/aktivointi/kupit-kulhoissa/DSC44000-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-JtUUTkzzskw4EOYHgJBxa/aktivointi/kupit-kulhoissa/DSC44000.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA38infQ95IdYSde1560Ifua/aktivointi/kupit-kulhoissa/DSC44092-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAeGwEH8yz1FwVhahyBqTT8a/aktivointi/kupit-kulhoissa/DSC44092.jpg)
@@ -68,7 +68,7 @@ I put some kibbles into the plastic cups and then I stacked the paper cups as ob
 
 ### Game 5
 
-I put some kibbles into the paper cups and then I pushed the plastic cups inside them as obstacles. It took Miki about 2 minutes to get all the kibbles out.
+I put some kibble into the paper cups and then I pushed the plastic cups inside them as obstacles. It took Miki about 2 minutes to get all the kibble out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACH5167RbE52VaXar_Fh_7aa/aktivointi/kupit-kulhoissa/DSC48549-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADwj0doV7r9eH3sViGjcIy_a/aktivointi/kupit-kulhoissa/DSC48549.jpg)
 
@@ -76,13 +76,13 @@ I put some kibbles into the paper cups and then I pushed the plastic cups inside
 
 ### Game 6
 
-I put as many plastic cups and bowls face down on the bottom of the cardboard box that could fit in there and then I put a kibble in every other cup or bowl. It took Miki about two minutes to find all the kibbles.
+I put as many plastic cups and bowls face down on the bottom of the cardboard box that could fit in there and then I put a kibble in every other cup or bowl. It took Miki about two minutes to find all the kibble.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADK3mypju-NvwZ2XWQEf9HEa/aktivointi/kupit-kulhoissa/DSC43821-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA4NgY6QIMCk6FBeeFEENrJa/aktivointi/kupit-kulhoissa/DSC43821.jpg)
 
 ### Game 7
 
-I put as many plastic cups and bowls on the bottom of the cardboard box that could fit in there. Then I put some kibbles in each cup and then I put yoghurt cups and paper cups on top of them as obstacles. It took Miki about four minutes to find all the kibbles.
+I put as many plastic cups and bowls on the bottom of the cardboard box that could fit in there. Then I put some kibble in each cup and then I put yoghurt cups and paper cups on top of them as obstacles. It took Miki about four minutes to find all the kibble.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACM3d_24q7opOAMlL1Md3dCa/aktivointi/kupit-kulhoissa/DSC44149-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB7dIFEx_ql0u7JDhlyLftqa/aktivointi/kupit-kulhoissa/DSC44149.jpg)
 

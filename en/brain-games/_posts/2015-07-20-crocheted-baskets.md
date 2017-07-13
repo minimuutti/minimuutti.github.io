@@ -17,11 +17,11 @@ I crocheted these baskets with two yarns to make them strong. My blue basket is 
 
 The baskets can be frightening to some dogs as they need to put their head into the dark basket. That's why you should start these games with the easiest one, as I did with Miki.
 
-First I rolled the sides of the bigger basket down, opened it wide and then I put a couple of kibbles inside for Miki to search. Each time we played with the basket, I made it taller and taller until I finally gave the basket to Miki without rolling the sides down at all.
+First I rolled the sides of the bigger basket down, opened it wide and then I put a couple of kibble inside for Miki to search. Each time we played with the basket, I made it taller and taller until I finally gave the basket to Miki without rolling the sides down at all.
 
 You can make all of these games harder if you put some soft of round obstacles in the baskets with the treats. I've used some crocheted [corals](/en/brain-games/corals/) and tennisballs as obstacles.
 
-All these games were easy for Miki and it took him only from secons to under a minute to get the kibbles out each time.
+All these games were easy for Miki and it took him only from secons to under a minute to get the kibble out each time.
 
 ###### Game 1: Starting easy...
 
@@ -41,7 +41,7 @@ All these games were easy for Miki and it took him only from secons to under a m
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABm5mMd6tEy2L88m1ByPdsea/aktivointi/pussukat/DS01393-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC5nrGSlUg8Ghf0KaJ5NiQaa/aktivointi/pussukat/DS01393.jpg)
 
-###### Game 4: I rolled the sides inwards and hide the kibbles in the sides
+###### Game 4: I rolled the sides inwards and hide the kibble in the sides
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADMwXR0NxL2M3NNU2A5Hpt-a/aktivointi/pussukat/DS01433-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC6-FZo8H8g9SRbtxadZlFZa/aktivointi/pussukat/DS01433.jpg)
 

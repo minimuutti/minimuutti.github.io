@@ -69,9 +69,9 @@ Miki found all the treats in two minutes.
 
 ### Game 7
 
-I rolled 2 large towels and 5 small towels and I put some kibbles inside the rolls. Then I placed the towel rolls quite tightly into a plastic container.
+I rolled 2 large towels and 5 small towels and I put some kibble inside the rolls. Then I placed the towel rolls quite tightly into a plastic container.
 
-It took Miki about three minutes to find all the kibbles.
+It took Miki about three minutes to find all the kibble.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACe6tQtP5dhtCBIw4EPEZuOa/aktivointi/pyyhelaatikko/DS05276-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABF9V57mOKEn9vrfR2qRaAea/aktivointi/pyyhelaatikko/DS05276.jpg)
 

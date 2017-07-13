@@ -17,9 +17,9 @@ I took all pages out from two magazines and removed the staples. Then I rolled e
 
 I made over a hundred rolls, but the quantity depends on the box you are using, because the goal is to fill the box with the rolls.
 
-I laid the rolls into the box when the box was lying on it's side so the rolls didn’t fell over. When the box was full, I placed it on the floor facing up and sprinkled about 2/3 cup of kibbles into the box.
+I laid the rolls into the box when the box was lying on it's side so the rolls didn’t fell over. When the box was full, I placed it on the floor facing up and sprinkled about 2/3 cup of kibble into the box.
 
-On the first time it took Miki over 10 minutes to find all the kibbles.
+On the first time it took Miki over 10 minutes to find all the kibble.
 
 ---
 

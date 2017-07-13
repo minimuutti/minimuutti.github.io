@@ -6,14 +6,14 @@ image:
   teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACclW0RmwjFQjR26QroOi_Ga/aktivointi/nappulat-poydan-alla/DSC29490-245px.jpg
   thumb:
 redirect_from:
-  - /en/activation/kibbles-under-the-kitchen-table
+  - /en/activation/kibble-under-the-kitchen-table
 ---
 
-Throw the kibbles under the kitchen table and under the chairs. It may sound "too easy", but it's not.
+Throw the kibble under the kitchen table and under the chairs. It may sound "too easy", but it's not.
 
 When you put the chairs tight under the table, there will be tight space in between, so the dog really needs to circle the table multiple times and needs to get down and crawl under the chairs to get his kibble.
 
-It takes Miki about two to three minutes to get all the kibbles. And his morning gymnastic exercises are done at the same time :D
+It takes Miki about two to three minutes to get all the kibble. And his morning gymnastic exercises are done at the same time :D
 
 ---
 

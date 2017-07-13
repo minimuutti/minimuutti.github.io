@@ -13,9 +13,9 @@ We got this basket full of delicacies as a christmas present, but it soon found 
 
 You can put any toys or other items in the basket as obstacles, as long as they are either soft or rounded, so your dog doens't hurt his nose while plowing in the basket. You should also check the bottom of the basket for any sharp spikes and put some tape on top of them if necessary.
 
-I used only kibbles in these games, but you can use any dry treats.
+I used only kibble in these games, but you can use any dry treats.
 
-The single games were relatively easy for Miki. However he needed to think how to get the kibbles out, because we played with this basket about 20 minutes altering the items all the time.
+The single games were relatively easy for Miki. However he needed to think how to get the kibble out, because we played with this basket about 20 minutes altering the items all the time.
 
 ###### Game 1: Tennis balls
 

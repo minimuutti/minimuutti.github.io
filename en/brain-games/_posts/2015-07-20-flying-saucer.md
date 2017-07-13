@@ -15,7 +15,7 @@ First I cut a small hole in the side of one plate. Then I put the plates against
 
 This game was relatively hard for Miki, so I suggest that you do two or three holes in the plates instead of just one.
 
-It took Miki about 5 minutes to get the kibbles out.
+It took Miki about 5 minutes to get the kibble out.
 
 ---
 

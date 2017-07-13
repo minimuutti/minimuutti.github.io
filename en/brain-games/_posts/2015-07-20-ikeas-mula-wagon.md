@@ -16,7 +16,7 @@ We have used this versatile Ikea's Mula wagon quite a lot.
 
 I put a slice of cheese on the bottom of the toy and then put the blocks back into the wagon. It took Miki about three minutes to get the blocks out of the way. At first you can take one block out before giving it to your dog, so that is easier for the dog to slide or to lift the remaining blocks out. The wheels on the wagon make this game harder, because it's not as easy to move and lift those blocks when the wagon is moving out.
 
-You can also play this game with kibbles. Just take one or two blocks out make some gaps in between the remaining blocks and then sprinkle some kibbles in the gaps.
+You can also play this game with kibble. Just take one or two blocks out make some gaps in between the remaining blocks and then sprinkle some kibble in the gaps.
 
 I also stacked the blocks to make a small tower and hid some cheese in it. You can also use the blocks as obstacles for other games as well.
 

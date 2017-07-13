@@ -35,7 +35,7 @@ You can also make [paper balls](/en/brain-games/small-games/#paperballs) and fil
 
 ##### Game 3:
 
-For this game you need at least two similar cartons. I opened three cartons, put some kibbles between them and then I placed them on top of each other. The cartons fit quite tightly to each other and the package is quite durable.
+For this game you need at least two similar cartons. I opened three cartons, put some kibble between them and then I placed them on top of each other. The cartons fit quite tightly to each other and the package is quite durable.
 
 It took Miki about 3 minutes to get the treats out.
 
@@ -79,7 +79,7 @@ I've also given these plastic egg cartons to Miki. If your dog tends to eat some
 
 You need a larger carton, for example a plastic tray from easter egg package for these games.
 
-At first I turned the tray upside down and I put some kibbles on the holes of the tray. Later on I put small corals as obstacles. Learn how to crochet corals in [here](/en/brain-games/corals/).
+At first I turned the tray upside down and I put some kibble on the holes of the tray. Later on I put small corals as obstacles. Learn how to crochet corals in [here](/en/brain-games/corals/).
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACkfeb554LbhYjszkVwlIkCa/aktivointi/kananmunakotelot/DS10446_-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB41s8Se8wHakPMOOmHiJsya/aktivointi/kananmunakotelot/DS10446_.jpg)
 

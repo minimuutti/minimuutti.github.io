@@ -15,11 +15,11 @@ Chocolate is toxic to dogs, so before you give the calendar to your dog, it shou
 
 The calendars can also have foil in them and the foil should be completely removed, so that your dog doesn't accidentally eat it.
 
-I opened the calendar from the bottom and took the plastic tray out and I cleaned it properly. Then I put one kibble in each gap, pushed the tray back inside and I taped the calendar shut. You can also put the kibbles in the gaps after you have taped the calendar shut.
+I opened the calendar from the bottom and took the plastic tray out and I cleaned it properly. Then I put one kibble in each gap, pushed the tray back inside and I taped the calendar shut. You can also put the kibble in the gaps after you have taped the calendar shut.
 
-It took Miki about 2 minutes to get the kibbles out from a single calendar.
+It took Miki about 2 minutes to get the kibble out from a single calendar.
 
-If your dog destroys the flaps, you can still reuse the plastic tray. Just put kibbles or other small treats in the gaps and then tape a couple of pages from a magazine on top of it with masking tape.
+If your dog destroys the flaps, you can still reuse the plastic tray. Just put kibble or other small treats in the gaps and then tape a couple of pages from a magazine on top of it with masking tape.
 
 Or you can put some pate in the gaps and put the tray in the freezer for a couple of hours. It took Miki 12 minutes to lick the frozen tray clean.
 

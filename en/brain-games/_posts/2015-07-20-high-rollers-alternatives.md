@@ -39,9 +39,9 @@ I put one kibble in each cup but you can use any treats your dog likes.
 
 I punctured two holes on the middle of empty paper roll.
 
-The other end of the roll needed to be sealed so I taped a piece of tape onto the roll that was folded on itself so the kibbles wouldn't stick to it inside the roll.
+The other end of the roll needed to be sealed so I taped a piece of tape onto the roll that was folded on itself so the kibble wouldn't stick to it inside the roll.
 
-Then I pushed the pipe through the roll and tied it to the holder and added some kibbles.
+Then I pushed the pipe through the roll and tied it to the holder and added some kibble.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAYu-QPSVea2NXOaTjxvfZPa/aktivointi/tuubin-pyoritys/DS28850-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC6c07Bo5Xkdev4MeonXoUta/aktivointi/tuubin-pyoritys/DS28850.jpg)
 
@@ -73,4 +73,4 @@ This game was more difficult and I'm not sure did Miki have any clue what he was
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADcBr4n24-eQN_lveg2dfiua/aktivointi/tuubin-pyoritys/DS28763-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACZZao0wv6XEaVKlqZO4dwVa/aktivointi/tuubin-pyoritys/DS28763.jpg)
 
-Miki loved these games very much. When all kibbles were eaten and I was packing the game away, I could see the sadness in his face when he realized he couldn't continue playing the super fun games anymore :D
+Miki loved these games very much. When all kibble were eaten and I was packing the game away, I could see the sadness in his face when he realized he couldn't continue playing the super fun games anymore :D

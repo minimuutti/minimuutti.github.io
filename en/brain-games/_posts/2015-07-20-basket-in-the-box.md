@@ -11,9 +11,9 @@ redirect_from:
 
 For this one you only need two baskets or boxes and any treats or just kibble.
 
-The other box or basket needs to fit inside the other one. I used a plastic basket and a cardboard box. I put the kibbles on the bottom of the cardboard box and then I laid the basket face down on top of the treats. It took Miki under a minute to get the kibble out.
+The other box or basket needs to fit inside the other one. I used a plastic basket and a cardboard box. I put the kibble on the bottom of the cardboard box and then I laid the basket face down on top of the treats. It took Miki under a minute to get the kibble out.
 
-You can make this game harder, if you put the kibbles inside a scrunched towel. You can also put other small tasks in there, like a Kong toy, carton package or paper balls that has treats inside of them.
+You can make this game harder, if you put the kibble inside a scrunched towel. You can also put other small tasks in there, like a Kong toy, carton package or paper balls that has treats inside of them.
 
 I made harder version of this game by replacing the plastic basket with two relatively heavy plastic cases. These cases have round corners, so it was very difficult for Miki to grab or to move them.
 

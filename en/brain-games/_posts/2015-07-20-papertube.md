@@ -15,9 +15,9 @@ I put the pages side by side and taped them together on both sides. Then I put t
 
 The tube was shredded about in one minute.
 
-I also made a bigger tube with news paper. I rolled the sides on top of another and put some kibbles in between the layers. I secured every layer with masking tape and when the tube was finished, I secured both ends with masking tape to keep the kibbles in.
+I also made a bigger tube with news paper. I rolled the sides on top of another and put some kibble in between the layers. I secured every layer with masking tape and when the tube was finished, I secured both ends with masking tape to keep the kibble in.
 
-It took Miki about 10 minutes to get all the kibbles out.
+It took Miki about 10 minutes to get all the kibble out.
 
 ---
 

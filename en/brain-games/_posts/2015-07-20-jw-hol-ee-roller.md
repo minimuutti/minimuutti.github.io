@@ -15,9 +15,9 @@ The toy was quite expensive but I think it was money well spend. Here are some o
 
 ### Rolled hand towel
 
-I rolled a small hand towel into a long tube and I put some kibbles inside. Then I tucked the towel into the ball.
+I rolled a small hand towel into a long tube and I put some kibble inside. Then I tucked the towel into the ball.
 
-It took Miki under 10 minutes to get all the kibbles out.
+It took Miki under 10 minutes to get all the kibble out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADm6N2SsyjRYLz0kqStdROqa/aktivointi/jw-hol-ee-roller/DSC49928%20%282%29-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACaBNGEahUn0T_S8vflGYFQa/aktivointi/jw-hol-ee-roller/DSC49928%20%282%29.jpg)
 
@@ -29,9 +29,9 @@ It took Miki under 10 minutes to get all the kibbles out.
 
 ### Wired hand towels
 
-I rolled two small hand towels into long tubes and I put some kibbles inside them. Then I wired both towels throught the holes of the ball.
+I rolled two small hand towels into long tubes and I put some kibble inside them. Then I wired both towels throught the holes of the ball.
 
-It took Miki under 10 minutes to get all the kibbles out.
+It took Miki under 10 minutes to get all the kibble out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAChO6QeyPjVWHcBSqWkT4yCa/aktivointi/jw-hol-ee-roller/DSC49111-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAiZxMr_4JSuN5eJP2AiZZ7a/aktivointi/jw-hol-ee-roller/DSC49111.jpg)
 
@@ -43,9 +43,9 @@ It took Miki under 10 minutes to get all the kibbles out.
 
 ### Paper balls
 
-I made 10 paper balls, which I tucked inside the ball. I put some kibbles inside each paper ball and when I had tucked all the paper balls inside the ball, I put some extra treats in between the paper balls.
+I made 10 paper balls, which I tucked inside the ball. I put some kibble inside each paper ball and when I had tucked all the paper balls inside the ball, I put some extra treats in between the paper balls.
 
-It took Miki over ten minutes to get all the kibbles out.
+It took Miki over ten minutes to get all the kibble out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAbupQpQ2PCKTinHOwO9TKga/aktivointi/jw-hol-ee-roller/DSC50433-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABNxnQD4WWp-z_UoJ4YLcola/aktivointi/jw-hol-ee-roller/DSC50433.jpg)
 

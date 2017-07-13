@@ -15,11 +15,11 @@ For this one you need a small closable cardboard box size 8 x 8 cm (about 3" x 3
 
 You can do the box by your self like I did and for that you need a piece of cardboard size 24 x 32 cm (about 9,5" x 12,5"). I draw the cube on the cardboard (see the last picture) and cut it out with a modelling knife. I'm sure you can cut it with scissors too. I also cut a small hole in the middle for the treats to come out.
 
-After this I folded and taped the cube excluding one side, then I put the tennis ball in and taped the cube shut. 
+After this I folded and taped the cube excluding one side, then I put the tennis ball in and taped the cube shut.
 
-For this one you can use any dry treats that can fit through the hole, I used kibbles.
+For this one you can use any dry treats that can fit through the hole, I used kibble.
 
-The tennis ball was a good obstacle inside the cube and it took Miki about three minutes to get all the kibbles out.
+The tennis ball was a good obstacle inside the cube and it took Miki about three minutes to get all the kibble out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADusJdIf5NZcG4hN__2JzX8a/aktivointi/herkkukuutio/DSC37048-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADdo78Bcuiqe0BzM94_FFDTa/aktivointi/herkkukuutio/DSC37048.jpg)
 

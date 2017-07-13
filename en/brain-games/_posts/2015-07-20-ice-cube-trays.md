@@ -11,11 +11,11 @@ redirect_from:
 
 Ice cube trays are the best in those hot summer days, but you can also use them otherwise.
 
-You can make several different games with ice cube trays. I used ice cube trays that are made out of rubber, but you can also use those which are made out of plastic. You can use kibbles or any small treats for this game.
+You can make several different games with ice cube trays. I used ice cube trays that are made out of rubber, but you can also use those which are made out of plastic. You can use kibble or any small treats for this game.
 
-First I placed the trays on the floor and put one kibble in each hole. At the second time I put the trays on the floor upside down and sprinkled kibbles in the gaps. At the third time I put the trays upside down, but this time I hid the kibbles under the trays. At the fourth time I put the trays onto a cardboard box.
+First I placed the trays on the floor and put one kibble in each hole. At the second time I put the trays on the floor upside down and sprinkled kibble in the gaps. At the third time I put the trays upside down, but this time I hid the kibble under the trays. At the fourth time I put the trays onto a cardboard box.
 
-It took Miki about a minute each time to eat all the kibbles.
+It took Miki about a minute each time to eat all the kibble.
 
 ---
 

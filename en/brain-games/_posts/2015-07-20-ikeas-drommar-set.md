@@ -11,7 +11,7 @@ redirect_from:
 
 Slow feeding bowls are usually quite expensive but you can purchase this Drömmar pastry cutter set from Ikea for under six dollars.
 
-Just sprinkle some kibbles in the gaps and give it to your dog. Alternatively you can put some obstacles in the gaps as well. I've used these small [corals](/en/brain-games/corals/) because they fit perfectly into the small holes.
+Just sprinkle some kibble in the gaps and give it to your dog. Alternatively you can put some obstacles in the gaps as well. I've used these small [corals](/en/brain-games/corals/) because they fit perfectly into the small holes.
 
 If your dog feeds on wet food you can press the food on the bottom of the tray and then push the pieces on top.
 

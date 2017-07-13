@@ -13,13 +13,13 @@ This is like a giant version of a slow feeding foodbowl.
 
 For this game you need a cardboard box with a lid, masking tape and any kind of treats. You should choose a shallow cardboard box, so that your dog can reach the treats on the bottom when he puts his nose through those holes. The box we used, was 10 cm (4") high.
 
-I drew five circles in the bottom of the box and cut them open with a modelling knife. I'm sure you can cut them open with scissors too. Then I closed the lid and the sides with masking tape and sprinkled the kibbles in.
+I drew five circles in the bottom of the box and cut them open with a modelling knife. I'm sure you can cut them open with scissors too. Then I closed the lid and the sides with masking tape and sprinkled the kibble in.
 
-It took Miki about four minutes to eat all the kibbles.
+It took Miki about four minutes to eat all the kibble.
 
 You can make this game harder by placing a few tennis balls or other small balls as obstacles in the box with the treats.
 
-I cut three hearts out of a cardboard box for these [valentine's hearts](/en/brain-games/valentines-heart/), and the box was then perfect for this "peek a hole" game. First I put just kibbles on the box for Miki to search and later on I put some crocheted [corals](/en/brain-games/corals/) as obstacles.
+I cut three hearts out of a cardboard box for these [valentine's hearts](/en/brain-games/valentines-heart/), and the box was then perfect for this "peek a hole" game. First I put just kibble on the box for Miki to search and later on I put some crocheted [corals](/en/brain-games/corals/) as obstacles.
 
 You can also use any small balls as obstacles if you want.
 

@@ -28,7 +28,7 @@ I put a treat inside the roll and then pushed both ends shut. It took Miki like 
 
 #### Roll with paper balls
 
-I put a kibble or two in each paperball and then I put four paperballs in the roll. It took Miki about 2 minutes to get the kibbles out.
+I put a kibble or two in each paperball and then I put four paperballs in the roll. It took Miki about 2 minutes to get the kibble out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABi5-KQ6QRA7mNS8MFM1YBma/aktivointi/paperirullien-hylsyt/DSC52305-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADP1mCFzNJSetRRCrX5GA8Fa/aktivointi/paperirullien-hylsyt/DSC52305.jpg)
 
@@ -38,11 +38,11 @@ I put a kibble or two in each paperball and then I put four paperballs in the ro
 
 You can make this game in a couple of different ways. You can put some treats on the bottom of the box and then lay the rolls on top as obstacles. Or you can first put some treats inside the rolls before you put the rolls into the box. Or you can put the treats inside paper balls and stuff them into the rolls before you put them into the box. Or if this is still too easy for your dog, you can gift wrap the box with the rolls with any paper and secure it with masking tape.
 
-In the pictures below you can see I put the kibbles inside paper balls first, then stuffed the rolls with paper balls and finally gift wrapped the whole thing with covers from a magazine.
+In the pictures below you can see I put the kibble inside paper balls first, then stuffed the rolls with paper balls and finally gift wrapped the whole thing with covers from a magazine.
 
 If you have lots of empty rolls and a bigger box, you can put several layers of rolls into the box to give your dog more challenge.
 
-It took Miki about 15-20 minutes to get all the kibbles out.
+It took Miki about 15-20 minutes to get all the kibble out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACaG3vAW-ZZbHyz6MTpxvZLa/aktivointi/paperirullien-hylsyt/DS02988-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADFRy3kTDvL51HYoBXCHT7na/aktivointi/paperirullien-hylsyt/DS02988.jpg)
 
@@ -54,7 +54,7 @@ It took Miki about 15-20 minutes to get all the kibbles out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAzwkfl1z4OiXNM1mc-0QWma/aktivointi/paperirullien-hylsyt/DS02966-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD91STosiJE3t-QTLm1-Qw9a/aktivointi/paperirullien-hylsyt/DS02966.jpg)
 
-This time I put the kibbles on the bottom of the box and then laid three layers of rolls on top. It took Miki about three minutes to eat all the kibbles.
+This time I put the kibble on the bottom of the box and then laid three layers of rolls on top. It took Miki about three minutes to eat all the kibble.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB1g5sWhhvU0oomSZ5PPyDna/aktivointi/paperirullien-hylsyt/DS21262-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAANW8rC8tk9zINJyVCTnDI-a/aktivointi/paperirullien-hylsyt/DS21262.jpg)
 
@@ -76,9 +76,9 @@ You can put as many paper rolls as needed to fill a carton package. I put some k
 
 #### Rolls in a box II
 
-I placed about 40 rolls vertically into a box and then sprinkled some kibbles inside the rolls and between them.
+I placed about 40 rolls vertically into a box and then sprinkled some kibble inside the rolls and between them.
 
-It took Miki about 7 minutes to eat all the kibbles.
+It took Miki about 7 minutes to eat all the kibble.
 
 If you don't have enough empty rolls for this game, you can try this similar game "[Paper rolls in a box](/en/brain-games/paper-rolls-in-a-box/)".
 
@@ -146,9 +146,9 @@ You should only use magazines that bind using glue, not stapled. If you only hav
 
 #### Rolls in large cups
 
-I folded four rolls in half and pushed them into four large cups. Then I placed few kibbles into the rolls and also on the bottoms of the cups.
+I folded four rolls in half and pushed them into four large cups. Then I placed few kibble into the rolls and also on the bottoms of the cups.
 
-It took Miki about 2 minutes to get all the kibbles out.
+It took Miki about 2 minutes to get all the kibble out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACdd0xByeGwNNdV2BQ4isJEa/aktivointi/paperirullien-hylsyt/DS03116-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAucLab1pq1fcynPuBko2sga/aktivointi/paperirullien-hylsyt/DS03116.jpg)
 
@@ -160,11 +160,11 @@ It took Miki about 2 minutes to get all the kibbles out.
 
 #### Rolls in treat buckets
 
-I put three empty rolls in a dog treat bucket. Then I sprinkled some kibbles on the bottom and then I closed the package with a second treat bucket.
+I put three empty rolls in a dog treat bucket. Then I sprinkled some kibble on the bottom and then I closed the package with a second treat bucket.
 
 Three rolls fits just into the bucket, so you don't need to attach the buckets together because the rolls keep them nicely together.
 
-It took Miki just under a minute to get the kibbles out.
+It took Miki just under a minute to get the kibble out.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACQOSxhS1vxzm9w69SW3KMVa/aktivointi/paperirullien-hylsyt/DS12318-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADDrQA159iXFeGrJqUl7xRZa/aktivointi/paperirullien-hylsyt/DS12318.jpg)
 
@@ -184,7 +184,7 @@ You can use as many rolls as you like in this game, I used five rolls.
 
 I took one roll and marked the hight of the bookshelf's under section to it (mosaic picture 1). Then I cut the top off (mosaic picture 2). I used the first one as a model to cut the four other rolls.
 
-Then I took the off cuts and pushed one of them in each roll and I filled them with kibbles and some treats (mosaic pictures 3 and 4). Then I pushed the rolls under the bookshelf.
+Then I took the off cuts and pushed one of them in each roll and I filled them with kibble and some treats (mosaic pictures 3 and 4). Then I pushed the rolls under the bookshelf.
 
 If you reckon this game is too hard for your dog you can first make an easier version of this game. You can put the treats solely inside the rolls so they'll spread on the floor as soon as your dog digs the roll out.
 
@@ -206,7 +206,7 @@ It took Miki about 9 minutes to get all the treats out from five rolls.
 
 #### Fleece hexagon
 
-I cut a 17cm x 75cm piece of fleece. I put a few strings of semi-moist duck fillet and some kibbles on top of the fleece. Then I rolled the fleece into a long tube.
+I cut a 17cm x 75cm piece of fleece. I put a few strings of semi-moist duck fillet and some kibble on top of the fleece. Then I rolled the fleece into a long tube.
 
 I cut about a 70cm long gift wrap roll into six short rolls. Then I pushed five of these short rolls on top of the rolled fleece and with the sixth roll I connected the ends of the fleece making a hexagon out of it.
 
@@ -228,7 +228,7 @@ It took Miki about 6 minutes to get the treats out.
 
 I used two rolls and some thick packing paper for this game.
 
-First I put kibbles and some treats inside the rolls. Then I gift wrapped them with the paper and twisted the ends close. If you want to make the game harder you can secure the paper with some masking tape.
+First I put kibble and some treats inside the rolls. Then I gift wrapped them with the paper and twisted the ends close. If you want to make the game harder you can secure the paper with some masking tape.
 
 It took Miki about 4 minutes to get all the treats out.
 
@@ -278,7 +278,7 @@ Any rings left from the previous game can be used in this game. I put some small
 
 #### Tin foil roll
 
-I cut about 15 cm (5") long piece of empty tin foil roll. Then I took one sticky duck filet and one chicken filet and folded them in half (shaped like letter V). Then I tucked them into the midpoint of the roll.
+I cut about 15 cm (5") long piece of empty tin foil roll. Then I took one sticky duck fillet and one chicken fillet and folded them in half (shaped like letter V). Then I tucked them into the midpoint of the roll.
 
 It took Miki about 5 minutes to get the treats out.
 

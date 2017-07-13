@@ -45,7 +45,7 @@ At the first time it took Miki about 20 seconds to figure out that he needed to 
 
 If you don't have a Kong Genius toy you can make a similar game with the same size fleece as above and a small soda bottle.
 
-First I put a handful of kibbles and some small treats inside the bottle. Then I rolled one end of the fleece into a tight roll and pushed the fleece into the bottle but left about 7cm tail outside.
+First I put a handful of kibble and some small treats inside the bottle. Then I rolled one end of the fleece into a tight roll and pushed the fleece into the bottle but left about 7cm tail outside.
 
 If you have never given any bottles to your dog before, I recommend that you first give him just the [bottle](/en/brain-games/soda-bottle/) with some treats. You can then add the fleece later when your dog has learned how to get the treats out from the empty bottle.
 

@@ -15,7 +15,7 @@ I used three cardboard tubes and a cut from a plastic pipe for this game. You ca
 
 ### Game 1
 
-I put four tubes on the bottom of a cardboard box, so that the gap left in there was a bit wider than Miki's nose. Then I sprinkled a small handful of kibbles in between the tubes and in the sides too. You can use kibble or other small treats. The idea of this game is that the dog needs to roll the tubes to both directions to get all the kibble out.
+I put four tubes on the bottom of a cardboard box, so that the gap left in there was a bit wider than Miki's nose. Then I sprinkled a small handful of kibble in between the tubes and in the sides too. You can use kibble or other small treats. The idea of this game is that the dog needs to roll the tubes to both directions to get all the kibble out.
 
 It took Miki about a minute to find a small handful of kibble.
 

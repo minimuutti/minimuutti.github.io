@@ -11,7 +11,7 @@ redirect_from:
 
 Ikea's step stool can be used with medium size or large dogs. The stool has perfect grid to hide some treats when you turn it upside down.
 
-I used kibbles and some pieces of dried chicken fillet, but you can use any treats your dog likes.
+I used kibble and some pieces of dried chicken fillet, but you can use any treats your dog likes.
 
 You can also alternate the quantity ot the treats you hide. Sometimes I put treat in every hole and other times I put just 2-3 treats altogether.
 

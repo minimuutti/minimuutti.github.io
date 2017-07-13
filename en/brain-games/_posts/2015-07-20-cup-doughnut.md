@@ -11,11 +11,11 @@ redirect_from:
 
 You need at least 10 carton or plastic cups and some string or yarn.
 
-I took 15 paper cups and 75 cm (29") of yarn and wired the yarn through the bottom of the cups with a needle. Then I tied the beginning and the end of the yarn together as a circle and put one or two kibbles in each cup.
+I took 15 paper cups and 75 cm (29") of yarn and wired the yarn through the bottom of the cups with a needle. Then I tied the beginning and the end of the yarn together as a circle and put one or two kibble in each cup.
 
 It took Miki about 15 minutes to find all the treats.
 
-I made this game as cup tower too. I took 6 of these cups and wired them with a piece of yarn. I knotted the yarn in the midst cup and then I put the kibbles into the cups. Then I tightened the yarn and put another knot to the other end. It took about 5 minutes to destroy the cup tower.
+I made this game as cup tower too. I took 6 of these cups and wired them with a piece of yarn. I knotted the yarn in the midst cup and then I put the kibble into the cups. Then I tightened the yarn and put another knot to the other end. It took about 5 minutes to destroy the cup tower.
 
 ---
 

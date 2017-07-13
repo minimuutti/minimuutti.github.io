@@ -13,7 +13,7 @@ Miki absolutely loves to search for his food so I always try new obstacles with 
 
 We have this 20 meters (about 66 feet) long rope that we use as a leash when we go swimming or playing football with Miki. Miki is so pray driven, that we can’t let him roam free without a leash. We have so much rabbits, squirrels and geese around here that we are afraid that Miki gets hit by a car when he goes and chase them over the street.
 
-So I put this rope into a cardboard box and take the metal snap hook out. Then I divide Miki’s kibbles roughly in four portions and sprinkle them in the box.
+So I put this rope into a cardboard box and take the metal snap hook out. Then I divide Miki’s kibble roughly in four portions and sprinkle them in the box.
 
 ---
 
