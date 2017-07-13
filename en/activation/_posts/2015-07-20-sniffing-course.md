@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Sniffing is one of the most efficient way to drain your dog's energy. If your dog hasn't search much before, you need to start with only three items/obstacles.
+Sniffing is one of the most efficient way to drain your dog's energy. If your dog hasn't searched much before, you need to start with only three items/obstacles.
 
 Later on when your dog is used to searching you can use more items/obstacles.
 

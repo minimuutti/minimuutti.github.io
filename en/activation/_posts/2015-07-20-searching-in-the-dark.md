@@ -7,6 +7,8 @@ image:
   thumb:
 ---
 
+Dog really gets to use its nose when searching in the dark.
+
 Nose work is very efficient way to drain a dog's energy. In the autumn and winter we have long dark nights here in Finland. Sometimes when it’s dark outside I turn the lights out and just sprinkle the kibbles on the floor and let Miki use his nose to sniff out where the kibbles are.
 
 When I sprinkle about half a cup of kibbles on the floor, it takes Miki about 3 minutes to find them all.

@@ -8,7 +8,7 @@ image:
 
 ---
 
-In this game Miki is pulling a cart but slightly different way than normal sled dogs do :D
+In this game Miki is pulling a cart but in a slightly different way than normal sled dogs do :D
 
 The easier version of the game first. You need two packages, which the other one needs to fit inside the other. Then you need to attach a lever to the inner box with tape or glue (I used tape), from which the dog can pull the box out. Then put the treats in the inner box and let your dog figure out how to get the treats.
 
