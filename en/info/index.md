@@ -36,9 +36,10 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2017-07-14 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
+* 2017-07-14 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
+* 2017-07-14 New photos added in category; [Abstract & other](/en/photography/abstract-other/)
 * 2017-07-08 Updated [Tricks and commands that Miki knows](/en/tricks/tricks-and-cues-that-Miki-knows/)
-* 2017-07-01 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
-* 2017-06-29 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
 * 2017-06-27 New treat dispenser review; [Kong Gyro](/en/treat-dispensers/kong-gyro/)
 * 2017-07-27 Updated a treat dispenser review; [Trixie Snack Spinner](/en/treat-dispensers/trixie-snack-spinner/)
 * 2017-07-27 Updated a treat dispenser review; [Kong Traxx Extreme](/en/treat-dispensers/kong-traxx-extreme/)
@@ -54,7 +55,6 @@ New and recently updated posts:
 * 2017-05-26 New post added into the Blog; [How to desensitize a dog to nail clipping](/en/blog/how-to-desensitize-a-dog-to-nail-clipping/)
 * 2017-03-31 Updated activation post; [Towel lasagna](/en/brain-games/towel-lasagna/)
 * 2017-03-15 New post added into the Blog; [No food motivation?](/en/blog/no-food-motivation/)
-* 2017-03-06 New photos added in category; [Abstract & other](/en/photography/abstract-other/)
 * 1017-01-27 New post added into the Blog; [Dog body language: tail - a dog's state of mind](/en/blog/dog-body-language-tail-dogs-state-of-mind/)
 * 2017-01-11 New post added into the Blog; [Dog body language - calming signals](/en/blog/dog-body-language-calming-signals/)
 * 2017-01-07 New photos added in category; [Winter](/en/photography/finnish-nature/winter/)

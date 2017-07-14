@@ -37,9 +37,10 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 14.7.2017 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
+* 14.7.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
+* 14.7.2017 Lisätty uusia valokuvia kategoriaan; [Abstraktit ja muut](/valokuvaus/abstraktit-muut/)
 * 8.7.2017 Päivitetty [Mikin osaamat temput](/temput/mikin-osaamat-temput/)
-* 1.7.2017 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
-* 29.6.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
 * 27.6.2017 Lisätty uusi aktivointilelu; [Kong Gyro](/aktivointilelut/kong-gyro/)
 * 27.6.2017 Päivitetty aktivointilelu; [Trixie Snack Spinner](/aktivointilelut/trixie-snack-spinner/)
 * 27.6.2017 Päivitetty aktivointilelu; [Kong Traxx Extreme](/aktivointilelut/kong-traxx-extreme/)
@@ -55,7 +56,6 @@ Uudet ja viimeksi päivitetyt osiot:
 * 26.5.2017 Lisätty uusi postaus Blogiin; [Pelkääkö koirasi kynsien leikkaamista?](/blogi/pelkaako-koirasi-kynsien-leikkaamista/)
 * 31.3.2017 Päivitetty aktivointivinkki; [Pyyhelasagne](/aktivointi/pyyhelasagne/)
 * 15.3.2017 Lisätty uusi postaus Blogiin; [Koirani ei motivoidu ruokapalkasta](/blogi/koirani-ei-motivoidu-ruokapalkasta/)
-* 6.3.2017 Lisätty uusia valokuvia kategoriaan; [Abstraktit ja muut](/valokuvaus/abstraktit-muut/)
 * 27.1.2017 Lisätty uusi postaus Blogiin; [Koirien kehonkieli - häntä kertoo mielentilan](/blogi/koirien-kehonkieli-hanta-kertoo-mielentilan/)
 * 11.1.2017 Lisätty uusi postaus Blogiin; [Koirien kehonkieli - rauhoittavat signaalit](/blogi/koirien-kehonkieli-rauhoittavat-signaalit/)
 * 7.1.2017 Lisätty uusia valokuvia kategoriaan; [Talvi](/valokuvaus/luontokuvat/talvi/)
