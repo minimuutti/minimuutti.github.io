@@ -2,7 +2,7 @@
 title: "Brain games"
 layout: category
 redirect_from:
-  - /en/activation//
+  - /en/activation/
 ---
 
 Mental activation is an important factor in order to make dogs happy. In one experiment a group of dogs were given tasks to complete in order to get rewards. There was also a control group of dogs that were given the same rewards, but they didn't have a chance to work for them. Shortly, the experiment showed that the dogs that completed the tasks in order to get the rewards were much happier than the control group that got the rewards without any efforts.

@@ -2,7 +2,7 @@
 title: "Pictures of Finnish nature"
 layout: category
 redirect_from:
-  - /en/pictures-of-finnish-nature//
+  - /en/pictures-of-finnish-nature/
 ---
 
 Beautiful Finnish nature through the four seasons. You can find more pictures by clicking the small icons.
