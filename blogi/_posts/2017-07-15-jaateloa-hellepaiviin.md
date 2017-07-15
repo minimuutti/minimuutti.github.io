@@ -13,7 +13,7 @@ Tähän postiin on koottu vinkkejä ja reseptejä koirille sopiviin jäätelöih
 
 Koirat nauttivat kylmistä herkuista hellepäivinä siinä missä ihmisetkin, mutta tavallista jäätelöä koirille ei kannata antaa. Ihmisille tarkoitetut jäätelöt sisältävät paljon sokeria, lisäaineita ja lisäksi useimmissa jäätelöissä on laktoosia, joka ei sovi koirien vatsalle. Monissa ihmisten jäätelöissä on myös suklaata, joka on koirille myrkyllistä. Koirille kannattaakin aina valmistaa omat "jäätelöt" ja tähän postiin olen koonnut joitain vinkkejä ja reseptejä.
 
-Koirien jäätelöiden ei välttämättä tarvitse muistuttaa ihmisille tarkoitettua jäätelöä. Koirat eivät ajattele ruokaa samalla lailla, kuin ihmiset. Tarkoitan sitä, että koirilla ei siis ole mielikuvaa, että jäätelön pitäisi näyttää valkoiselta pallolta vohvelitötterön päällä :) Tämä tieto antaa nyt sinulle aivan vapaat kädet käyttää mielikuvitustasi koirallesi sopivan jäätelön valmistamiseen.
+Koirien jäätelöiden ei välttämättä tarvitse muistuttaa ihmisille tarkoitettua jäätelöä. Koirat eivät ajattele ruokaa samalla lailla, kuin ihmiset. Tarkoitan sitä, että koirilla ei siis ole mielikuvaa, että jäätelön pitäisi näyttää valkoiselta pallolta vohvelitötterön päällä :) Koirat eivät myöskään ajattele jäätelöä makeana ja hedelmäisenä kuten me, vaan tonnikala- tai maksajäätelö kuulostaa koirasi mielestä varmaan paremmalta. Tämä tieto antaa nyt sinulle aivan vapaat kädet käyttää mielikuvitustasi koirallesi sopivan jäätelön valmistamiseen.
 
 ### Koirille sopivat ja sopimattomat ruoka-aineet
 
@@ -115,11 +115,11 @@ Alla on kuvattu muutamia perusohjeita, joiden mukaan olen jäätelöitä valmist
 * 100g tuoretta bataattia
 * 50g tuoretta parsakaalia
 
-Laitoin ensin kattilaan vettä kiehumaan ja samalla laitoin lihapötkön sulamaan kuumaan veteen tiskialtaaseen. Lihapötkön ei tarvitse sulaa kokonaan, vaan riittää että se sulaa reunoilta vain sen verran, että lihan saa puristettua ulos muovikuoresta.
+Laitoin ensin kattilaan vettä kiehumaan ja samalla laitoin lihapötkön sulamaan kuumaan veteen tiskialtaaseen. Lihapötkön ei tarvitse sulaa kokonaan, vaan riittää että se sulaa reunoilta sen verran, että lihan saa puristettua ulos muovikuoresta.
 
 Laitoin jäiset lihat kiehuvaan veteen ja samalla pilkoin vihannekset erittäin pieniksi kuutioiksi, jotta ne kypsyivät nopeasti. Kun liha oli kiehunut hetken, lisäsin kasvikset ja annoin kiehua sen aikaa, että kasvikset pehmenivät. Sitten kaadoin osan keitinvedestä pois, mutta jätin sitä pari desiä kattilan pohjalle, jotta seos oli helpompi soseuttaa.
 
-Soseutin kattilan sisällön sauvasekoittimella aivan tasaiseksi mössöksi ja sen jälkeen laitoin kattilan jäähtymään tiskialtaaseen, jossa oli kylmää vettä.
+Soseutin kattilan sisällön sauvasekoittimella tasaiseksi mössöksi ja sen jälkeen laitoin kattilan jäähtymään tiskialtaaseen, jossa oli kylmää vettä.
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-nIkc2pm7TcIP4sftop_Ea/blogi/DS59323-800px.jpg)
 

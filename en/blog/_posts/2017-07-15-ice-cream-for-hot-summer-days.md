@@ -13,7 +13,7 @@ I've collected some tips and recipes for ice creams that are suitable for dogs.
 
 Dogs enjoy cold treats on hot summer days just like we do. Ice cream made for humans isn't suitable for dogs because it contains large amount of sugar, lactose and additives that are no good for dogs. In addition many ice creams contains chocolate which is toxic to dogs. I've always prepared dog friendly ice creams for Miki and now I have collected some tips and recipes to this post.
 
-Dogs don't think about food like we do. They don't think that ice cream means white and whirly soft ice on a cone. This knowledge allows you to prepare all kinds cold "ice cream" treats for your dog - and only sky is the limit.
+Dogs don't think about food like we do. They don't think that ice cream means white and whirly soft ice on a cone. Or they don't see ice cream as sweet and fruity as we do - tuna or liver ice cream sounds probably better. This knowledge allows you to prepare all kinds cold "ice cream" treats for your dog - and only sky is the limit.
 
 ### Foods that are and aren't okay for dogs
 
