@@ -36,6 +36,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2017-07-15 New post added into the Blog; [Ice cream for hot summer days](/en/blog/ice-cream-for-hot-summer-days/)
 * 2017-07-14 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
 * 2017-07-14 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
 * 2017-07-14 New photos added in category; [Abstract & other](/en/photography/abstract-other/)
