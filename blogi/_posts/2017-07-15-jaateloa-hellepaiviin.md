@@ -174,10 +174,16 @@ Hienosti Miki odotti tälläkin kertaa. Kun kaikki mahdolliset Kongit ja muotit 
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACj5nIs1UsZ9V1G-aw7dC0ea/blogi/DS59367-800px.jpg)
 
-Myöhemmin samana päivänä, kun jäätelöt olivat jäätyneet:
+Myöhemmin, kun jäätelöt olivat jäätyneet:
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACT3Lgd-fP1D48PvTrMH9Era/blogi/DS59405-800px.jpg)
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACEyPsEki59HEHoHbLrzTfOa/blogi/DS59413-800px.jpg)
+
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAD6uzZgzkNT0TvwGKdbZA8a/blogi/DS59422-800px.jpg)
+
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABhm3dvcoRXhCCQ1D1rPHWDa/blogi/DS59455-800px.jpg)
+
+![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACzb7ubreGvjX9B8F7tyjOta/blogi/DS59461-800px.jpg)
 
 15.7.2017
