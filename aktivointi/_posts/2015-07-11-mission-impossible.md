@@ -9,7 +9,7 @@ image:
 
 Tämä tehtävä vaikutti mielestäni helpolta, mutta osoittautui Mikille liian vaikeaksi.
 
-Halusin kuitenkin jakaa tämän teidän kanssa - koirathan ovat hyvin erilaisia ja mikä toiselle koiralle on vaikeaa voi olla toisille hyvinkin helppoa.
+Halusin kuitenkin jakaa tämän teidän kanssa - koirathan ovat hyvin erilaisia ja mikä yhdelle koiralle on vaikeaa voi olla toisille hyvinkin helppoa.
 
 Tarvitset tähän Kongin lisäksi vain pätkän narua. Narun tulee olla sen pituinen, että koirasi ylettää helposti liikuttelemaan lelua.
 
