@@ -37,6 +37,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 28.7.2017 Lisätty uusi aktivointivinkki; [Mission impossible](/aktivointi/mission-impossible/)
 * 15.7.2017 Lisätty uusi postaus Blogiin; [Jäätelöä hellepäiviin](/blogi/jaateloa-hellepaiviin/)
 * 14.7.2017 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
 * 14.7.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
