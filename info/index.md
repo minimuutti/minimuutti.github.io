@@ -37,10 +37,10 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 9.8.2017 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
+* 9.8.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
 * 28.7.2017 Lisätty uusi aktivointivinkki; [Mission impossible](/aktivointi/mission-impossible/)
 * 15.7.2017 Lisätty uusi postaus Blogiin; [Jäätelöä hellepäiviin](/blogi/jaateloa-hellepaiviin/)
-* 14.7.2017 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
-* 14.7.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
 * 14.7.2017 Lisätty uusia valokuvia kategoriaan; [Abstraktit ja muut](/valokuvaus/abstraktit-muut/)
 * 8.7.2017 Päivitetty [Mikin osaamat temput](/temput/mikin-osaamat-temput/)
 * 27.6.2017 Lisätty uusi aktivointilelu; [Kong Gyro](/aktivointilelut/kong-gyro/)

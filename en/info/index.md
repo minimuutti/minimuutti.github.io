@@ -36,10 +36,10 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2017-08-09 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
+* 2017-08-09 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
 * 2017-07-28 New brain game post; [Mission impossible](/en/brain-games/mission-impossible/)
 * 2017-07-15 New post added into the Blog; [Ice cream for hot summer days](/en/blog/ice-cream-for-hot-summer-days/)
-* 2017-07-14 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
-* 2017-07-14 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
 * 2017-07-14 New photos added in category; [Abstract & other](/en/photography/abstract-other/)
 * 2017-07-08 Updated [Tricks and commands that Miki knows](/en/tricks/tricks-and-cues-that-Miki-knows/)
 * 2017-06-27 New treat dispenser review; [Kong Gyro](/en/treat-dispensers/kong-gyro/)
