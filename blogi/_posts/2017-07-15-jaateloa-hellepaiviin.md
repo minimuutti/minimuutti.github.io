@@ -186,4 +186,10 @@ Myöhemmin, kun jäätelöt olivat jäätyneet:
 
 ![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACzb7ubreGvjX9B8F7tyjOta/blogi/DS59461-800px.jpg)
 
+Jäädytettyä märkäruokaa Ikean Drömmar muotissa:
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACHhEmOOnsSr1CofDy2QZXJa/aktivointi/ikean-drommar-muotit/DS60168-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAQ2uhciVo69P2_npHlpeKCa/aktivointi/ikean-drommar-muotit/DS60168.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADthbQ4GCY0yE_ogVO7Na0Ba/aktivointi/ikean-drommar-muotit/DS60181-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACcsBymqzAcNKEWD0kWCEwGa/aktivointi/ikean-drommar-muotit/DS60181.jpg)
+
 15.7.2017
