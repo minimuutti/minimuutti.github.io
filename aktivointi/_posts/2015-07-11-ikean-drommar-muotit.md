@@ -37,6 +37,12 @@ Muottisetti soveltuu yhtä hyvin myös märkäruuan kanssa käytettäväksi. Mä
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABw_3JKRGZyBMnfwZZOCbj3a/aktivointi/ajanvietetta-toipilaalle/DS37744-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACzwuI1ZerlPUNbWO-mtCbWa/aktivointi/ajanvietetta-toipilaalle/DS37744.jpg)
 
+Tässä on jäädytettyä märkäruokaa, joka sopii täydellisesti kuumiin kesäpäiviin. Tehtävän vaikeutta voi säädellä  käyttämällä erilaisia tai eri määrän muotteja:
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACHhEmOOnsSr1CofDy2QZXJa/aktivointi/ikean-drommar-muotit/DS60168-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAQ2uhciVo69P2_npHlpeKCa/aktivointi/ikean-drommar-muotit/DS60168.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADthbQ4GCY0yE_ogVO7Na0Ba/aktivointi/ikean-drommar-muotit/DS60181-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACcsBymqzAcNKEWD0kWCEwGa/aktivointi/ikean-drommar-muotit/DS60181.jpg)
+
 Näitä muotteja on käytetty myös tehtävässä [Pyyheraketit](/aktivointi/pyyheraketit/):
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACvR2uUOYlYtYvaw1Jb030ja/aktivointi/pyyheraketit/DS41785-800px.jpg)](/aktivointi/pyyheraketit/)
