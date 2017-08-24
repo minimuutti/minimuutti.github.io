@@ -24,3 +24,11 @@ You can also put some tennis balls or some other soft balls inside the toy with 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAad4vrs3JRQdqfsgFN1-nPa/aktivointilelut/kongit/DSC57921-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWzOtLflO4PwsHr64rEbdYa/aktivointilelut/kongit/DSC57921.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-1eJtz-X_hrj3IEKFUraxa/aktivointilelut/kongit/DS41310-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAxK7-0bJyTMWkcpKDb0Y4ca/aktivointilelut/kongit/DS41310.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA3fAauU1KzJXL-WIX0WZ6sa/aktivointilelut/kongit/DS60245-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADSgw44CC56wwzBChRENYLLa/aktivointilelut/kongit/DS60245.jpg)
+
+I’ve used this toy also in the game:
+
+[Confidence booster](/en/brain-games/confidence-booster/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWa2j6SMsU0-nGg7z4xjrKa/aktivointi/itsevarmuusbuusteri/DS33929-800px.jpg)](/en/brain-games/confidence-booster/)

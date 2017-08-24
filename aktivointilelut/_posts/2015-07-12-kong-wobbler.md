@@ -30,3 +30,11 @@ Voin lämpimästi suositella tätä lelua. Tämä kuvissa näkyvä lelu on meill
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAad4vrs3JRQdqfsgFN1-nPa/aktivointilelut/kongit/DSC57921-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWzOtLflO4PwsHr64rEbdYa/aktivointilelut/kongit/DSC57921.jpg)
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-1eJtz-X_hrj3IEKFUraxa/aktivointilelut/kongit/DS41310-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAxK7-0bJyTMWkcpKDb0Y4ca/aktivointilelut/kongit/DS41310.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA3fAauU1KzJXL-WIX0WZ6sa/aktivointilelut/kongit/DS60245-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADSgw44CC56wwzBChRENYLLa/aktivointilelut/kongit/DS60245.jpg)
+
+Tätä lelua on käytetty myös tehtävässä: 
+
+[Itsevarmuusbuusteri](/aktivointi/itsevarmuusbuusteri/)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWa2j6SMsU0-nGg7z4xjrKa/aktivointi/itsevarmuusbuusteri/DS33929-800px.jpg)](/aktivointi/itsevarmuusbuusteri/)
