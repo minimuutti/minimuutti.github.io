@@ -36,6 +36,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2017-08-31 New brain game post; [Coral mat](/en/brain-games/coral-mat/)
 * 2017-08-15 Updated brain game post; [Ikea's Drömmar set](/en/brain-games/ikeas-drommar-set/)
 * 2017-08-09 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
 * 2017-08-09 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)

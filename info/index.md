@@ -37,6 +37,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 31.8.2017 Lisätty uusi aktivointivinkki; [Korallimatto](/aktivointi/korallimatto/)
 * 15.8.2017 Päivitetty aktivointivinkki; [Ikean Drömmar muotit](/aktivointi/ikean-drommar-muotit/)
 * 9.8.2017 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
 * 9.8.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
