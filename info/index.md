@@ -37,10 +37,11 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 12.9.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
+* 12.9.2017 Lisätty uusia valokuvia kategoriaan; [Syksy](/valokuvaus/luontokuvat/syksy/)
 * 31.8.2017 Lisätty uusi aktivointivinkki; [Korallimatto](/aktivointi/korallimatto/)
 * 15.8.2017 Päivitetty aktivointivinkki; [Ikean Drömmar muotit](/aktivointi/ikean-drommar-muotit/)
 * 9.8.2017 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
-* 9.8.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
 * 28.7.2017 Lisätty uusi aktivointivinkki; [Mission impossible](/aktivointi/mission-impossible/)
 * 15.7.2017 Lisätty uusi postaus Blogiin; [Jäätelöä hellepäiviin](/blogi/jaateloa-hellepaiviin/)
 * 14.7.2017 Lisätty uusia valokuvia kategoriaan; [Abstraktit ja muut](/valokuvaus/abstraktit-muut/)
@@ -63,7 +64,6 @@ Uudet ja viimeksi päivitetyt osiot:
 * 27.1.2017 Lisätty uusi postaus Blogiin; [Koirien kehonkieli - häntä kertoo mielentilan](/blogi/koirien-kehonkieli-hanta-kertoo-mielentilan/)
 * 11.1.2017 Lisätty uusi postaus Blogiin; [Koirien kehonkieli - rauhoittavat signaalit](/blogi/koirien-kehonkieli-rauhoittavat-signaalit/)
 * 7.1.2017 Lisätty uusia valokuvia kategoriaan; [Talvi](/valokuvaus/luontokuvat/talvi/)
-* 7.1.2017 Lisätty uusia valokuvia kategoriaan; [Syksy](/valokuvaus/luontokuvat/syksy/)
 * 1.1.2017 Lisätty uusi postaus Blogiin; [Uudenvuoden ilotulitukset](/blogi/uudenvuoden-ilotulitukset/)
 * 29.12.2016 Lisätty uusi aktivointivinkki; [Lentävä lautanen II](/aktivointi/lentava-lautanen-ii/)
 * 29.12.2016 Lisätty uusi aktivointilelu; [Petprojekt Tretbal](/aktivointilelut/petprojekt-tretbal/)

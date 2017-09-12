@@ -36,10 +36,11 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2017-09-12 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
+* 2017-09-12 New photos added in category; [Autumn](/en/photography/finnish-nature/autumn/)
 * 2017-08-31 New brain game post; [Coral mat](/en/brain-games/coral-mat/)
 * 2017-08-15 Updated brain game post; [Ikea's Drömmar set](/en/brain-games/ikeas-drommar-set/)
 * 2017-08-09 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
-* 2017-08-09 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
 * 2017-07-28 New brain game post; [Mission impossible](/en/brain-games/mission-impossible/)
 * 2017-07-15 New post added into the Blog; [Ice cream for hot summer days](/en/blog/ice-cream-for-hot-summer-days/)
 * 2017-07-14 New photos added in category; [Abstract & other](/en/photography/abstract-other/)
@@ -62,7 +63,6 @@ New and recently updated posts:
 * 1017-01-27 New post added into the Blog; [Dog body language: tail - a dog's state of mind](/en/blog/dog-body-language-tail-dogs-state-of-mind/)
 * 2017-01-11 New post added into the Blog; [Dog body language - calming signals](/en/blog/dog-body-language-calming-signals/)
 * 2017-01-07 New photos added in category; [Winter](/en/photography/finnish-nature/winter/)
-* 2017-01-07 New photos added in category; [Autumn](/en/photography/finnish-nature/autumn/)
 * 2017-01-01 New post added into the Blog; [New years eve and the fireworks](/en/blog/new-years-eve-and-the-fireworks/)
 * 2016-12-29 New brain game post; [Flying saucer II](/en/brain-games/flying-saucer-ii/)
 * 2016-12-29 New treat dispenser review; [Petprojekt Tretbal](/en/treat-dispensers/petprojekt-tretbal/)
