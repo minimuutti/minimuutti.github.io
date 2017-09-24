@@ -290,4 +290,4 @@ It took Miki about 5 minutes to get the treats out.
 
 Empty paper rolls are also used in the [Dumbbells](/en/brain-games/dumbbells/) game.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/Palloputket/DS38807-800px.jpg)](/en/brain-games/dumbbells/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/palloputket/DS38807-800px.jpg)](/en/brain-games/dumbbells/)

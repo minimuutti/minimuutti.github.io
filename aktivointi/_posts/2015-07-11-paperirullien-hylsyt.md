@@ -297,4 +297,4 @@ Mikiltä kesti noin 5 minuuttia saada ne herkut ulos sieltä.
 
 Paperirullien hylsyjä on käytetty myös [Palloputket](/aktivointi/palloputket/) tehtävässä.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/Palloputket/DS38807-800px.jpg)](/aktivointi/palloputket/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/palloputket/DS38807-800px.jpg)](/aktivointi/palloputket/)
