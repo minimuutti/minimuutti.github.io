@@ -3,7 +3,7 @@ title: Dangers of retractable leashes
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADEvzKWT1wZWzs-Ei3VsIUVa/muut/Image_-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/muut/Image_-245px.jpg
   thumb:
 ---
 

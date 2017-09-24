@@ -3,7 +3,7 @@ title: "Kong Classic (Extreme)"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACW7Tq10K6ui_BfW85Y3W6Ga/aktivointilelut/kongit/DS37157-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS37157-245px.jpg
   thumb:
 ---
 
@@ -25,32 +25,32 @@ This classic toy is one of my favourite toys and it certainly is a versatile bor
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADs6X3jVTKCj0mIa3Ux9wWja/aktivointilelut/kongit/DS37157-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABhnRSLaX_vRnzwn85bUcIka/aktivointilelut/kongit/DS37157.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS37157-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABhnRSLaX_vRnzwn85bUcIka/aktivointilelut/kongit/DS37157.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD177-tPP7Bv2zCFS91_1_da/aktivointilelut/kongit/DSC16731_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADF6PI-JLkAoONYtFslr74da/aktivointilelut/kongit/DSC16731_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC16731_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADF6PI-JLkAoONYtFslr74da/aktivointilelut/kongit/DSC16731_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACijOdVL8Lw6PdxutHyU6DZa/aktivointilelut/kongit/DSC19223_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADbkl3kfuZhs-pmx8aq4jxfa/aktivointilelut/kongit/DSC19223_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC19223_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADbkl3kfuZhs-pmx8aq4jxfa/aktivointilelut/kongit/DSC19223_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADjXqaP1o2ICuCeiAtCprWca/aktivointilelut/kongit/DSC19253_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAwMQWFwdPu0YMLjEqwmVC6a/aktivointilelut/kongit/DSC19253_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC19253_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAwMQWFwdPu0YMLjEqwmVC6a/aktivointilelut/kongit/DSC19253_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACpnTsdiwZCyQ6ZzHdtR-wRa/aktivointilelut/kongit/DSC14116_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC3IwQozsDOm3fS-BjNzfLWa/aktivointilelut/kongit/DSC14116_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC14116_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC3IwQozsDOm3fS-BjNzfLWa/aktivointilelut/kongit/DSC14116_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACSvU-T9N-EddwzX3dEGK6ma/aktivointilelut/kongit/DSC30350_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQslRdrUkVJ7i3JiKyihMxa/aktivointilelut/kongit/DSC30350_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30350_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQslRdrUkVJ7i3JiKyihMxa/aktivointilelut/kongit/DSC30350_2.jpg)
 
 I've used this toy also in the following games:
 
 [Cones:](/en/brain-games/cones/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOZAAx7MN9lSDAZuzxKTyPa/aktivointi/totterot/DSC40378-800px.jpg)](/en/brain-games/cones/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/totterot/DSC40378-800px.jpg)](/en/brain-games/cones/)
 
 [Treat tube:](/en/brain-games/treat-tube/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADb_1jJmaZ2HAOTX1KXkhLDa/aktivointi/putkipiilo/DSC47917-800px.jpg)](/en/brain-games/treat-tube/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC47917-800px.jpg)](/en/brain-games/treat-tube/)
 
 [Stuffed panda:](/en/brain-games/stuffed-panda/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAovy7RC8sMOubZ18cCUyvxa/aktivointi/pehmopanda/DSC49437-800px.jpg)](/en/brain-games/stuffed-panda/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49437-800px.jpg)](/en/brain-games/stuffed-panda/)
 
 [Kongs in cups:](/en/brain-games/kongs-in-cups/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAPad9TgyJqORWgVqVVHFZ1a/aktivointi/kongit-mukeissa/DSC48179-800px.jpg)](/en/brain-games/kongs-in-cups/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC48179-800px.jpg)](/en/brain-games/kongs-in-cups/)

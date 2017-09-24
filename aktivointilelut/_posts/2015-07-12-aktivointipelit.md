@@ -3,7 +3,7 @@ title: "Aktivointipelit"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAOCch4RQDxUSbubex0Jy8Ra/aktivointi/paperikuplat/DS04272_-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04272_-245px.jpg
   thumb:
 ---
 
@@ -15,22 +15,22 @@ Sen sijaan, että ostaisit näitä kalliita pelejä kaupasta, niin kannattaa enn
 
 Saat tarkemmat tiedot auki klikkaamalla kuvia.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADfUNIAHfQ_ifzW8z_qPieua/aktivointi/flippailu/DS060441-245px.jpg)](/aktivointi/flippailu/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/flippailu/DS060441-245px.jpg)](/aktivointi/flippailu/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACQK2mvYzaxqwZfMqqjIxwYa/aktivointi/kiekon-pyoritys/DSC57855-245px.jpg)](/aktivointi/kiekon-pyoritys/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57855-245px.jpg)](/aktivointi/kiekon-pyoritys/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAq1zh9M8OuYs6Bh34ygcDqa/aktivointi/koydenveto/DSC55402-245px.jpg)](/aktivointi/koydenveto/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55402-245px.jpg)](/aktivointi/koydenveto/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADI4P-kdkEBcMd9BPC0Z5fda/aktivointi/kurkkaa-koloon/DSC34707-245px.jpg)](/aktivointi/kurkkaa-koloon/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kurkkaa-koloon/DSC34707-245px.jpg)](/aktivointi/kurkkaa-koloon/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB4zH1IfQTacQ8w7iielcHma/aktivointi/levysoittimet/DSC54548-245px.jpg)](/aktivointi/levysoittimet/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/levysoittimet/DSC54548-245px.jpg)](/aktivointi/levysoittimet/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAAPAVsXTgt2TELJBYBWlVwa/aktivointi/muki-tuubissa/DSC56649-245px.jpg)](/aktivointi/muki-tuubissa/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muki-tuubissa/DSC56649-245px.jpg)](/aktivointi/muki-tuubissa/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAOCch4RQDxUSbubex0Jy8Ra/aktivointi/paperikuplat/DS04272_-245px.jpg)](/aktivointi/paperikuplat/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04272_-245px.jpg)](/aktivointi/paperikuplat/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABqKBQyizl5fWo0UqaQTn7Ra/aktivointi/putoilevat-namit/DSC51366-245px.jpg)](/aktivointi/putoilevat-namit/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putoilevat-namit/DSC51366-245px.jpg)](/aktivointi/putoilevat-namit/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJHl-lgHbDCrXxK4Sb3W_ha/aktivointi/onginta/DS15029-245px.jpg)](/aktivointi/onginta/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/onginta/DS15029-245px.jpg)](/aktivointi/onginta/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABCbkb3rwCRjafwCwKeNKt0a/aktivointi/tuubin-pyoritys/DS23531-245px.jpg)](/aktivointi/tuubin-pyoritys/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tuubin-pyoritys/DS23531-245px.jpg)](/aktivointi/tuubin-pyoritys/)

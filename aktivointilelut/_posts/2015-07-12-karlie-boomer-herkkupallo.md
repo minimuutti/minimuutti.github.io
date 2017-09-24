@@ -3,7 +3,7 @@ title: "Karlie Boomer herkkupallo"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAUsSxXDuP_3O0LZgYphTZta/aktivointilelut/muut/DSC00904-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00904-245px.jpg
   thumb:
 ---
 
@@ -21,14 +21,14 @@ Suosittelen lämpimästi tätä Karlie Boomer herkkupalloa. Siitä kannattaa mak
 
 Näissä kuvissa Miki on reilun vuoden ikäinen ja se ihmettelee palloa ensimmäistä kertaa :)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABsA-UnSCboBOl75D625r-ma/aktivointilelut/muut/DSC00913_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACCalhj-wuH9neltQzPPkXVa/aktivointilelut/muut/DSC00913_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00913_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACCalhj-wuH9neltQzPPkXVa/aktivointilelut/muut/DSC00913_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAALPFzh2E_g0P9QzlyDO1HLa/aktivointilelut/muut/DSC00904_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABdH_Me9VWo2RqgkIcNno9pa/aktivointilelut/muut/DSC00904_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00904_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABdH_Me9VWo2RqgkIcNno9pa/aktivointilelut/muut/DSC00904_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADhdxtFuCnIzrN7tjPoCjsDa/aktivointilelut/muut/DSC00991_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADXuuC1msGdWfOudpAvUxKRa/aktivointilelut/muut/DSC00991_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00991_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADXuuC1msGdWfOudpAvUxKRa/aktivointilelut/muut/DSC00991_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA472FUHOOq-RecFuxj67jqa/aktivointilelut/muut/DSC00992_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADaGFf0_qtlWOzoyXGv47NSa/aktivointilelut/muut/DSC00992_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00992_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADaGFf0_qtlWOzoyXGv47NSa/aktivointilelut/muut/DSC00992_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABmioCh1OXg5iiFH-6xlCBIa/aktivointilelut/muut/DSC00996-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADWLXU8RKxPf-xnebAO8V5ra/aktivointilelut/muut/DSC00996.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00996-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADWLXU8RKxPf-xnebAO8V5ra/aktivointilelut/muut/DSC00996.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADMjc6IYHCHpuxBlNZvIozSa/aktivointilelut/muut/DS57995-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACulvquE99wFJHppU6qldO9a/aktivointilelut/muut/DS57995.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS57995-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACulvquE99wFJHppU6qldO9a/aktivointilelut/muut/DS57995.jpg)

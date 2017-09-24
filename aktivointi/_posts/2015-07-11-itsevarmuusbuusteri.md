@@ -3,7 +3,7 @@ title: "Itsevarmuusbuusteri"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAChMh_RR_9XyUcT3PTYLd5ga/aktivointi/itsevarmuusbuusteri/DS33929-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/itsevarmuusbuusteri/DS33929-245px.jpg
   thumb:
 ---
 
@@ -19,14 +19,14 @@ Mikäli koirasi vierastaa tötteröä, niin voit aloittaa palkitsemaan siitä et
 
 Miki on aina niin ahnas herkuille eikä yhtään aristellut laittaa kuonoaan tuonne, joten laitoin herkut syvälle Kongin sisään melkein heti.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABTnkb7-8YBOO77lb8Ri-G6a/aktivointi/itsevarmuusbuusteri/DS33934-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADTHSV4gbsc3qjm_unGI0j-a/aktivointi/itsevarmuusbuusteri/DS33934.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/itsevarmuusbuusteri/DS33934-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADTHSV4gbsc3qjm_unGI0j-a/aktivointi/itsevarmuusbuusteri/DS33934.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABe6FXrjimxgHINIjgDmkrva/aktivointi/itsevarmuusbuusteri/DS33936-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABlPhPswM3SsYWMWpehz6lSa/aktivointi/itsevarmuusbuusteri/DS33936.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/itsevarmuusbuusteri/DS33936-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABlPhPswM3SsYWMWpehz6lSa/aktivointi/itsevarmuusbuusteri/DS33936.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADrg-LgHotcmcD-KzAYhSfha/aktivointi/itsevarmuusbuusteri/DS33937-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACw6f1bKj8qW-wGn7HtbBpXa/aktivointi/itsevarmuusbuusteri/DS33937.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/itsevarmuusbuusteri/DS33937-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACw6f1bKj8qW-wGn7HtbBpXa/aktivointi/itsevarmuusbuusteri/DS33937.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADufBs-_EmPlOGCj53R0Tw5a/aktivointi/itsevarmuusbuusteri/DS33967-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAdGHUlO5-bBRZ2D99EbGLca/aktivointi/itsevarmuusbuusteri/DS33967.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/itsevarmuusbuusteri/DS33967-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAdGHUlO5-bBRZ2D99EbGLca/aktivointi/itsevarmuusbuusteri/DS33967.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWa2j6SMsU0-nGg7z4xjrKa/aktivointi/itsevarmuusbuusteri/DS33929-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAHHvYCkz1LqJCz_Zg5_Dpca/aktivointi/itsevarmuusbuusteri/DS33929.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/itsevarmuusbuusteri/DS33929-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAHHvYCkz1LqJCz_Zg5_Dpca/aktivointi/itsevarmuusbuusteri/DS33929.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAkC1dz8hw_1ZaFxlWLe9uEa/aktivointi/itsevarmuusbuusteri/DS33930-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACj8It1DQQg6lNWGVVUjEERa/aktivointi/itsevarmuusbuusteri/DS33930.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/itsevarmuusbuusteri/DS33930-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACj8It1DQQg6lNWGVVUjEERa/aktivointi/itsevarmuusbuusteri/DS33930.jpg)

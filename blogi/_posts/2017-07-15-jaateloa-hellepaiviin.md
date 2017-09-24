@@ -3,7 +3,7 @@ title: "Jäätelöä hellepäiviin"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABsRoqqMnX4yVsAXaMwz-6Ya/blogi/DSC26703_-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC26703_-245px.jpg
   thumb:
 ---
 
@@ -90,11 +90,11 @@ Mikin ruuille on varattu oma kattila ja kattilaksi on valittu sellainen, jossa v
 
 Liha voi yhtä hyvin olla joko tuoretta tai pakastettua. Lemmikkiliikkeissä myytävät pakastetut lihapötköt ovat tässä käteviä, koska ainakin meillä on pakastimessa niitä varalla aina muutamia:
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADK8QWdG-ZNYnntNiO3Rj7sa/blogi/DS59318-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59318-800px.jpg)
 
 Muista kuitenkin, ettei pakastettua raakaa lihaa saa sulattaa ja pakastaa uudelleen, ellei sitä kypsennä siinä välissä. Jos et halua itse alkaa keittämään lihaa, niin kannattaa kokeilla vaikkapa valmiiksi tuubiin pakattuja lihapateita, joita saa mm. [Zooplus](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/pikkuherkut/puruherkut/198443)) -verkkokaupasta:
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACHmalx048lec3mr1_oJGbxa/blogi/image_5554-800px.jpg)](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/pikkuherkut/puruherkut/198443))
+[![](https://b2.minimuutti.com/file/minimuutti-com/blogi/image_5554-800px.jpg)](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/pikkuherkut/puruherkut/198443))
 
 ### Minkälaiset muotit jäätelölle tulisi valita?
 
@@ -121,15 +121,15 @@ Laitoin jäiset lihat kiehuvaan veteen ja samalla pilkoin vihannekset erittäin 
 
 Soseutin kattilan sisällön sauvasekoittimella tasaiseksi mössöksi ja sen jälkeen laitoin kattilan jäähtymään tiskialtaaseen, jossa oli kylmää vettä.
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-nIkc2pm7TcIP4sftop_Ea/blogi/DS59323-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59323-800px.jpg)
 
 Kun seos oli jäähtynyt, niin jaoin sen useampiin erilaisiin muotteihin eri käyttötarkoituksia varten.
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADkmdHHuYCZx0plmkNIhxnra/blogi/DS59325-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59325-800px.jpg)
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-v1okIIk-vFeiB6RvnOHza/blogi/DS59342-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59342-800px.jpg)
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC_09oNHImgFz0sHpMBia2ra/blogi/DS59359-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59359-800px.jpg)
 
 ##### Tuore liha ja riisi
 
@@ -168,28 +168,28 @@ Tässä reseptissä voi ihan yhtä hyvin käyttää muitakin hedelmiä, kuten va
 
 Kuten jo aiemmin kerroinkin, niin Miki kyllä rakastaa ruokaa kuin ruokaa, mutta mikään ei voita juuri keitettyä lihaa. Minulla onkin aina apukokki keittiössä valmistaessani näitä jäätelöitä (tai oikeastaan mitä tahansa ruokaa) :) Apukokki tietää, että ainoa keino saada maistiaisia, on odottaa hiljaa maaten matolla. Jaloissa ei saa pyöriä eikä varsinkaan kerjätä, silloin jää ilman.
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABLpUhBxmKPAPfACxvySmMxa/blogi/DS59333-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59333-800px.jpg)
 
 Hienosti Miki odotti tälläkin kertaa. Kun kaikki mahdolliset Kongit ja muotit oli täytetty, niin kattilan pohjalla oli vielä pieni kauhallinen jäljellä. Miki oli kyllä maistiaisensa ansainnut.
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACj5nIs1UsZ9V1G-aw7dC0ea/blogi/DS59367-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59367-800px.jpg)
 
 Myöhemmin, kun jäätelöt olivat jäätyneet:
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACT3Lgd-fP1D48PvTrMH9Era/blogi/DS59405-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59405-800px.jpg)
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACEyPsEki59HEHoHbLrzTfOa/blogi/DS59413-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59413-800px.jpg)
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAD6uzZgzkNT0TvwGKdbZA8a/blogi/DS59422-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59422-800px.jpg)
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABhm3dvcoRXhCCQ1D1rPHWDa/blogi/DS59455-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59455-800px.jpg)
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACzb7ubreGvjX9B8F7tyjOta/blogi/DS59461-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59461-800px.jpg)
 
 Jäädytettyä märkäruokaa Ikean Drömmar muotissa:
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACHhEmOOnsSr1CofDy2QZXJa/aktivointi/ikean-drommar-muotit/DS60168-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAQ2uhciVo69P2_npHlpeKCa/aktivointi/ikean-drommar-muotit/DS60168.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-drommar-muotit/DS60168-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAQ2uhciVo69P2_npHlpeKCa/aktivointi/ikean-drommar-muotit/DS60168.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADthbQ4GCY0yE_ogVO7Na0Ba/aktivointi/ikean-drommar-muotit/DS60181-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACcsBymqzAcNKEWD0kWCEwGa/aktivointi/ikean-drommar-muotit/DS60181.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-drommar-muotit/DS60181-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACcsBymqzAcNKEWD0kWCEwGa/aktivointi/ikean-drommar-muotit/DS60181.jpg)
 
 15.7.2017

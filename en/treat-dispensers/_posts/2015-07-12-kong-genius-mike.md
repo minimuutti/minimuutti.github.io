@@ -3,7 +3,7 @@ title: "Kong Genius Mike"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABYDpq6qxyQVi4Fr45BnXjba/aktivointilelut/kongit/DSC17019-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC17019-245px.jpg
   thumb:
 ---
 Kong Genius Mike is a durable and versatile toy.
@@ -20,16 +20,16 @@ I have also tried some soft treats with this toy, like a slice of ham or a slice
 
 The toy you see in the pictures has been around for many years. Although we use the toy weekly it's still almost in a mint condition. Miki's not a mouthy dog but it amazes me that this toy still looks almost like a new one.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAgQuzdM9hISljyyDxFx3Rza/aktivointilelut/kongit/DSC35180-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABLv_onqxIrO719METLV2pva/aktivointilelut/kongit/DSC35180.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC35180-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABLv_onqxIrO719METLV2pva/aktivointilelut/kongit/DSC35180.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADonWyepiCHsvLzcOJLtt0Va/aktivointilelut/kongit/DSC35135-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADd6_BaeRi-ApnB1TEYPbOia/aktivointilelut/kongit/DSC35135.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC35135-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADd6_BaeRi-ApnB1TEYPbOia/aktivointilelut/kongit/DSC35135.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABYkwpjR3_OxLGTwhkXVqiUa/aktivointilelut/kongit/DSC35158-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABPGNIDfAEhypqQotYIzhola/aktivointilelut/kongit/DSC35158.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC35158-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABPGNIDfAEhypqQotYIzhola/aktivointilelut/kongit/DSC35158.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABTRctrOoOMlNbHFwmlqe6Ea/aktivointilelut/kongit/DSC17019_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAVpU2ixWHP_vn-RDRzr-FFa/aktivointilelut/kongit/DSC17019_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC17019_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAVpU2ixWHP_vn-RDRzr-FFa/aktivointilelut/kongit/DSC17019_2.jpg)
 
 I’ve used this toy also in the game:
 
 [Treat tube:](/en/brain-games/treat-tube/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACvGxg0oMZqHsIKH5yMZPi7a/aktivointi/putkipiilo/DSC47941-800px.jpg)](/en/brain-games/treat-tube/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC47941-800px.jpg)](/en/brain-games/treat-tube/)

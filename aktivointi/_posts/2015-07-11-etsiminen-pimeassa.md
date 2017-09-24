@@ -3,7 +3,7 @@ title: "Etsiminen pimeässä"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADCNyy51Ch-GfXImBVk_KA_a/aktivointi/etsiminen-pimeassa/DSC29829_-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsiminen-pimeassa/DSC29829_-245px.jpg
   thumb:
 ---
 
@@ -15,4 +15,4 @@ Leikimme Mikin kanssa myös sellaista etsintäleikkiä pimeässä asunnossa, ett
 
 Samaa leikkiä voi leikkiä myös ulkona. Siinä on sitten se vaara, että koira saattaa tulla syöneeksi ulkoa myös jotain muuta, kuin mitä sille on heitetty etsittäväksi. Sen vuoksi Mikille heitetään pimeällä ulkona nameja etsittäväksi vain harvoin. Mutta jos sinulla on oma piha, niin tätäkin kannattaa ehdottomasti kokeilla.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADw7Rz6cI_ZK08zTZQBvhIca/aktivointi/etsiminen-pimeassa/DSC29829_-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOl9pYL4Zbe8AzM--gLbhDa/aktivointi/etsiminen-pimeassa/DSC29829_.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsiminen-pimeassa/DSC29829_-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOl9pYL4Zbe8AzM--gLbhDa/aktivointi/etsiminen-pimeassa/DSC29829_.jpg)

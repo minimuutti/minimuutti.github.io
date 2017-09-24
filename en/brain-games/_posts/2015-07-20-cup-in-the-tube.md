@@ -3,7 +3,7 @@ title: "Cup in the tube"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAAPAVsXTgt2TELJBYBWlVwa/aktivointi/muki-tuubissa/DSC56649-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muki-tuubissa/DSC56649-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/cup-in-the-tube/
@@ -23,10 +23,10 @@ As the cup was in the tube quite tightly, I hold the tube from the other end aga
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD0e2MGqG8RMO3-mXP3FYQXa/aktivointi/muki-tuubissa/DSC56581-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADEY8bX6-EEDmoTKd_b0oi9a/aktivointi/muki-tuubissa/DSC56581.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muki-tuubissa/DSC56581-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADEY8bX6-EEDmoTKd_b0oi9a/aktivointi/muki-tuubissa/DSC56581.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB7cHsH8Ds8MLFc2s0aa9lGa/aktivointi/muki-tuubissa/DSC56597-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADzFioHr8mH3FBcQ15Kvhgia/aktivointi/muki-tuubissa/DSC56597.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muki-tuubissa/DSC56597-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADzFioHr8mH3FBcQ15Kvhgia/aktivointi/muki-tuubissa/DSC56597.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACzVMv0H769yZG5djyq0dija/aktivointi/muki-tuubissa/DSC56649-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACk0K48Sh3m6UXb8BgIv3PMa/aktivointi/muki-tuubissa/DSC56649.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muki-tuubissa/DSC56649-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACk0K48Sh3m6UXb8BgIv3PMa/aktivointi/muki-tuubissa/DSC56649.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABMPyErRrvCsmLJiZpllKp5a/aktivointi/muki-tuubissa/DSC56628-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADNrqGoGGjnRJZk6PnZhHXma/aktivointi/muki-tuubissa/DSC56628.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muki-tuubissa/DSC56628-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADNrqGoGGjnRJZk6PnZhHXma/aktivointi/muki-tuubissa/DSC56628.jpg)

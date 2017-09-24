@@ -3,7 +3,7 @@ title: "Box full of toys"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACnsTr55GZmVmK7fliyH-hXa/aktivointi/lelulaatikko/DSC30079-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelulaatikko/DSC30079-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/box-full-of-toys/
@@ -17,10 +17,10 @@ I usually put 10 to 15 pieces of wiener in the box, one at a time, and let Miki 
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA5f0Ivp8OwWDl_f8bVnkkba/aktivointi/lelulaatikko/DSC29380_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADNI0Yyb_6vyS0ATurH4DNpa/aktivointi/lelulaatikko/DSC29380_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelulaatikko/DSC29380_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADNI0Yyb_6vyS0ATurH4DNpa/aktivointi/lelulaatikko/DSC29380_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADwU2d0x1CzLg72gdlHaoYZa/aktivointi/lelulaatikko/DSC30079_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADCb4aelWBvcHCwuvcpywPTa/aktivointi/lelulaatikko/DSC30079_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelulaatikko/DSC30079_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADCb4aelWBvcHCwuvcpywPTa/aktivointi/lelulaatikko/DSC30079_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB0H4eX7fbVY2UV5VSpStCTa/aktivointi/lelulaatikko/DSC30084_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABrhlaVjkOc8chUZPfAMnNqa/aktivointi/lelulaatikko/DSC30084_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelulaatikko/DSC30084_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABrhlaVjkOc8chUZPfAMnNqa/aktivointi/lelulaatikko/DSC30084_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAGezevVUp--2S51NtMKCvpa/aktivointi/lelulaatikko/DSC26654_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADgGbUpC4e6942qZcaGrj3ia/aktivointi/lelulaatikko/DSC26654_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelulaatikko/DSC26654_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADgGbUpC4e6942qZcaGrj3ia/aktivointi/lelulaatikko/DSC26654_2.jpg)

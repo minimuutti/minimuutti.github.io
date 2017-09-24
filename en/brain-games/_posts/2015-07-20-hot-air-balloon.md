@@ -3,7 +3,7 @@ title: "Hot-air balloon"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA2T0oDmJB3Mgys7P0AjSMya/aktivointi/kuumailmapallo/DSC40554-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40554-245px.jpg
   thumb:
 
 redirect_from:
@@ -20,12 +20,12 @@ It took Miki about a minute to get the ball off.
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACTobep8Tf4KL7UZJkRwKvza/aktivointi/kuumailmapallo/DSC40547-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAiMorsN6nUEHn634QoOT27a/aktivointi/kuumailmapallo/DSC40547.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40547-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAiMorsN6nUEHn634QoOT27a/aktivointi/kuumailmapallo/DSC40547.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACbqqM-4U6K8moCs3-G56Kza/aktivointi/kuumailmapallo/DSC40575-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJY-AjQ--fm_OmNj_AD2p9a/aktivointi/kuumailmapallo/DSC40575.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40575-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJY-AjQ--fm_OmNj_AD2p9a/aktivointi/kuumailmapallo/DSC40575.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADEjscsROA-CeoDF3F5qVZsa/aktivointi/kuumailmapallo/DSC40554-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABYTvjqOH2KFBaM3yY9YaHEa/aktivointi/kuumailmapallo/DSC40554.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40554-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABYTvjqOH2KFBaM3yY9YaHEa/aktivointi/kuumailmapallo/DSC40554.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACaK0vatboV5-e5X31NJQAoa/aktivointi/kuumailmapallo/DSC40589-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA8OE6nT-jopIoFFQsMB9lVa/aktivointi/kuumailmapallo/DSC40589.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40589-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA8OE6nT-jopIoFFQsMB9lVa/aktivointi/kuumailmapallo/DSC40589.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAo0b4ENRtGTbuUCbNgeNkwa/aktivointi/kuumailmapallo/DSC40545-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAASxcV9MIoF7cZGd_XPAhtua/aktivointi/kuumailmapallo/DSC40545.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40545-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAASxcV9MIoF7cZGd_XPAhtua/aktivointi/kuumailmapallo/DSC40545.jpg)

@@ -3,7 +3,7 @@ title: "Kong Traxx Extreme"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABJDaO4VjgjMBqWRpm6A28ka/aktivointilelut/kongit/DSC34392-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34392-245px.jpg
   thumb:
 ---
 
@@ -21,34 +21,34 @@ Miki got this toy when he was under one year old. The toy practically still look
 
 Miki likes to play with this toy also without any food because it can be rolled on the floor and chased :)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADym-qigc0vB8CcuTkeEz06a/aktivointilelut/kongit/DSC34392-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADf3DjnWn5JwEkNIy1s7KUia/aktivointilelut/kongit/DSC34392.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34392-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADf3DjnWn5JwEkNIy1s7KUia/aktivointilelut/kongit/DSC34392.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACu9FxxeKLPrfaUIIPVBTZFa/aktivointilelut/kongit/DSC34394-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOs-TRZwKjnHUkKThzCiuka/aktivointilelut/kongit/DSC34394.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34394-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOs-TRZwKjnHUkKThzCiuka/aktivointilelut/kongit/DSC34394.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA53fq1Xi0Wukp89UhjvsDua/aktivointilelut/kongit/DSC30218_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB1yEeD9Z8lP6cGA_qPR7qca/aktivointilelut/kongit/DSC30218_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30218_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB1yEeD9Z8lP6cGA_qPR7qca/aktivointilelut/kongit/DSC30218_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABAz3kRlsaEFTMmSNT6H7RAa/aktivointilelut/kongit/DSC30333-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAmAdt7HqSHPUaqak1bXcMQa/aktivointilelut/kongit/DSC30333.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30333-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAmAdt7HqSHPUaqak1bXcMQa/aktivointilelut/kongit/DSC30333.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADGVCRfeWZibTsaXdgT16Ooa/aktivointilelut/kongit/DSC30289-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABVly_wbykszgnGpuPmz8W7a/aktivointilelut/kongit/DSC30289.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30289-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABVly_wbykszgnGpuPmz8W7a/aktivointilelut/kongit/DSC30289.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACEWUqjDG9bIHE2YQ-jqWOpa/aktivointilelut/kongit/DSC30282-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADq16JEDe1yiIwIx9IF4ylca/aktivointilelut/kongit/DSC30282.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30282-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADq16JEDe1yiIwIx9IF4ylca/aktivointilelut/kongit/DSC30282.jpg)
 
 I’ve used this toy also in these games:
 
 [Kong Traxx and towels:](/en/brain-games/kong-traxx-and-towels/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADE-txlKM-zMtbe0Dg3DFaoa/aktivointi/kong-traxx-ja-pyyhe/DSC57081-800px.jpg)](/en/brain-games/kong-traxx-and-towels/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kong-traxx-ja-pyyhe/DSC57081-800px.jpg)](/en/brain-games/kong-traxx-and-towels/)
 
 [Fleece wraps:](/en/brain-games/fleece-wraps/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD3-pPBBv4bmldatbgMzZj8a/aktivointi/fleecekiepit/DS06648-800px.jpg)](/en/brain-games/fleece-wraps/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecekiepit/DS06648-800px.jpg)](/en/brain-games/fleece-wraps/)
 
 [Toys on a stick:](/en/brain-games/toys-on-a-stick/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADKJKsDBn_QIru8kDvuUbO5a/aktivointi/lelut-tikussa/DS07913-800px.jpg)](/en/brain-games/toys-on-a-stick/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS07913-800px.jpg)](/en/brain-games/toys-on-a-stick/)
 
 [Toys combined:](/en/treat-dispensers/toys-combined/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACNRPAizIA9or6AtcYVWA8Ja/aktivointilelut/muut/DS11210-800px.jpg)](/en/treat-dispensers/toys-combined/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS11210-800px.jpg)](/en/treat-dispensers/toys-combined/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVdyKh5IiXBOlvKuKfkuwna/aktivointilelut/muut/DS11052-800px.jpg)](/en/treat-dispensers/toys-combined/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS11052-800px.jpg)](/en/treat-dispensers/toys-combined/)

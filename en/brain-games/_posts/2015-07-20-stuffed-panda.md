@@ -3,7 +3,7 @@ title: "Stuffed panda"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABC3P2esT6eQguQ5q-4koRSa/aktivointi/pehmopanda/DSC49366-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49366-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/stuffed-panda/
@@ -19,14 +19,14 @@ At the second time, I put kibble inside the panda and also inside a Kong toy. Th
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACw_N9br8x0tp4GJjaoldkja/aktivointi/pehmopanda/DSC49366-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAN6UzWzpqvobVBlLkAI_rxa/aktivointi/pehmopanda/DSC49366.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49366-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAN6UzWzpqvobVBlLkAI_rxa/aktivointi/pehmopanda/DSC49366.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACetFlSbszL8wv0VmTbOPIZa/aktivointi/pehmopanda/DSC49402-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABV0SNLLeLaPvhc8YhMNGdga/aktivointi/pehmopanda/DSC49402.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49402-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABV0SNLLeLaPvhc8YhMNGdga/aktivointi/pehmopanda/DSC49402.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAovy7RC8sMOubZ18cCUyvxa/aktivointi/pehmopanda/DSC49437-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAYnjCCBcR22lA1_wQaApQSa/aktivointi/pehmopanda/DSC49437.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49437-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAYnjCCBcR22lA1_wQaApQSa/aktivointi/pehmopanda/DSC49437.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABScPstDsGIaPqREQhf3Giua/aktivointi/pehmopanda/DSC49513-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC6vLxXtVdUgrNlmx5QNmfJa/aktivointi/pehmopanda/DSC49513.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49513-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC6vLxXtVdUgrNlmx5QNmfJa/aktivointi/pehmopanda/DSC49513.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAp7lYdTL40ipasvG17biGKa/aktivointi/pehmopanda/DSC49564-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACgijvQvSvLnDgA2UQ-RYYoa/aktivointi/pehmopanda/DSC49564.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49564-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACgijvQvSvLnDgA2UQ-RYYoa/aktivointi/pehmopanda/DSC49564.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAnl_RV4mW5MyldW3OszpEsa/aktivointi/pehmopanda/DSC49573-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA9-kugipwVWDaLz7-PUrq7a/aktivointi/pehmopanda/DSC49573.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49573-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA9-kugipwVWDaLz7-PUrq7a/aktivointi/pehmopanda/DSC49573.jpg)

@@ -3,7 +3,7 @@ title: "Kong Classic (Extreme)"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACW7Tq10K6ui_BfW85Y3W6Ga/aktivointilelut/kongit/DS37157-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS37157-245px.jpg
   thumb:
 ---
 
@@ -25,32 +25,32 @@ Joskus laitan leluun myös keskeltä puoliksi taitetun (V –kirjaimen mallisen)
 
 Tämä lelu on ehdoton suosikkini sen monikäyttöisyyden ja kestävyyden vuoksi.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADs6X3jVTKCj0mIa3Ux9wWja/aktivointilelut/kongit/DS37157-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABhnRSLaX_vRnzwn85bUcIka/aktivointilelut/kongit/DS37157.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS37157-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABhnRSLaX_vRnzwn85bUcIka/aktivointilelut/kongit/DS37157.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD177-tPP7Bv2zCFS91_1_da/aktivointilelut/kongit/DSC16731_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADF6PI-JLkAoONYtFslr74da/aktivointilelut/kongit/DSC16731_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC16731_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADF6PI-JLkAoONYtFslr74da/aktivointilelut/kongit/DSC16731_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACijOdVL8Lw6PdxutHyU6DZa/aktivointilelut/kongit/DSC19223_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADbkl3kfuZhs-pmx8aq4jxfa/aktivointilelut/kongit/DSC19223_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC19223_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADbkl3kfuZhs-pmx8aq4jxfa/aktivointilelut/kongit/DSC19223_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADjXqaP1o2ICuCeiAtCprWca/aktivointilelut/kongit/DSC19253_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAwMQWFwdPu0YMLjEqwmVC6a/aktivointilelut/kongit/DSC19253_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC19253_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAwMQWFwdPu0YMLjEqwmVC6a/aktivointilelut/kongit/DSC19253_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACpnTsdiwZCyQ6ZzHdtR-wRa/aktivointilelut/kongit/DSC14116_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC3IwQozsDOm3fS-BjNzfLWa/aktivointilelut/kongit/DSC14116_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC14116_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC3IwQozsDOm3fS-BjNzfLWa/aktivointilelut/kongit/DSC14116_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACSvU-T9N-EddwzX3dEGK6ma/aktivointilelut/kongit/DSC30350_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQslRdrUkVJ7i3JiKyihMxa/aktivointilelut/kongit/DSC30350_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30350_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQslRdrUkVJ7i3JiKyihMxa/aktivointilelut/kongit/DSC30350_2.jpg)
 
 Tätä lelua on käytetty myös seuraavissa tehtävissä:
 
 [Tötteröt:](/aktivointi/totterot/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOZAAx7MN9lSDAZuzxKTyPa/aktivointi/totterot/DSC40378-800px.jpg)](/aktivointi/totterot/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/totterot/DSC40378-800px.jpg)](/aktivointi/totterot/)
 
 [Putkipiilo:](/aktivointi/putkipiilo/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADb_1jJmaZ2HAOTX1KXkhLDa/aktivointi/putkipiilo/DSC47917-800px.jpg)](/aktivointi/putkipiilo/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC47917-800px.jpg)](/aktivointi/putkipiilo/)
 
 [Pehmopanda:](/aktivointi/pehmopanda/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAovy7RC8sMOubZ18cCUyvxa/aktivointi/pehmopanda/DSC49437-800px.jpg)](/aktivointi/pehmopanda/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49437-800px.jpg)](/aktivointi/pehmopanda/)
 
 [Kongit mukeissa:](/aktivointi/kongit-mukeissa/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAPad9TgyJqORWgVqVVHFZ1a/aktivointi/kongit-mukeissa/DSC48179-800px.jpg)](/aktivointi/kongit-mukeissa/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC48179-800px.jpg)](/aktivointi/kongit-mukeissa/)

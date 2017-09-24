@@ -3,7 +3,7 @@ title: "Reversed muffin tray"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAOCch4RQDxUSbubex0Jy8Ra/aktivointi/paperikuplat/DS04272_-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04272_-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/reversed-muffin-tray/
@@ -31,24 +31,24 @@ This game was easy for Miki and it took only couple of seconds before the first 
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD1VeFD_2y67DX4a6DaDGXRa/aktivointi/paperikuplat/DS04270-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACB98oSrzFsHBNTetVL_teva/aktivointi/paperikuplat/DS04270.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04270-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACB98oSrzFsHBNTetVL_teva/aktivointi/paperikuplat/DS04270.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC4VpfkSZWidt1RCa2jbt-Ma/aktivointi/paperikuplat/DS04272_-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAASyqmOW0wkT8HhyA1-v9Ooa/aktivointi/paperikuplat/DS04272_.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04272_-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAASyqmOW0wkT8HhyA1-v9Ooa/aktivointi/paperikuplat/DS04272_.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADAPIoFeDLTaablxQtcHahBa/aktivointi/paperikuplat/DS04286-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABiM9uEPcJKwBch7BAcaiHQa/aktivointi/paperikuplat/DS04286.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04286-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABiM9uEPcJKwBch7BAcaiHQa/aktivointi/paperikuplat/DS04286.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACW3m724f7nHT1Yu0GyktsEa/aktivointi/paperikuplat/DS04288-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACTzoKKrAGOIJ1f9SFM-63Ga/aktivointi/paperikuplat/DS04288.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04288-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACTzoKKrAGOIJ1f9SFM-63Ga/aktivointi/paperikuplat/DS04288.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACsT24MfcJb6c9an8zLCPZ7a/aktivointi/paperikuplat/DS04295-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA21ykBLjw-8qGSHztHajYNa/aktivointi/paperikuplat/DS04295.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04295-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA21ykBLjw-8qGSHztHajYNa/aktivointi/paperikuplat/DS04295.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA5zZLorhEQSvMRCTEf905ka/aktivointi/paperikuplat/DS04296-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABpOrP1EiaaA_0jv4pbq8EAa/aktivointi/paperikuplat/DS04296.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04296-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABpOrP1EiaaA_0jv4pbq8EAa/aktivointi/paperikuplat/DS04296.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADCfMNLlFlQXy2zUn7sGpW5a/aktivointi/paperikuplat/DS04345-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACh85_5vEf1nO_gf6P3lW6Oa/aktivointi/paperikuplat/DS04345.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04345-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACh85_5vEf1nO_gf6P3lW6Oa/aktivointi/paperikuplat/DS04345.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADvZAsTLyMEyRcmq_w86X90a/aktivointi/paperikuplat/Kollaasi_paperikuplat-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADROXKRBsZU-pD0-AH_f2cea/aktivointi/paperikuplat/Kollaasi_paperikuplat.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/Kollaasi_paperikuplat-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADROXKRBsZU-pD0-AH_f2cea/aktivointi/paperikuplat/Kollaasi_paperikuplat.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACp8GLVJ_RE4mM3hcGiM848a/aktivointi/paperikuplat/DS04264-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADYHqupe7jqcc1XFQ1ZdgWma/aktivointi/paperikuplat/DS04264.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04264-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADYHqupe7jqcc1XFQ1ZdgWma/aktivointi/paperikuplat/DS04264.jpg)
 
 The result :)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAroB8MgePVEHDF349ZMw50a/aktivointi/paperikuplat/DS04390-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAzKB-vXRzuj8cZ7kw815jaa/aktivointi/paperikuplat/DS04390.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04390-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAzKB-vXRzuj8cZ7kw815jaa/aktivointi/paperikuplat/DS04390.jpg)

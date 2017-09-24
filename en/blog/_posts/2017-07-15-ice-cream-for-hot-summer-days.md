@@ -3,7 +3,7 @@ title: "Ice cream for hot summer days"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABsRoqqMnX4yVsAXaMwz-6Ya/blogi/DSC26703_-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC26703_-245px.jpg
   thumb:
 ---
 
@@ -90,11 +90,11 @@ I've bought a separate cooking pot for Miki's foods and it's suitable to use wit
 
 The meat/poultry/fish can be fresh or frozen. In Finland you can buy frozen raw meat from pet stores and they usually have a good selection of them. I usually have a few of these in the freezer, just in case, because they are so convenient:
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADK8QWdG-ZNYnntNiO3Rj7sa/blogi/DS59318-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59318-800px.jpg)
 
 You should remember that you must not freeze again any products that are defrosted if you haven't cooked them thoroughly in between. If you don't want to boil the meat yourself you can always buy these ready made patés from Trixie:
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACHmalx048lec3mr1_oJGbxa/blogi/image_5554-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/image_5554-800px.jpg)
 
 ### What types of molds should you use?
 
@@ -118,15 +118,15 @@ Boil some water in a pot and add the frozen meat to a boiling water. Chop the ve
 
 I use a stick blender but you can use normal blender as well. When the mixture was smooth I put the hot pot into a sink with cold water to lower the temperature faster.
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-nIkc2pm7TcIP4sftop_Ea/blogi/DS59323-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59323-800px.jpg)
 
 When the mixture had cooled enough I divided it into various molds. This time I used Kong toys, two different ice cube trays and yoghurt cups.
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADkmdHHuYCZx0plmkNIhxnra/blogi/DS59325-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59325-800px.jpg)
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-v1okIIk-vFeiB6RvnOHza/blogi/DS59342-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59342-800px.jpg)
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC_09oNHImgFz0sHpMBia2ra/blogi/DS59359-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59359-800px.jpg)
 
 ##### Fresh meat and white rice
 
@@ -166,28 +166,28 @@ If your dog likes melon or other fruit, please feel free to alter the recipe.
 As I wrote before Miki sure does love all food, but nothing beats freshly cooked meat. That's why I always have a sous-chef helping in the kitchen when I prepare the ice creams (or any other food as a matter of fact) :)
 My sous-chef knows the only way to get samples is to quietly lay down and wait on the rug. He knows that circling in my feet or begging other ways are sure ways to get nothing.
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABLpUhBxmKPAPfACxvySmMxa/blogi/DS59333-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59333-800px.jpg)
 
 Miki waited like a pro this time. When I had filled all the Kongs, ice cube trays and empty cups available there was still a spoonful of the mixture left on the bottom of the pot. Miki sure had earned a sample so I gave him the well-earned leftovers.
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACj5nIs1UsZ9V1G-aw7dC0ea/blogi/DS59367-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59367-800px.jpg)
 
 Later on, when the ice creams were frozen:
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACT3Lgd-fP1D48PvTrMH9Era/blogi/DS59405-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59405-800px.jpg)
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACEyPsEki59HEHoHbLrzTfOa/blogi/DS59413-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59413-800px.jpg)
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAD6uzZgzkNT0TvwGKdbZA8a/blogi/DS59422-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59422-800px.jpg)
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABhm3dvcoRXhCCQ1D1rPHWDa/blogi/DS59455-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59455-800px.jpg)
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACzb7ubreGvjX9B8F7tyjOta/blogi/DS59461-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59461-800px.jpg)
 
 Frozen wet food in Ikea's Drömmar set:
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACHhEmOOnsSr1CofDy2QZXJa/aktivointi/ikean-drommar-muotit/DS60168-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAQ2uhciVo69P2_npHlpeKCa/aktivointi/ikean-drommar-muotit/DS60168.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-drommar-muotit/DS60168-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAQ2uhciVo69P2_npHlpeKCa/aktivointi/ikean-drommar-muotit/DS60168.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADthbQ4GCY0yE_ogVO7Na0Ba/aktivointi/ikean-drommar-muotit/DS60181-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACcsBymqzAcNKEWD0kWCEwGa/aktivointi/ikean-drommar-muotit/DS60181.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-drommar-muotit/DS60181-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACcsBymqzAcNKEWD0kWCEwGa/aktivointi/ikean-drommar-muotit/DS60181.jpg)
 
 15.7.2017

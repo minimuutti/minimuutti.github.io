@@ -3,7 +3,7 @@ title: "Köydenveto"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAq1zh9M8OuYs6Bh34ygcDqa/aktivointi/koydenveto/DSC55402-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55402-245px.jpg
   thumb:
 ---
 
@@ -29,24 +29,24 @@ Miki keksi tämän tehtävän todella nopeasti ja sai herkun ulos ensimmäisell�
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABm4ChXIrjcGZwPFDY085X-a/aktivointi/koydenveto/DSC55402-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC8rP6jBrGl3RCUB4j82Qa2a/aktivointi/koydenveto/DSC55402.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55402-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC8rP6jBrGl3RCUB4j82Qa2a/aktivointi/koydenveto/DSC55402.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAANeQly8cNCdLWCQ3Fp-7zna/aktivointi/koydenveto/DSC55407-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADLn9A0d0b2AEvUQMqwYoCMa/aktivointi/koydenveto/DSC55407.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55407-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADLn9A0d0b2AEvUQMqwYoCMa/aktivointi/koydenveto/DSC55407.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADZVTLo_fl91n6pF03nO_Dca/aktivointi/koydenveto/DSC55420-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACmJ3mAadKGDmqG46KBsYgZa/aktivointi/koydenveto/DSC55420.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55420-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACmJ3mAadKGDmqG46KBsYgZa/aktivointi/koydenveto/DSC55420.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABi0pTfFf6Js97N8ZEwJ5xVa/aktivointi/koydenveto/DSC55426-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAByI4eGTeVnqQaN9JGC5RNxa/aktivointi/koydenveto/DSC55426.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55426-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAByI4eGTeVnqQaN9JGC5RNxa/aktivointi/koydenveto/DSC55426.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABIwbdu8T-WIA9FpEL27eRqa/aktivointi/koydenveto/DSC55432-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD4f41nfyxedrBA5wtS2wxDa/aktivointi/koydenveto/DSC55432.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55432-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD4f41nfyxedrBA5wtS2wxDa/aktivointi/koydenveto/DSC55432.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADK1vuS7KBG6f_6NBOmjjmda/aktivointi/koydenveto/DSC55510-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACgx2-kUx_iETqCwqvv1N6Ua/aktivointi/koydenveto/DSC55510.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55510-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACgx2-kUx_iETqCwqvv1N6Ua/aktivointi/koydenveto/DSC55510.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAq3rggCT__LjHfF0VpTxRKa/aktivointi/koydenveto/DSC55453-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJt2yF1QPyY1EY3U99TVu-a/aktivointi/koydenveto/DSC55453.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55453-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJt2yF1QPyY1EY3U99TVu-a/aktivointi/koydenveto/DSC55453.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC8UBg-R97JClM5kUIVQSOCa/aktivointi/koydenveto/DSC55476-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAD70OxxTVtIkG447DUXusva/aktivointi/koydenveto/DSC55476.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55476-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAD70OxxTVtIkG447DUXusva/aktivointi/koydenveto/DSC55476.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABIb5FmQfK8AL3PH9tX4kQga/aktivointi/koydenveto/DSC55478-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAALA6gSrR6dbegzJy_LRsnaa/aktivointi/koydenveto/DSC55478.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55478-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAALA6gSrR6dbegzJy_LRsnaa/aktivointi/koydenveto/DSC55478.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAC88jikS590A75RouBw9bUa/aktivointi/koydenveto/DSC55386-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABCQYxhyiDpAiICmN_hIGqta/aktivointi/koydenveto/DSC55386.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55386-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABCQYxhyiDpAiICmN_hIGqta/aktivointi/koydenveto/DSC55386.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAJPhToX7FlrkuuxPRohCTGa/aktivointi/koydenveto/DSC55401-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADLeQkaBhVmQ5c3jLGNS2aNa/aktivointi/koydenveto/DSC55401.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55401-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADLeQkaBhVmQ5c3jLGNS2aNa/aktivointi/koydenveto/DSC55401.jpg)

@@ -3,7 +3,7 @@ title: "Treat cube"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC0jvs23ni3Lb5lKU6fQ-xBa/aktivointi/herkkukuutio/DSC37126-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37126-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/treat-cube/
@@ -21,16 +21,16 @@ For this one you can use any dry treats that can fit through the hole, I used ki
 
 The tennis ball was a good obstacle inside the cube and it took Miki about three minutes to get all the kibble out.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADusJdIf5NZcG4hN__2JzX8a/aktivointi/herkkukuutio/DSC37048-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADdo78Bcuiqe0BzM94_FFDTa/aktivointi/herkkukuutio/DSC37048.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37048-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADdo78Bcuiqe0BzM94_FFDTa/aktivointi/herkkukuutio/DSC37048.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC0KUFoB-xj3wnHtEipkdmGa/aktivointi/herkkukuutio/DSC37210-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABMikgeWXFGIzcgnK7jYua-a/aktivointi/herkkukuutio/DSC37210.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37210-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABMikgeWXFGIzcgnK7jYua-a/aktivointi/herkkukuutio/DSC37210.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACEcd_Tvt3wU0qJUTp1n5NXa/aktivointi/herkkukuutio/DSC37226-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQ_HP5A4Pup0_sY_dnqnTPa/aktivointi/herkkukuutio/DSC37226.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37226-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQ_HP5A4Pup0_sY_dnqnTPa/aktivointi/herkkukuutio/DSC37226.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACCteUSv6vJ74kD3REWRXyoa/aktivointi/herkkukuutio/DSC37208-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJNcvwDDrxNn0K3LeTBsKLa/aktivointi/herkkukuutio/DSC37208.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37208-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJNcvwDDrxNn0K3LeTBsKLa/aktivointi/herkkukuutio/DSC37208.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADxEEoNjOkGMkjvIJFEhvj7a/aktivointi/herkkukuutio/DSC37186-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABkZ6GQqeRWj2Og94AtINLia/aktivointi/herkkukuutio/DSC37186.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37186-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABkZ6GQqeRWj2Og94AtINLia/aktivointi/herkkukuutio/DSC37186.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAAxzOn8ibO1-JiFbR6vpe3a/aktivointi/herkkukuutio/DSC37126-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD0anbj69Ht-eFrPv13xcFca/aktivointi/herkkukuutio/DSC37126.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37126-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD0anbj69Ht-eFrPv13xcFca/aktivointi/herkkukuutio/DSC37126.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC4lA7JbPq6u03kb540VO7Ua/aktivointi/herkkukuutio/DSC37040-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADx7NdZk2U5WMgYVhUimLwja/aktivointi/herkkukuutio/DSC37040.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37040-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADx7NdZk2U5WMgYVhUimLwja/aktivointi/herkkukuutio/DSC37040.jpg)

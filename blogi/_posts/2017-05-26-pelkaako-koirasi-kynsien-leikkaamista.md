@@ -3,7 +3,7 @@ title: "Pelkääkö koirasi kynsien leikkaamista?"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACkzng6_Bi93v3iGpZk6LCEa/aktivointi/siedattaminen-sheippaamalla/DS55752_-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/siedattaminen-sheippaamalla/DS55752_-245px.jpg
   thumb:
 ---
 
@@ -29,45 +29,45 @@ Joten aina, ennen kuin aloitat siedättämisharjoitukset, niin ajattele Pavlovin
 
 Laita pihdit lattialle ja anna koirasi tutustua niihin. Palkitse koiraasi, kun se on rauhallinen pihtien ollessa lattialla. 
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAP1EqpGWQQ8jWPYqOJPYkKa/aktivointi/siedattaminen-sheippaamalla/DS55361-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACz4iWh2wTWA9lyZAv7xBuPa/aktivointi/siedattaminen-sheippaamalla/DS55361.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/siedattaminen-sheippaamalla/DS55361-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACz4iWh2wTWA9lyZAv7xBuPa/aktivointi/siedattaminen-sheippaamalla/DS55361.jpg)
 
 Seuraavaksi voit koskettaa lattialla olevia pihtejä ennen kuin palkkaat koiran.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAih5gX6hyRmz4MGiRPeTD6a/aktivointi/siedattaminen-sheippaamalla/DS55368-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABvLAkYUvcQpt5QY0Z0XAjya/aktivointi/siedattaminen-sheippaamalla/DS55368.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/siedattaminen-sheippaamalla/DS55368-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABvLAkYUvcQpt5QY0Z0XAjya/aktivointi/siedattaminen-sheippaamalla/DS55368.jpg)
 
 Myöhemmin voit ottaa pihdit käteesi ja laskea ne takaisin lattialle samalla palkaten koiraa rauhallisuudesta. 
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACm4oJ77r6JFBYsHqE7TJv0a/aktivointi/siedattaminen-sheippaamalla/DS55467-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABmRD88ZqG31IUDJFF0jGA9a/aktivointi/siedattaminen-sheippaamalla/DS55467.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/siedattaminen-sheippaamalla/DS55467-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABmRD88ZqG31IUDJFF0jGA9a/aktivointi/siedattaminen-sheippaamalla/DS55467.jpg)
 
 Pikkuhiljaa voit edetä harjoituksessa niin, että pyydät koiraasi antamaan tassua pihtien ollessa lattialla.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABHXRPdJHKh_uXsm-DYJj70a/aktivointi/siedattaminen-sheippaamalla/DS55485-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABui9-M21KQ_RrPaQDLgyf8a/aktivointi/siedattaminen-sheippaamalla/DS55485.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/siedattaminen-sheippaamalla/DS55485-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABui9-M21KQ_RrPaQDLgyf8a/aktivointi/siedattaminen-sheippaamalla/DS55485.jpg)
 
 Seuraavaksi voit pyytää koiraa antamaan tassua ja vain koskettaa lattialla olevia pihtejä.
 
 Kun olette edenneet harjoituksissa tähän, niin seuraavaksi voit pyytää antamaan tassua ja samalla otat pihdit käteesi lattialta ilman, että teet niillä mitään ja lasket ne takaisin. Toista useita kertoja ja palkkaa koiraasi rauhallisuudesta. 
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABGGz0rCxPOdVhfrI9ozkwYa/aktivointi/siedattaminen-sheippaamalla/DS55613-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACGALsF7YgUFgaodM6d-r2ra/aktivointi/siedattaminen-sheippaamalla/DS55613.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/siedattaminen-sheippaamalla/DS55613-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACGALsF7YgUFgaodM6d-r2ra/aktivointi/siedattaminen-sheippaamalla/DS55613.jpg)
 
 Älä vaikeuta harjoitusta kerralla liikaa, vaan etene pienin askelin. Harjoittele vaikka vain pari minuuttia päivittäin, jotta tilanne pysyy koiralle mieluisana. Ja palkkaa koiraa sellaisella, mistä se oikeasti pitää. Jos kiirehdit liikaa niin koirasi saattaa pelästyä ja olette taas lähtöruudussa.
 
 Kun tämä sujuu hyvin, niin jatka kuten aiemmin, mutta kosketa koiran tassua lempeästi pihdeillä ja palkkaa koiraasi. Voit myös silittää pihdeillä koiran tassua.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA15oGD4M-kvJA-7fpbAMOja/aktivointi/siedattaminen-sheippaamalla/DS55706-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAwrJhXKDudquDKMHIP7C3ya/aktivointi/siedattaminen-sheippaamalla/DS55706.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/siedattaminen-sheippaamalla/DS55706-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAwrJhXKDudquDKMHIP7C3ya/aktivointi/siedattaminen-sheippaamalla/DS55706.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_hW5kx5VEeGMRlQ90jaOTa/aktivointi/siedattaminen-sheippaamalla/DS55829-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC99niv-4H6KDzAWp4tqPqua/aktivointi/siedattaminen-sheippaamalla/DS55829.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/siedattaminen-sheippaamalla/DS55829-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC99niv-4H6KDzAWp4tqPqua/aktivointi/siedattaminen-sheippaamalla/DS55829.jpg)
 
 Myöhemmin voit edetä harjoituksissa niin, että naksuttelet pihdeillä ilmaa lähellä koiran tassua.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADbCM_b7zQ5O6tt1gVsGZ2sa/aktivointi/siedattaminen-sheippaamalla/DS55712-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAnMCfu_9R6EKJ6Z5XPqrU5a/aktivointi/siedattaminen-sheippaamalla/DS55712.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/siedattaminen-sheippaamalla/DS55712-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAnMCfu_9R6EKJ6Z5XPqrU5a/aktivointi/siedattaminen-sheippaamalla/DS55712.jpg)
 
 Jos koirasi haluaa tutkia pihtejä tarkemmin niin anna sen tehdä se kaikessa rauhassa.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAaVBi8FCHXX9Il9cmSxjmJa/aktivointi/siedattaminen-sheippaamalla/DS55732-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAug8No4hlEUazgnJnuR1wua/aktivointi/siedattaminen-sheippaamalla/DS55732.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/siedattaminen-sheippaamalla/DS55732-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAug8No4hlEUazgnJnuR1wua/aktivointi/siedattaminen-sheippaamalla/DS55732.jpg)
 
 Vasta useiden harjoitusten jälkeen kannattaa oikeasti alkaa leikkaamaan koiran kynsiä ja silloinkin kannattaa leikata vain yksi kynsi per harjoituskerta ja koira kannattaa palkita sen lempiherkuilla.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACC4eDvLJG2ikR7NE39SR_7a/aktivointi/siedattaminen-sheippaamalla/DS55752-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA9K3H_lpnVMPRyNI0V1b8ma/aktivointi/siedattaminen-sheippaamalla/DS55752.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/siedattaminen-sheippaamalla/DS55752-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA9K3H_lpnVMPRyNI0V1b8ma/aktivointi/siedattaminen-sheippaamalla/DS55752.jpg)
 
 Voit lisätä siedätyksessä välivaiheita koirasi tarpeen mukaan. On aina parempi edetä hitaasti kohti tavoitetta, kuin korjata omgelmia, jotka johtuvat liiasta kiirehtimisestä.
 
@@ -75,10 +75,10 @@ Samaa koulutusmallia voi käyttää melkein mihin tahansa siedätykseen, esimerk
 
 Mikäli koirasi on menossa sellaiseen toimenpiteeseen mikä vaatii kaulurin pitämistä, niin kaulurikin kannattaa siedättää sitä ennen.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADpjCws7YMyivjSPhMgnUZWa/aktivointi/siedattaminen-sheippaamalla/DSC58327-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_yaFPJE1Qd_EKP5T3KwZ8a/aktivointi/siedattaminen-sheippaamalla/DSC58327.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/siedattaminen-sheippaamalla/DSC58327-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_yaFPJE1Qd_EKP5T3KwZ8a/aktivointi/siedattaminen-sheippaamalla/DSC58327.jpg)
 
 Siedätin Mikin myös pitämään tätä karvahattua :)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACfchGzuqPJctUMfTfPA0yba/aktivointi/siedattaminen-sheippaamalla/IMG29753-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACylf-rkESpk1M0Mi1TIGzSa/aktivointi/siedattaminen-sheippaamalla/IMG29753.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/siedattaminen-sheippaamalla/IMG29753-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACylf-rkESpk1M0Mi1TIGzSa/aktivointi/siedattaminen-sheippaamalla/IMG29753.jpg)
 
 26.5.2017

@@ -3,7 +3,7 @@ title: "Spin the disk"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACQK2mvYzaxqwZfMqqjIxwYa/aktivointi/kiekon-pyoritys/DSC57855-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57855-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/spin-the-disk/
@@ -26,18 +26,18 @@ I used small pieces of duck fillet, because they were flat enough to fit in the 
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD4DxMB5H3nPvBD3M4EGOp0a/aktivointi/kiekon-pyoritys/DSC57798-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABkpnoTkOz7H8LYZy9T-fCKa/aktivointi/kiekon-pyoritys/DSC57798.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57798-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABkpnoTkOz7H8LYZy9T-fCKa/aktivointi/kiekon-pyoritys/DSC57798.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAApjyWxKlMm7T1z2Eu9Ycsxa/aktivointi/kiekon-pyoritys/DSC57802-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAsENO4TKDwC6hnyCOoKboUa/aktivointi/kiekon-pyoritys/DSC57802.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57802-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAsENO4TKDwC6hnyCOoKboUa/aktivointi/kiekon-pyoritys/DSC57802.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQ-seMMSrS_D9c6RZhuQEYa/aktivointi/kiekon-pyoritys/DSC57812-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB0zp9FJCOmpu4B0L_Qru0oa/aktivointi/kiekon-pyoritys/DSC57812.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57812-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB0zp9FJCOmpu4B0L_Qru0oa/aktivointi/kiekon-pyoritys/DSC57812.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABJHs_U5dGWmxs1myk5THEua/aktivointi/kiekon-pyoritys/DSC57866-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADR5Z4HBQ5X6ssd9TOim_Gsa/aktivointi/kiekon-pyoritys/DSC57866.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57866-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADR5Z4HBQ5X6ssd9TOim_Gsa/aktivointi/kiekon-pyoritys/DSC57866.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADP-tCmuq-uaWU2sgTysLZwa/aktivointi/kiekon-pyoritys/DSC57855-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC-epYxDd9fW49UwMysinRMa/aktivointi/kiekon-pyoritys/DSC57855.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57855-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC-epYxDd9fW49UwMysinRMa/aktivointi/kiekon-pyoritys/DSC57855.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAqkQO88kYANB9JKUsnbrAea/aktivointi/kiekon-pyoritys/DSC57772-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABGsB8EPsU-BH8zYT-eCr1ia/aktivointi/kiekon-pyoritys/DSC57772.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57772-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABGsB8EPsU-BH8zYT-eCr1ia/aktivointi/kiekon-pyoritys/DSC57772.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABPQejZ9jCGXLz50bsplHPVa/aktivointi/kiekon-pyoritys/DSC57789-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC72PPydoBT9Om7irt58VjZa/aktivointi/kiekon-pyoritys/DSC57789.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57789-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC72PPydoBT9Om7irt58VjZa/aktivointi/kiekon-pyoritys/DSC57789.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADg_YiqaoIdfwETXqoTVeuwa/aktivointi/kiekon-pyoritys/DSC57795-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABcx8b-hAx0uUTjXWaKvpoqa/aktivointi/kiekon-pyoritys/DSC57795.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57795-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABcx8b-hAx0uUTjXWaKvpoqa/aktivointi/kiekon-pyoritys/DSC57795.jpg)

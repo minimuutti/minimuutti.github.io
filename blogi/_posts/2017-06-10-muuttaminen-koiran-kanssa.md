@@ -3,7 +3,7 @@ title: "Muuttaminen koiran kanssa"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADZR79HmrY2bK3jC0uqkC24a/blogi/DS55114_1-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/blogi/DS55114_1-245px.jpg
   thumb:
 ---
 
@@ -39,19 +39,19 @@ Parasta olisi viedä koira muuttopäiviksi hoitoon tuttuun hoitopaikkaan. Meill�
 
 Aloimme harjoittelemalla rauhallista käytöstä. Miki oli hihnassa kytkettynä vyötärölleni (kuten se olisi tullut olemaan myös muuttopäivänä ovien ollessa auki) ja ensin palkkasin sitä muutamia kertoja vain rauhallisesta seuraamisesta, jotta se ymmärsi homman nimen. Sen jälkeen tein muutamia suunnanvaihtoja tai peruutin Mikiin päin ja palkkasin, kun se antoi minulle tilaa.
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACbhORVWFMXpZ4PMLRQRXZya/blogi/DS54986-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS54986-800px.jpg)
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABmAF6W1njsaJoriqwqCqLPa/blogi/DS54992-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS54992-800px.jpg)
 
 Sitten aloin siirtelemään pieniä tavaroita ja laatikoita huoneesta toiseen ja palkkasin sitä, kun se seurasi rauhallisesti mukana ja/tai antoi minulle tilaa tai pysähtyi odottamaan. Myöhemmin siirtelin suurempia laatikoita tai kannoin tuoleja huoneesta toiseen ja palkkailin Mikiä kuten aiemmin.
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADFsuegR027L3IkyQmUCLWIa/blogi/DS55029-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS55029-800px.jpg)
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADBReUKwLv4hfPNgEs8So9Ha/blogi/DS55068-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS55068-800px.jpg)
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAaR_NuMELvamZuqB6DFbA7a/blogi/DS55114-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS55114-800px.jpg)
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJyqQzrB2ilveAFsDnGENna/blogi/DS55141-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS55141-800px.jpg)
 
 Harjoittelimme myös sitä, että toinen kanteli tavaroita ulos asunnosta ja palkkasin Mikiä sen pysyessä sisällä. Lisäksi harjoittelin mahdollista talutushihnan putoamista siirrellessäni tavaroita, eli ”vahingossa” pudotin hihnan ja palkkailin Mikiä pysähtymisestä, jotta hihnanpään putoaminen toimisi vihjeenä pysähtymiselle. Tätä talutushihnan putoamista voisi myös muutenkin opettaa vihjeeksi pysähtyä :)
 
@@ -73,9 +73,9 @@ Jos mahdollista niin käy valmiiksi viemässä uuteen kotiin koiran tavaroita, l
 
 Me kävimme siivoamassa uuden asunnon ennen muuttoa ja siivouksen jälkeen jätimme asuntoon Mikin fleecematon, johon laitoin paljon herkkuja, sekä muutamia leluja.
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADCISgDEw1-6qwhFcd2T3DAa/blogi/DS55945-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS55945-800px.jpg)
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQpzCGct-P_1qo7tYIHp-ma/blogi/DS55949-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS55949-800px.jpg)
 
 Vaikka olemme muuttamassa seuraavan kerran vasta puolen vuoden kuluttua, niin olemme jo käyneet Mikin kanssa kävelyllä tuolla tulevassa naapurustossa, jotta sekin tuntuisi sitten tutulta paikalta.
 
@@ -111,6 +111,6 @@ Me teimme ensimmäisen viikon vuorotellen töitä kotona, jotta Mikillä olisi p
 
 Haluan jakaa teidän kanssa vielä tämän, kun Miki löysi itselleen uuden koirankopin tyhjästä kaapista :D
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAHa_tuvTVkA4YNLhMAEcO3a/blogi/20170530_183608-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/20170530_183608-800px.jpg)
 
 10.6.2017

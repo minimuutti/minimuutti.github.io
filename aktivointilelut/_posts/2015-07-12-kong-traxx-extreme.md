@@ -3,7 +3,7 @@ title: "Kong Traxx Extreme"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABJDaO4VjgjMBqWRpm6A28ka/aktivointilelut/kongit/DSC34392-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34392-245px.jpg
   thumb:
 ---
 [Kong Traxx](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/lelut/aktivointilelut/aktivointi/326683)) -lelu on kaikista kestävin lelu, jonka olemme Mikille ostaneet.
@@ -22,34 +22,34 @@ Miki sai tämän renkaan alle vuoden ikäisenä ja sama lelu on meillä edelleen
 
 Miki on tykännyt leikkiä tällä lelulla ilman ruokaakin, koska se tykkää jahdata lelua, kun joku vierittää sitä pitkin lattiaa :)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADym-qigc0vB8CcuTkeEz06a/aktivointilelut/kongit/DSC34392-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADf3DjnWn5JwEkNIy1s7KUia/aktivointilelut/kongit/DSC34392.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34392-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADf3DjnWn5JwEkNIy1s7KUia/aktivointilelut/kongit/DSC34392.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACu9FxxeKLPrfaUIIPVBTZFa/aktivointilelut/kongit/DSC34394-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOs-TRZwKjnHUkKThzCiuka/aktivointilelut/kongit/DSC34394.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34394-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOs-TRZwKjnHUkKThzCiuka/aktivointilelut/kongit/DSC34394.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA53fq1Xi0Wukp89UhjvsDua/aktivointilelut/kongit/DSC30218_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB1yEeD9Z8lP6cGA_qPR7qca/aktivointilelut/kongit/DSC30218_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30218_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB1yEeD9Z8lP6cGA_qPR7qca/aktivointilelut/kongit/DSC30218_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABAz3kRlsaEFTMmSNT6H7RAa/aktivointilelut/kongit/DSC30333-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAmAdt7HqSHPUaqak1bXcMQa/aktivointilelut/kongit/DSC30333.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30333-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAmAdt7HqSHPUaqak1bXcMQa/aktivointilelut/kongit/DSC30333.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADGVCRfeWZibTsaXdgT16Ooa/aktivointilelut/kongit/DSC30289-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABVly_wbykszgnGpuPmz8W7a/aktivointilelut/kongit/DSC30289.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30289-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABVly_wbykszgnGpuPmz8W7a/aktivointilelut/kongit/DSC30289.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACEWUqjDG9bIHE2YQ-jqWOpa/aktivointilelut/kongit/DSC30282-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADq16JEDe1yiIwIx9IF4ylca/aktivointilelut/kongit/DSC30282.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30282-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADq16JEDe1yiIwIx9IF4ylca/aktivointilelut/kongit/DSC30282.jpg)
 
 Tätä lelua on käytetty myös tehtävissä:
 
 [Kong Traxx ja pyyhe:](/aktivointi/kong-traxx-ja-pyyhe/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADE-txlKM-zMtbe0Dg3DFaoa/aktivointi/kong-traxx-ja-pyyhe/DSC57081-800px.jpg)](/aktivointi/kong-traxx-ja-pyyhe/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kong-traxx-ja-pyyhe/DSC57081-800px.jpg)](/aktivointi/kong-traxx-ja-pyyhe/)
 
 [Fleecekiepit:](/aktivointi/fleecekiepit/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD3-pPBBv4bmldatbgMzZj8a/aktivointi/fleecekiepit/DS06648-800px.jpg)](/aktivointi/fleecekiepit/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecekiepit/DS06648-800px.jpg)](/aktivointi/fleecekiepit/)
 
 [Lelut tikussa:](/aktivointi/lelut-tikussa/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADKJKsDBn_QIru8kDvuUbO5a/aktivointi/lelut-tikussa/DS07913-800px.jpg)](/aktivointi/lelut-tikussa/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS07913-800px.jpg)](/aktivointi/lelut-tikussa/)
 
 [Yhdistetyt lelut:](/aktivointilelut/yhdistetyt-lelut/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACNRPAizIA9or6AtcYVWA8Ja/aktivointilelut/muut/DS11210-800px.jpg)](/aktivointilelut/yhdistetyt-lelut/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS11210-800px.jpg)](/aktivointilelut/yhdistetyt-lelut/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVdyKh5IiXBOlvKuKfkuwna/aktivointilelut/muut/DS11052-800px.jpg)](/aktivointilelut/yhdistetyt-lelut/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS11052-800px.jpg)](/aktivointilelut/yhdistetyt-lelut/)

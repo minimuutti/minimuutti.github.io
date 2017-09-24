@@ -17,10 +17,10 @@ Mikäli etsiminen on koirallesi vielä suhteellisen uusi asia, niin kannattaa al
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAZwHUfEceq4RcmdQWf9GwDa/aktivointi/etsinta-useista-laatikoista/DSC29381-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAOfwBVj4yDcLaIFlieens9a/aktivointi/etsinta-useista-laatikoista/DSC29381.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsinta-useista-laatikoista/DSC29381-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAOfwBVj4yDcLaIFlieens9a/aktivointi/etsinta-useista-laatikoista/DSC29381.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACDhtZF-KBt47-Ck2B2_7nQa/aktivointi/etsinta-useista-laatikoista/DSC29389-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADtDrRVz5bU9un1-lBN_JrOa/aktivointi/etsinta-useista-laatikoista/DSC29389.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsinta-useista-laatikoista/DSC29389-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADtDrRVz5bU9un1-lBN_JrOa/aktivointi/etsinta-useista-laatikoista/DSC29389.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAC4aypsiewzao6x4ePWrqZa/aktivointi/etsinta-useista-laatikoista/DSC29362-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADX4o1pN_MWT-LGR-15O9cja/aktivointi/etsinta-useista-laatikoista/DSC29362.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsinta-useista-laatikoista/DSC29362-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADX4o1pN_MWT-LGR-15O9cja/aktivointi/etsinta-useista-laatikoista/DSC29362.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD2Z4TN3xRMWvns2ZuuBCDia/aktivointi/etsinta-useista-laatikoista/DSC29376-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC2_B3AUK2BHwC80h-CEQoga/aktivointi/etsinta-useista-laatikoista/DSC29376.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsinta-useista-laatikoista/DSC29376-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC2_B3AUK2BHwC80h-CEQoga/aktivointi/etsinta-useista-laatikoista/DSC29376.jpg)

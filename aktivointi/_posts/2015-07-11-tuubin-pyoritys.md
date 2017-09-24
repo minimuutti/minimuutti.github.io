@@ -3,7 +3,7 @@ title: "Tuubin pyöritys"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABCbkb3rwCRjafwCwKeNKt0a/aktivointi/tuubin-pyoritys/DS23531-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tuubin-pyoritys/DS23531-245px.jpg
   thumb:
 ---
 
@@ -33,28 +33,28 @@ Ensimmäisen kerran jälkeen peitin purkista suurimman reiän, jolloin tehtävä
 
 Myöhemmin tehtävää voi tarvittaessa vaikeuttaa peittämällä lisää reikiä.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABmreUhfQBk2rlkCwxJ6FZpa/aktivointi/tuubin-pyoritys/DS23426-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADM3tb_bHAtJyhCR8STS1wga/aktivointi/tuubin-pyoritys/DS23426.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tuubin-pyoritys/DS23426-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADM3tb_bHAtJyhCR8STS1wga/aktivointi/tuubin-pyoritys/DS23426.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC_EMVrj-urb3EJmgAv0vaVa/aktivointi/tuubin-pyoritys/DS23476-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACqr66zvtNQ4bRzhAVbevJKa/aktivointi/tuubin-pyoritys/DS23476.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tuubin-pyoritys/DS23476-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACqr66zvtNQ4bRzhAVbevJKa/aktivointi/tuubin-pyoritys/DS23476.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAebQ7y0AryDVfxVcLEJFRDa/aktivointi/tuubin-pyoritys/DS23447-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACF_UvYEqMmV5uUXUk2SHNOa/aktivointi/tuubin-pyoritys/DS23447.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tuubin-pyoritys/DS23447-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACF_UvYEqMmV5uUXUk2SHNOa/aktivointi/tuubin-pyoritys/DS23447.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACEXlDlHqHjT4Tw4VCl-l5Ga/aktivointi/tuubin-pyoritys/DS23474-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5MlVL2bnzi-dYvs8UqthBa/aktivointi/tuubin-pyoritys/DS23474.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tuubin-pyoritys/DS23474-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5MlVL2bnzi-dYvs8UqthBa/aktivointi/tuubin-pyoritys/DS23474.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAfiFS45xR1Z1uCnKooP1n2a/aktivointi/tuubin-pyoritys/DS23525-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD1BTkQyHN5wKMMBm5mjXbIa/aktivointi/tuubin-pyoritys/DS23525.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tuubin-pyoritys/DS23525-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD1BTkQyHN5wKMMBm5mjXbIa/aktivointi/tuubin-pyoritys/DS23525.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA8j56GEFWnbxTEj3bbN3vma/aktivointi/tuubin-pyoritys/DS23522-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACKvH9NWiYCRc0FennKHPHKa/aktivointi/tuubin-pyoritys/DS23522.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tuubin-pyoritys/DS23522-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACKvH9NWiYCRc0FennKHPHKa/aktivointi/tuubin-pyoritys/DS23522.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAlnXE7vP6tV6R97IZJt5Ima/aktivointi/tuubin-pyoritys/DS23506-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-vu3pN88UtjFD1ysNduqSa/aktivointi/tuubin-pyoritys/DS23506.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tuubin-pyoritys/DS23506-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-vu3pN88UtjFD1ysNduqSa/aktivointi/tuubin-pyoritys/DS23506.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADZwAz4012iPFyg7VaUo3Dka/aktivointi/tuubin-pyoritys/DS24052-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACwIdbc9qnIgHA9WFVfKRxSa/aktivointi/tuubin-pyoritys/DS24052.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tuubin-pyoritys/DS24052-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACwIdbc9qnIgHA9WFVfKRxSa/aktivointi/tuubin-pyoritys/DS24052.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA4IbJmOOVkWupNJZAochQxa/aktivointi/tuubin-pyoritys/DS24086-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAdWaFn0VbMs2BT-roYjwMra/aktivointi/tuubin-pyoritys/DS24086.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tuubin-pyoritys/DS24086-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAdWaFn0VbMs2BT-roYjwMra/aktivointi/tuubin-pyoritys/DS24086.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACvtzBUcxSNC8MPRVg1xqTGa/aktivointi/tuubin-pyoritys/DS24082-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAu1KKmpvi_p9YIP6OluCr_a/aktivointi/tuubin-pyoritys/DS24082.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tuubin-pyoritys/DS24082-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAu1KKmpvi_p9YIP6OluCr_a/aktivointi/tuubin-pyoritys/DS24082.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAADiFLQfJXjEBMoW-sjdKWca/aktivointi/tuubin-pyoritys/DS24121-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_UAdMDWrHa9hCgi1S8yfva/aktivointi/tuubin-pyoritys/DS24121.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tuubin-pyoritys/DS24121-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_UAdMDWrHa9hCgi1S8yfva/aktivointi/tuubin-pyoritys/DS24121.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACP6CkCC2ZzbbDGi-Me_Xj2a/aktivointi/tuubin-pyoritys/DS24036-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC48MRX1GKtLxXNzXzFQEtea/aktivointi/tuubin-pyoritys/DS24036.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tuubin-pyoritys/DS24036-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC48MRX1GKtLxXNzXzFQEtea/aktivointi/tuubin-pyoritys/DS24036.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABSPCDdreYwvyNLq1YwQyw1a/aktivointi/tuubin-pyoritys/xx-kollaasi-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABlScBkz6DvNps2WmoXpfoLa/aktivointi/tuubin-pyoritys/xx-kollaasi.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tuubin-pyoritys/xx-kollaasi-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABlScBkz6DvNps2WmoXpfoLa/aktivointi/tuubin-pyoritys/xx-kollaasi.jpg)

@@ -3,7 +3,7 @@ title: "Kong Wobbler"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAzEzD6QvL2GbZMGS6FuLhOa/aktivointilelut/kongit/DSC12971-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC12971-245px.jpg
   thumb:
 ---
 
@@ -23,18 +23,18 @@ Olen kokeillut laittaa lelun sisään myös [Space Ball Stellaron](/aktivointile
 
 Voin lämpimästi suositella tätä lelua. Tämä kuvissa näkyvä lelu on meillä käytössä viikottain eikä lelu näytä mitään kulumisen merkkejä vaikka sen on meillä käytössä jo vuosia.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5ph3fDeq_8Ar94AOpWDpLa/aktivointilelut/kongit/DSC12846_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABMwR0FbwtSutSjC1GCUBKga/aktivointilelut/kongit/DSC12846_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC12846_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABMwR0FbwtSutSjC1GCUBKga/aktivointilelut/kongit/DSC12846_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABCq_leStxg7FJntAHtbV1-a/aktivointilelut/kongit/DSC12971_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAASXZ8I472p_GdZYPwcAVlBa/aktivointilelut/kongit/DSC12971_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC12971_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAASXZ8I472p_GdZYPwcAVlBa/aktivointilelut/kongit/DSC12971_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAad4vrs3JRQdqfsgFN1-nPa/aktivointilelut/kongit/DSC57921-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWzOtLflO4PwsHr64rEbdYa/aktivointilelut/kongit/DSC57921.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC57921-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWzOtLflO4PwsHr64rEbdYa/aktivointilelut/kongit/DSC57921.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-1eJtz-X_hrj3IEKFUraxa/aktivointilelut/kongit/DS41310-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAxK7-0bJyTMWkcpKDb0Y4ca/aktivointilelut/kongit/DS41310.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS41310-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAxK7-0bJyTMWkcpKDb0Y4ca/aktivointilelut/kongit/DS41310.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA3fAauU1KzJXL-WIX0WZ6sa/aktivointilelut/kongit/DS60245-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADSgw44CC56wwzBChRENYLLa/aktivointilelut/kongit/DS60245.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS60245-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADSgw44CC56wwzBChRENYLLa/aktivointilelut/kongit/DS60245.jpg)
 
 Tätä lelua on käytetty myös tehtävässä: 
 
 [Itsevarmuusbuusteri](/aktivointi/itsevarmuusbuusteri/)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWa2j6SMsU0-nGg7z4xjrKa/aktivointi/itsevarmuusbuusteri/DS33929-800px.jpg)](/aktivointi/itsevarmuusbuusteri/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/itsevarmuusbuusteri/DS33929-800px.jpg)](/aktivointi/itsevarmuusbuusteri/)

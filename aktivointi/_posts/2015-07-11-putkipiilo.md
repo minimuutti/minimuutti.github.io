@@ -3,7 +3,7 @@ title: "Putkipiilo"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADlLgldhha6VnrIWK2_HM0Ba/aktivointi/putkipiilo/DSC37492-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC37492-245px.jpg
   thumb:
 ---
 
@@ -27,38 +27,38 @@ Teimme samanlaisen tehtävän myös 60 cm pitkällä putkella ja 60 cm leveäll�
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-QKFx_3EcJMYFJRyLHpANa/aktivointi/putkipiilo/DSC37492-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAUbcJwzssF1qHleG4lE1UUa/aktivointi/putkipiilo/DSC37492.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC37492-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAUbcJwzssF1qHleG4lE1UUa/aktivointi/putkipiilo/DSC37492.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADWkUAHOwf0Lt4oHFzGxpQpa/aktivointi/putkipiilo/DSC37386-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADbpAbk9tE10WmiypTOXQbNa/aktivointi/putkipiilo/DSC37386.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC37386-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADbpAbk9tE10WmiypTOXQbNa/aktivointi/putkipiilo/DSC37386.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADgCHJFM8l2NrE_oXBzzHUEa/aktivointi/putkipiilo/DSC37474-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADovJlJlGqTTo_qCdWz3JRXa/aktivointi/putkipiilo/DSC37474.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC37474-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADovJlJlGqTTo_qCdWz3JRXa/aktivointi/putkipiilo/DSC37474.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB0GZlR9d2rZdyjPQiW0gQYa/aktivointi/putkipiilo/DSC37439-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABmgx1vAuBFuwFym37UYgYza/aktivointi/putkipiilo/DSC37439.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC37439-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABmgx1vAuBFuwFym37UYgYza/aktivointi/putkipiilo/DSC37439.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACibTPUzYBfz09HapfYg-Rya/aktivointi/putkipiilo/DSC37484-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAbNnfJnupR56ykbuak59q7a/aktivointi/putkipiilo/DSC37484.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC37484-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAbNnfJnupR56ykbuak59q7a/aktivointi/putkipiilo/DSC37484.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACpKg3R91VXmNr0ZrWQaoCFa/aktivointi/putkipiilo/DSC37631-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC7kEwJXLE-kuci6xGmeHYYa/aktivointi/putkipiilo/DSC37631.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC37631-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC7kEwJXLE-kuci6xGmeHYYa/aktivointi/putkipiilo/DSC37631.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADuo7H6mQSP2YAVvnV3tu90a/aktivointi/putkipiilo/DSC42999-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAZqRNca_QDCYuXgEwXu2ica/aktivointi/putkipiilo/DSC42999.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC42999-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAZqRNca_QDCYuXgEwXu2ica/aktivointi/putkipiilo/DSC42999.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC__HuTFY_0mLKbPeSOKKkaa/aktivointi/putkipiilo/DSC43028-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_Xb2wS62nk_Z7ff2ExRtga/aktivointi/putkipiilo/DSC43028.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC43028-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_Xb2wS62nk_Z7ff2ExRtga/aktivointi/putkipiilo/DSC43028.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC0pjiOvhIfJc8Q232wo3dIa/aktivointi/putkipiilo/DSC43057-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-Hgva93MSCbPi5nJhO_x6a/aktivointi/putkipiilo/DSC43057.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC43057-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-Hgva93MSCbPi5nJhO_x6a/aktivointi/putkipiilo/DSC43057.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADP38upKVTMLipEhkaMEJhwa/aktivointi/putkipiilo/DSC46277-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAQftn8qzdTew9PpiHzt2HJa/aktivointi/putkipiilo/DSC46277.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC46277-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAQftn8qzdTew9PpiHzt2HJa/aktivointi/putkipiilo/DSC46277.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADb_1jJmaZ2HAOTX1KXkhLDa/aktivointi/putkipiilo/DSC47917-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC0scivCBPT1VH70qqukq_Va/aktivointi/putkipiilo/DSC47917.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC47917-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC0scivCBPT1VH70qqukq_Va/aktivointi/putkipiilo/DSC47917.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAABWDnyosG0zZB86bZArB75a/aktivointi/putkipiilo/DSC47921-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_6pF2nhfm-m52e_CcjUU8a/aktivointi/putkipiilo/DSC47921.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC47921-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_6pF2nhfm-m52e_CcjUU8a/aktivointi/putkipiilo/DSC47921.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACvGxg0oMZqHsIKH5yMZPi7a/aktivointi/putkipiilo/DSC47941-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABdKa7K90dlCR26BhW2rD0ra/aktivointi/putkipiilo/DSC47941.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC47941-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABdKa7K90dlCR26BhW2rD0ra/aktivointi/putkipiilo/DSC47941.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAPXUYI-ClQWSQFylNy_LOoa/aktivointi/putkipiilo/DSC47952-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACbzxW06BLuc_lDOv4w3xDya/aktivointi/putkipiilo/DSC47952.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC47952-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACbzxW06BLuc_lDOv4w3xDya/aktivointi/putkipiilo/DSC47952.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAARg-UMAdvD_2ajqNAHk_ea/aktivointi/putkipiilo/DSC51455-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADMWscHvexDlpNpdFjtRuOGa/aktivointi/putkipiilo/DSC51455.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC51455-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADMWscHvexDlpNpdFjtRuOGa/aktivointi/putkipiilo/DSC51455.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABiDlB622vhgJrCIZuQFS-Ta/aktivointi/putkipiilo/DSC51482-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJBCdqCJBmJJCscBdppkBRa/aktivointi/putkipiilo/DSC51482.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC51482-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJBCdqCJBmJJCscBdppkBRa/aktivointi/putkipiilo/DSC51482.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADpDq65ODr0__AY6enFM5-ga/aktivointi/putkipiilo/DSC51541-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAmfXhGBLOUrQDWPENYh2_da/aktivointi/putkipiilo/DSC51541.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC51541-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAmfXhGBLOUrQDWPENYh2_da/aktivointi/putkipiilo/DSC51541.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA9rjoFIhrcNbJtpHzAmSrta/aktivointi/putkipiilo/DSC51752-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAywpTzMk2iyYvrQK73V4Qja/aktivointi/putkipiilo/DSC51752.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC51752-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAywpTzMk2iyYvrQK73V4Qja/aktivointi/putkipiilo/DSC51752.jpg)

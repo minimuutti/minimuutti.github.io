@@ -3,7 +3,7 @@ title: "Trixie Snack Spinner"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAWC4LhabVZ2Zj2zuN888GYa/aktivointilelut/muut/DSC34431-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC34431-245px.jpg
   thumb:
 ---
 
@@ -23,12 +23,12 @@ It takes Miki about three to four minutes to get all the kibble out.
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACBloMnKp4Ors8Xnm4GFS01a/aktivointilelut/muut/DSC34406-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADe0ZHwtDHHEhGPbQ2fV0Eia/aktivointilelut/muut/DSC34406.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC34406-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADe0ZHwtDHHEhGPbQ2fV0Eia/aktivointilelut/muut/DSC34406.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABj0HIkKALPBQdDDbn-WpZqa/aktivointilelut/muut/DSC34439-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADa0cPf7lt8xsfw2LigE7aka/aktivointilelut/muut/DSC34439.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC34439-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADa0cPf7lt8xsfw2LigE7aka/aktivointilelut/muut/DSC34439.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACuGX8CIgGhRZePAqlg35Ufa/aktivointilelut/muut/DSC34408-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABKnr22fZde3LQuzEQFlKeda/aktivointilelut/muut/DSC34408.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC34408-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABKnr22fZde3LQuzEQFlKeda/aktivointilelut/muut/DSC34408.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABm2oFbAWDn6c7G0rKucqNaa/aktivointilelut/muut/DSC34431-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABw6QOevKW73kvLOiAGWduna/aktivointilelut/muut/DSC34431.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC34431-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABw6QOevKW73kvLOiAGWduna/aktivointilelut/muut/DSC34431.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACSdsU5V1-mT82PIvIyuW7ra/aktivointilelut/muut/DSC34409-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACW7vGoh8pJPsUE-M_gyiXza/aktivointilelut/muut/DSC34409.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC34409-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACW7vGoh8pJPsUE-M_gyiXza/aktivointilelut/muut/DSC34409.jpg)

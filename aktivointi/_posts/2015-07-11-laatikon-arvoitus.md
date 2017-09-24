@@ -3,7 +3,7 @@ title: "Laatikon arvoitus"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAHZbNZBrv_GoYOPIT6Hsx3a/aktivointi/laatikon-arvoitus/DS08867-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08867-245px.jpg
   thumb:
 ---
 
@@ -23,24 +23,24 @@ Mikillä kesti ensimmäisellä kerralla noin 15 sekuntia saada ensimmäinen läp
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAByrhPTxQaqa8N4Hmejrrkwa/aktivointi/laatikon-arvoitus/DS08301-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABLkQ9selsizDlOxvpxABqNa/aktivointi/laatikon-arvoitus/DS08301.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08301-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABLkQ9selsizDlOxvpxABqNa/aktivointi/laatikon-arvoitus/DS08301.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADXOUAx6o7h19KHBgrRxjGKa/aktivointi/laatikon-arvoitus/DS08398-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADD0r-hVIAZHk6TYHknB4Wta/aktivointi/laatikon-arvoitus/DS08398.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08398-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADD0r-hVIAZHk6TYHknB4Wta/aktivointi/laatikon-arvoitus/DS08398.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACydj8jxSbhC1RgPlScKlYXa/aktivointi/laatikon-arvoitus/DS08865-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD72PfJOywvjX-JqJNmctU_a/aktivointi/laatikon-arvoitus/DS08865.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08865-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD72PfJOywvjX-JqJNmctU_a/aktivointi/laatikon-arvoitus/DS08865.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACjKYxYGAgk22vBoh1Etyw9a/aktivointi/laatikon-arvoitus/DS08866-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAKAyQBPliZOu7Sx8ivy4nma/aktivointi/laatikon-arvoitus/DS08866.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08866-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAKAyQBPliZOu7Sx8ivy4nma/aktivointi/laatikon-arvoitus/DS08866.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACBwU1R6uPxxPHYAPvZW_c_a/aktivointi/laatikon-arvoitus/DS08867-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC-TAZf_qwB_jdfRdxKlIR2a/aktivointi/laatikon-arvoitus/DS08867.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08867-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC-TAZf_qwB_jdfRdxKlIR2a/aktivointi/laatikon-arvoitus/DS08867.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADwLZgrtNEWb7L0rQB4lbcea/aktivointi/laatikon-arvoitus/DS08868-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACqRPoJUWaX0SuvVoCzfxZda/aktivointi/laatikon-arvoitus/DS08868.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08868-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACqRPoJUWaX0SuvVoCzfxZda/aktivointi/laatikon-arvoitus/DS08868.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADo1GXX7QhN_xlnx9lrw672a/aktivointi/laatikon-arvoitus/DS08871-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACPvn6vREh68XEvpmGvPL5fa/aktivointi/laatikon-arvoitus/DS08871.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08871-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACPvn6vREh68XEvpmGvPL5fa/aktivointi/laatikon-arvoitus/DS08871.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAARA-jkMUS5aYNZk-SBUcjna/aktivointi/laatikon-arvoitus/DS08873-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWI2cOEmC4tzIQNrJOQ8BOa/aktivointi/laatikon-arvoitus/DS08873.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08873-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWI2cOEmC4tzIQNrJOQ8BOa/aktivointi/laatikon-arvoitus/DS08873.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5bXCvMfWh1oA528CH1x1Ia/aktivointi/laatikon-arvoitus/DS08874-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB7o3-SrICNxIbftsgwS5lea/aktivointi/laatikon-arvoitus/DS08874.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08874-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB7o3-SrICNxIbftsgwS5lea/aktivointi/laatikon-arvoitus/DS08874.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABOMC6NXnYvRfJIX2-HkAXLa/aktivointi/laatikon-arvoitus/DS09008-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACj3RYR6OaaPqAJXAfWhurca/aktivointi/laatikon-arvoitus/DS09008.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS09008-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACj3RYR6OaaPqAJXAfWhurca/aktivointi/laatikon-arvoitus/DS09008.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABKSDeZA7N3nmd0UHBAwyTja/aktivointi/laatikon-arvoitus/DS09009-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACBtjvMNLKefQzk5sicterIa/aktivointi/laatikon-arvoitus/DS09009.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS09009-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACBtjvMNLKefQzk5sicterIa/aktivointi/laatikon-arvoitus/DS09009.jpg)

@@ -3,7 +3,7 @@ title: "Hiding the treats in the house"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADi_NXnb0a818xsRJAX2rBxa/aktivointi/namien-piilotus-asuntoon/DSC30804-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30804-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/hiding-the-treats-in-the-house/
@@ -17,10 +17,10 @@ You need to hide the kibble only in those areas you are comfortable for your dog
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABA06fVs7_CJnlXoIweBZXya/aktivointi/namien-piilotus-asuntoon/DSC30802-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJNygvQa5m6cGDUvu5DudXa/aktivointi/namien-piilotus-asuntoon/DSC30802.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30802-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJNygvQa5m6cGDUvu5DudXa/aktivointi/namien-piilotus-asuntoon/DSC30802.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADlkEXmsDrcA-EMI2rUG6fia/aktivointi/namien-piilotus-asuntoon/DSC30814-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAEYDFOUkdaw9LZeU-PLTHfa/aktivointi/namien-piilotus-asuntoon/DSC30814.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30814-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAEYDFOUkdaw9LZeU-PLTHfa/aktivointi/namien-piilotus-asuntoon/DSC30814.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWIVWO_cDcp5LovHieETU1a/aktivointi/namien-piilotus-asuntoon/DSC30810-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAKFuVHweL_TIlsUVMWNA6-a/aktivointi/namien-piilotus-asuntoon/DSC30810.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30810-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAKFuVHweL_TIlsUVMWNA6-a/aktivointi/namien-piilotus-asuntoon/DSC30810.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACBOrbOOImKbE6wzb6xVjSIa/aktivointi/namien-piilotus-asuntoon/DSC30804-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACmjUIUiQGOgKfXrsJ3qqG2a/aktivointi/namien-piilotus-asuntoon/DSC30804.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30804-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACmjUIUiQGOgKfXrsJ3qqG2a/aktivointi/namien-piilotus-asuntoon/DSC30804.jpg)

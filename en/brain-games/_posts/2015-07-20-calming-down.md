@@ -3,7 +3,7 @@ title: "Calming down"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABUV_PcyiMFN4XCDxcbQWy3a/aktivointi/rauhoittuminen/DSC14799-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/rauhoittuminen/DSC14799-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/calming-down/
@@ -19,8 +19,8 @@ You can also capture the calm behaviour when the dog is lying on his mat or in h
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAGqw-aH53fJogBizYTZ3rpa/aktivointi/rauhoittuminen/DSC14806_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC_0Sc03DTpLHNZEJ8Dx-t6a/aktivointi/rauhoittuminen/DSC14806_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/rauhoittuminen/DSC14806_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC_0Sc03DTpLHNZEJ8Dx-t6a/aktivointi/rauhoittuminen/DSC14806_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB59L8X66jgAOnUszfvdBH_a/aktivointi/rauhoittuminen/DSC14799_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADGLulkO-Kic_3RNGBIFmHva/aktivointi/rauhoittuminen/DSC14799_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/rauhoittuminen/DSC14799_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADGLulkO-Kic_3RNGBIFmHva/aktivointi/rauhoittuminen/DSC14799_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABUcnLZp0Lzt0ifbS8R9Aiva/temput/1/DSC13786_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJpVEbDJMr-Hfb5Axnuy-sa/temput/1/DSC13786_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/temput/1/DSC13786_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJpVEbDJMr-Hfb5Axnuy-sa/temput/1/DSC13786_2.jpg)

@@ -3,7 +3,7 @@ title: "Onko koirilla käsitystä itsestä? - Miki ja peili"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAATqK_dCx6_yIMt5B326OQwa/blogi/IMG_20160726_101217-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_20160726_101217-245px.jpg
   thumb:
 ---
 
@@ -15,7 +15,7 @@ Miki oli katsellut haukottelevaa ja nenäänsä nuoleskelevaa kuvajaistaan noin 
 
 Minusta ainakin näytti siltä kuin se olisi yrittänyt selvittää katseleeko se itseään.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_Rmt_mX3CDYEIhgb3AuuSa/blogi/IMG_20160726_101217-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACuKFxAIIkf5uM5E6g1zpjfa/blogi/IMG_20160726_101217.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_20160726_101217-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACuKFxAIIkf5uM5E6g1zpjfa/blogi/IMG_20160726_101217.jpg)
 
 Tämä kuva ei liity yllä kuvattuun tapaukseen.
 

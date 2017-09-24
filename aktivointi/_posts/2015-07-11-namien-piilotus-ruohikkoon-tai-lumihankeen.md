@@ -3,7 +3,7 @@ title: "Namien piilotus ruohikkoon tai lumihankeen"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADzADjYVBu4GwblsYeD-Naea/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956-245px.jpg
   thumb:
 ---
 
@@ -17,8 +17,8 @@ Ulkona käytän aina parempia nameja kuin sisällä, jotta Mikin motivaatio etsi
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABcF9gc4u3K5zs7qJG6QIBza/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_tRoRrBfDq7I7AdEb4w_xa/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_tRoRrBfDq7I7AdEb4w_xa/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACKf7iup5KJhSiam4tvJFtaa/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23983_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACtTCK3wRxoCR43oUP6PTcPa/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23983_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23983_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACtTCK3wRxoCR43oUP6PTcPa/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23983_2.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABc6oHq584I_mkNOtI4UClta/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC27428_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAfYJUIihNkK9Ks3Xao1TtLa/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC27428_2.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC27428_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAfYJUIihNkK9Ks3Xao1TtLa/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC27428_2.jpg)

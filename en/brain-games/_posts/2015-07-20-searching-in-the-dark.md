@@ -3,7 +3,7 @@ title: "Searching in the dark"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADCNyy51Ch-GfXImBVk_KA_a/aktivointi/etsiminen-pimeassa/DSC29829_-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsiminen-pimeassa/DSC29829_-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/searching-in-the-dark/
@@ -23,4 +23,4 @@ You can do the same thing if you have a windowless room even if it's bright outs
 
 You can also play this game outside. But when it's dark outside, these is a possibility that your dog also eats something else he finds that you can't see, like paper tissues. So we let Miki search treats outside mostly in the daylight, not in the dark. But if you have an own yard, go ahead.
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADw7Rz6cI_ZK08zTZQBvhIca/aktivointi/etsiminen-pimeassa/DSC29829_-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOl9pYL4Zbe8AzM--gLbhDa/aktivointi/etsiminen-pimeassa/DSC29829_.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsiminen-pimeassa/DSC29829_-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOl9pYL4Zbe8AzM--gLbhDa/aktivointi/etsiminen-pimeassa/DSC29829_.jpg)

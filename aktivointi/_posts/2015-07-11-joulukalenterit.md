@@ -3,7 +3,7 @@ title: "Joulukalenterit"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA2qizwdW6GowcmpCc5oN9Xa/aktivointi/joulukalenterit/DSC59121-245px.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59121-245px.jpg
   thumb:
 ---
 
@@ -23,34 +23,34 @@ Laitoin tyhjän muovilevyn koloihin [lohitahnaa](http://clk.tradedoubler.com/cli
 
 ---
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABafoGrmou6o8o61D8S_F8Sa/aktivointi/joulukalenterit/DSC59065-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAEOI0WAwhSsOwFzQ00uu_va/aktivointi/joulukalenterit/DSC59065.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59065-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAEOI0WAwhSsOwFzQ00uu_va/aktivointi/joulukalenterit/DSC59065.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACs9OZfiQtU352a7Rqwj6nIa/aktivointi/joulukalenterit/DSC59082-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAbG2F2jaPOsG5OzFT9i3oXa/aktivointi/joulukalenterit/DSC59082.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59082-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAbG2F2jaPOsG5OzFT9i3oXa/aktivointi/joulukalenterit/DSC59082.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC97FFQuxsSo1Zt4EPa9prMa/aktivointi/joulukalenterit/DSC59121-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACGWvd5X-kj0CQH5Fnp6uc6a/aktivointi/joulukalenterit/DSC59121.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59121-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACGWvd5X-kj0CQH5Fnp6uc6a/aktivointi/joulukalenterit/DSC59121.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABBpe9vzyiJ8S9BEUebAJEPa/aktivointi/joulukalenterit/DSC59190-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADzQquaaoam8mY4k5Wy-_kxa/aktivointi/joulukalenterit/DSC59190.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59190-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADzQquaaoam8mY4k5Wy-_kxa/aktivointi/joulukalenterit/DSC59190.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACxq7RKooGlxVuce31SCriVa/aktivointi/joulukalenterit/DSC59233-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACZkktfkQprfLpUSw4gUj0ga/aktivointi/joulukalenterit/DSC59233.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59233-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACZkktfkQprfLpUSw4gUj0ga/aktivointi/joulukalenterit/DSC59233.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAIrxiBebLBk5QFFG0U4BF6a/aktivointi/joulukalenterit/DSC59250-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABRCcU_Qz_xGsWxWQcMXX0-a/aktivointi/joulukalenterit/DSC59250.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59250-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABRCcU_Qz_xGsWxWQcMXX0-a/aktivointi/joulukalenterit/DSC59250.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAE7RJh0LpKy3l0vzgr7Kw7a/aktivointi/joulukalenterit/DSC59057-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABur-JoffunzY_EuqRwQJX2a/aktivointi/joulukalenterit/DSC59057.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59057-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABur-JoffunzY_EuqRwQJX2a/aktivointi/joulukalenterit/DSC59057.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADG6dUq57_zrWU-gjmSss2Ca/aktivointi/joulukalenterit/DSC59352-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAHMYX80Fegs9UnETgbiWIva/aktivointi/joulukalenterit/DSC59352.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59352-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAHMYX80Fegs9UnETgbiWIva/aktivointi/joulukalenterit/DSC59352.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACcu8L4niWGJRHfBDLwCPbqa/aktivointi/joulukalenterit/DSC59357-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABwyMimbKC6XuXDJ2NQE6wka/aktivointi/joulukalenterit/DSC59357.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59357-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABwyMimbKC6XuXDJ2NQE6wka/aktivointi/joulukalenterit/DSC59357.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABbfCJ3Slkfh5llCr1nNYcUa/aktivointi/joulukalenterit/DSC59408-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABEOw7dVr9rwSv5k1v2wdgda/aktivointi/joulukalenterit/DSC59408.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59408-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABEOw7dVr9rwSv5k1v2wdgda/aktivointi/joulukalenterit/DSC59408.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACk7w07OHgU60riAqK-uUYBa/aktivointi/joulukalenterit/DSC60440-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABk_-QHNhdXskDNDG7s9Zb2a/aktivointi/joulukalenterit/DSC60440.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC60440-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABk_-QHNhdXskDNDG7s9Zb2a/aktivointi/joulukalenterit/DSC60440.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACTG-ux4wWUbPv0V8XfhW3Xa/aktivointi/joulukalenterit/DSC60457-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABgbKFZ9AQXaYt2IjE4Ks0Ua/aktivointi/joulukalenterit/DSC60457.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC60457-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABgbKFZ9AQXaYt2IjE4Ks0Ua/aktivointi/joulukalenterit/DSC60457.jpg)
 
 Tavarakalenterista peräisin olevaa lokerikkoa on käytetty tehtävässä [Fleecerullat](/aktivointi/fleecerullat/):
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADuibprCezrzWbqbjVIKV_Za/aktivointi/fleecerullat/DS09098-800px.jpg)](/aktivointi/fleecerullat/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecerullat/DS09098-800px.jpg)](/aktivointi/fleecerullat/)
 
 ja myös tehtävässä [Lokerikko](/aktivointi/lokerikko/):
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADDCFAktY3a_YN1t3TJiDEba/aktivointi/lokerikko/DS08655-800px.jpg)](/aktivointi/lokerikko/)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lokerikko/DS08655-800px.jpg)](/aktivointi/lokerikko/)
