@@ -45,6 +45,8 @@ Here's frozen wet food with just one cutter in the middle. Perfect for hot summe
 
 [![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-drommar-muotit/DS60181-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACcsBymqzAcNKEWD0kWCEwGa/aktivointi/ikean-drommar-muotit/DS60181.jpg)
 
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABPt-vcrvg-V4wfg1f5YM2Ta/aktivointi/ikean-drommar-muotit/DS60937-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABbnMblAhsowUXPGzPBOJ4ia/aktivointi/ikean-drommar-muotit/DS60937.jpg)
+
 This set has been used also in the [Towel rockets](/en/brain-games/towel-rockets/) game:
 
 [![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pyyheraketit/DS41785-800px.jpg)](/en/brain-games/towel-rockets/)
