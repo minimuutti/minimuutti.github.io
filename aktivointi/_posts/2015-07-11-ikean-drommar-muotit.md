@@ -43,7 +43,7 @@ Tässä on jäädytettyä märkäruokaa, joka sopii täydellisesti kuumiin kesä
 
 [![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-drommar-muotit/DS60181-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACcsBymqzAcNKEWD0kWCEwGa/aktivointi/ikean-drommar-muotit/DS60181.jpg)
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABPt-vcrvg-V4wfg1f5YM2Ta/aktivointi/ikean-drommar-muotit/DS60937-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABbnMblAhsowUXPGzPBOJ4ia/aktivointi/ikean-drommar-muotit/DS60937.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-drommar-muotit/DS60937-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABbnMblAhsowUXPGzPBOJ4ia/aktivointi/ikean-drommar-muotit/DS60937.jpg)
 
 Näitä muotteja on käytetty myös tehtävässä [Pyyheraketit](/aktivointi/pyyheraketit/):
 
