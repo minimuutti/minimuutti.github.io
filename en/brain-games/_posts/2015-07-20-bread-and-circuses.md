@@ -17,7 +17,7 @@ In addition you need a ball and two different kinds (different values) of treats
 
 The idea is that the dog (retrieves and) places the ball on the target. If he puts it into the larger circle he wins a kibble and if he manages to put the ball into the smaller circle he wins a better treat.
 
-Miki got the idea of this game super fast, because he already knew how to collect toys into a basket - which I also taught him with tennisballs.
+Miki got the idea of this game super fast, because he already knew how to collect toys into a basket - which I also taught him with tennis balls.
 
 [![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB8CWFIy15CSGTO8wu3Tvb1a/aktivointi/leipaa-ja-sirkushuveja/DS61391-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABCtsttETVsVDdUVvRXxNf0a/aktivointi/leipaa-ja-sirkushuveja/DS61391.jpg)
 
