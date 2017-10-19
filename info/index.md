@@ -37,6 +37,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 19.10.2017 Lisätty uusi aktivointivinkki; [Leipää ja sirkushuveja](/aktivointi/leipaa-ja-sirkushuveja/)
 * 25.9.2017 Lisätty uusia valokuvia kategoriaan; [Syksy](/valokuvaus/luontokuvat/syksy/)
 * 25.9.2017 Päivitetty aktivointivinkki; [Ikean Drömmar muotit](/aktivointi/ikean-drommar-muotit/)
 * 12.9.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
