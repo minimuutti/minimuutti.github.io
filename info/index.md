@@ -37,6 +37,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 26.12.2017 Päivitetty aktivointivinkki; [JW Hol-ee Roller](/aktivointi/jw-hol-ee-roller/)
 * 26.12.2017 Lisätty uusi aktivointilelu; [PetProjekt Holobal](/aktivointilelut/petprojekt-holobal/)
 * 19.10.2017 Lisätty uusi aktivointivinkki; [Leipää ja sirkushuveja](/aktivointi/leipaa-ja-sirkushuveja/)
 * 25.9.2017 Lisätty uusia valokuvia kategoriaan; [Syksy](/valokuvaus/luontokuvat/syksy/)

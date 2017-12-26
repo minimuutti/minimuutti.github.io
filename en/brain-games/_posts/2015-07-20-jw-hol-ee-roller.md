@@ -41,6 +41,20 @@ It took Miki under 10 minutes to get all the kibble out.
 
 [![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jw-hol-ee-roller/DSC49932-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAuNWTNiQ2PDMTSJUaB8xC8a/aktivointi/jw-hol-ee-roller/DSC49932.jpg)
 
+You can alter this game if you secure the ball onto something.
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAmGRNwEXStexUoZuG6PJ93a/aktivointi/jw-hol-ee-roller/DS61676-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADroOaloD4Jq1K975HnRKnva/aktivointi/jw-hol-ee-roller/DS61676.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAZk0LVUA6uKSlbmdvpWqhea/aktivointi/jw-hol-ee-roller/DS61697-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABOsH9Sqk0kW2wujOBDaLIBa/aktivointi/jw-hol-ee-roller/DS61697.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABYnrB8tWWdW2Sld7sxxpaaa/aktivointi/jw-hol-ee-roller/DS61712-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACXJkYfjDatMti2pERQNtTna/aktivointi/jw-hol-ee-roller/DS61712.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB4ZW1JYFwo4zzkHJCfed_Ja/aktivointi/jw-hol-ee-roller/DS61720-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAmf-tzywVlKED3ctSdcFWta/aktivointi/jw-hol-ee-roller/DS61720.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADzaVOiGuIMbartv5C0cmLTa/aktivointi/jw-hol-ee-roller/DS61723-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAHV1iwZg6HgcurIp_gq2spa/aktivointi/jw-hol-ee-roller/DS61723.jpg)
+
+[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAWh_8Ta-LnylbzU1LceyPEa/aktivointi/jw-hol-ee-roller/DS61786-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAX4RoBAOlL22KUng2GNbZOa/aktivointi/jw-hol-ee-roller/DS61786.jpg)
+
 ### Paper balls
 
 I made 10 paper balls, which I tucked inside the ball. I put some kibble inside each paper ball and when I had tucked all the paper balls inside the ball, I put some extra treats in between the paper balls.
