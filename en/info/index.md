@@ -36,6 +36,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2017-12-26 New treat dispenser review; [PetProjekt Holobal](/en/treat-dispensers/petprojekt-holobal/)
 * 2017-10-19 New brain game post; [Bread and circuses](/en/brain-games/bread-and-circuses/)
 * 2017-09-25 New photos added in category; [Autumn](/en/photography/finnish-nature/autumn/)
 * 2017-09-25 Updated brain game post; [Ikea's Drömmar set](/en/brain-games/ikeas-drommar-set/)
