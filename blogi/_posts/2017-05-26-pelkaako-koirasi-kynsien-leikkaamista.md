@@ -11,9 +11,11 @@ Pelon voi siedättää pois helposti, kunhan on kärsivällinen. Siedättämises
 
 Ajatellaan nyt sellaista, että koirasi pelkää kynsien leikkaamista. Se on tottunut yhdistämään kynsienleikkuun kynsisaksiin sekä esimerkiksi kylpyhuoneeseen – se pelkää heti, kun haet kynsisakset ja menet kylpyhuoneeseen niiden kanssa. Jos koirasi TODELLA pelkää kynsisaksia  (esimerkiksi piiloutuu sängyn alle nähdessään ne) ­osta tilalle joku toinen väline, vaikkapa kynsipihdit. Jos koirasi pelko on lievää, niin voit ihan hyvin jatkaa samoilla välineillä kuin ennenkin.
 
-Sitten kun koirasi on rauhallinen, ala totuttamaan sitä näihin uusiin pihteihin. Huomaa, ettei koirasi vielä tiedä mitä pihdeillä tehdään, joten sen asenne niihin on todennäköisesti neutraali tai kiinnostunut. Älä ruoki koirasi pelkoa, vaan muista itsekin suhtautua uuteen kynsipihteihin sekä opetustilanteeseen rauhallisesti ja neutraalisti.
+Sitten kun koirasi on rauhallinen, ala totuttamaan sitä näihin uusiin pihteihin. Huomaa, ettei koirasi vielä tiedä mitä pihdeillä tehdään, joten sen asenne niihin on todennäköisesti neutraali tai kiinnostunut. Älä ruoki koirasi pelkoa, vaan muista itsekin suhtautua uusiin kynsipihteihin sekä opetustilanteeseen rauhallisesti ja neutraalisti.
 
 Tämän vanhan mörön pois kouluttaminen kannattaa aloittaa ajoissa, eli vähintään paria viikkoa ennen, kun koirasi kynnet pitää leikata. Jos ennen leikkasit koirasi kynnet kylpyhuoneessa, niin aloittakaa harjoitukset vaikka olohuoneen lattialla.
+
+Tiesithän myös sen, ettei koiraa saa koskaan kutsua luokse, kun aiot tehdä sille jotain mistä se ei pidä. Jos kutsut koiran luoksesi vaikka vain muutamiakin kertoja ennen ikävää toimenpidettä, niin koira oppii todella äkkiä ettei luoksetulovihjettä kannata noudattaa missään tilanteessa, koska luoksetulosta voi seurata "rangaistus".
 
 Otin nämä valokuvat yhdellä kerralla, koska Mikillä ei ole mitään ongelmia kynsien leikkaamisessa. Todellisuudessa tässä kannattaa varautua ainakin 20 harjoituskertaan.
 
@@ -69,7 +71,7 @@ Vasta useiden harjoitusten jälkeen kannattaa oikeasti alkaa leikkaamaan koiran 
 
 [![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/siedattaminen-sheippaamalla/DS55752-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA9K3H_lpnVMPRyNI0V1b8ma/aktivointi/siedattaminen-sheippaamalla/DS55752.jpg)
 
-Voit lisätä siedätyksessä välivaiheita koirasi tarpeen mukaan. On aina parempi edetä hitaasti kohti tavoitetta, kuin korjata omgelmia, jotka johtuvat liiasta kiirehtimisestä.
+Voit lisätä siedätyksessä välivaiheita koirasi tarpeen mukaan. On aina parempi edetä hitaasti kohti tavoitetta, kuin korjata ongelmia, jotka johtuvat liiasta kiirehtimisestä.
 
 Samaa koulutusmallia voi käyttää melkein mihin tahansa siedätykseen, esimerkiksi jos koirasi haukkuu vaikka ovikelloa. Voit vaikkapa ostaa tilalle uuden ovikellon, jossa on erilainen ääni, kuin vanhassa ovikellossa ja lähteä kouluttamaan koirallesi rauhallista suhtautumista ovikelloon aivan puhtaalta pöydältä.
 
