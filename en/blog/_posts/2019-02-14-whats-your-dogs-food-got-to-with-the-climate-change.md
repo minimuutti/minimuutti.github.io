@@ -62,7 +62,9 @@ You should remember, that the only way to make a difference is by choosing. By c
 If one person thinks they can't make difference, multiply that by a thousand or by a hundred thousand. That makes a difference! Remember, many small streams make one big river.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS62463-800px.jpg)
+
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS62467-800px.jpg)
+
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS62476-800px.jpg)
 
 2019-02-14
