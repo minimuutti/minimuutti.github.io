@@ -37,6 +37,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 14.2.2019 Päivitetty blogipostausta: [Pelkääkö koirasi kynsien leikkaamista?](/blogi/pelkaako-koirasi-kynsien-leikkaamista/)
 * 26.12.2017 Päivitetty aktivointivinkki; [JW Hol-ee Roller](/aktivointi/jw-hol-ee-roller/)
 * 26.12.2017 Lisätty uusi aktivointilelu; [PetProjekt Holobal](/aktivointilelut/petprojekt-holobal/)
 * 19.10.2017 Lisätty uusi aktivointivinkki; [Leipää ja sirkushuveja](/aktivointi/leipaa-ja-sirkushuveja/)
@@ -61,7 +62,6 @@ Uudet ja viimeksi päivitetyt osiot:
 * 24.6.2017 Päivitetty aktivointivinkki; [Suihkepullot](/aktivointi/suihkepullot/)
 * 10.6.2017 Lisätty uusi postaus Blogiin; [Muuttaminen koiran kanssa](/blogi/muuttaminen-koiran-kanssa/)
 * 29.5.2017 Lisätty uusia valokuvia kategoriaan; [Kevät](/valokuvaus/luontokuvat/kevat/)
-* 26.5.2017 Lisätty uusi postaus Blogiin; [Pelkääkö koirasi kynsien leikkaamista?](/blogi/pelkaako-koirasi-kynsien-leikkaamista/)
 * 31.3.2017 Päivitetty aktivointivinkki; [Pyyhelasagne](/aktivointi/pyyhelasagne/)
 * 15.3.2017 Lisätty uusi postaus Blogiin; [Koirani ei motivoidu ruokapalkasta](/blogi/koirani-ei-motivoidu-ruokapalkasta/)
 * 27.1.2017 Lisätty uusi postaus Blogiin; [Koirien kehonkieli - häntä kertoo mielentilan](/blogi/koirien-kehonkieli-hanta-kertoo-mielentilan/)

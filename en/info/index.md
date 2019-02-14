@@ -36,6 +36,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2019-02-14 Updated post; [How to desensitize a dog to nail clipping](/en/blog/how-to-desensitize-a-dog-to-nail-clipping/)
 * 2017-12-26 Updated brain game post; [JW Hol-ee Roller](/en/brain-games/jw-hol-ee-roller/)
 * 2017-12-26 New treat dispenser review; [PetProjekt Holobal](/en/treat-dispensers/petprojekt-holobal/)
 * 2017-10-19 New brain game post; [Bread and circuses](/en/brain-games/bread-and-circuses/)
@@ -60,7 +61,6 @@ New and recently updated posts:
 * 2017-06-24 Updated brain game post; [Spray bottles](/en/brain-games/spray-bottles/)
 * 2017-06-10 New post added into the Blog; [Moving with your dog](/en/blog/moving-with-your-dog/)
 * 2017-05-29 New photos added in category; [Spring](/en/photography/finnish-nature/spring/)
-* 2017-05-26 New post added into the Blog; [How to desensitize a dog to nail clipping](/en/blog/how-to-desensitize-a-dog-to-nail-clipping/)
 * 2017-03-31 Updated brain game post; [Towel lasagna](/en/brain-games/towel-lasagna/)
 * 2017-03-15 New post added into the Blog; [No food motivation?](/en/blog/no-food-motivation/)
 * 1017-01-27 New post added into the Blog; [Dog body language: tail - a dog's state of mind](/en/blog/dog-body-language-tail-dogs-state-of-mind/)

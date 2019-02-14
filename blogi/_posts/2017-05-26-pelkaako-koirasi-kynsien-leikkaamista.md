@@ -13,7 +13,7 @@ Ajatellaan nyt sellaista, että koirasi pelkää kynsien leikkaamista. Se on tot
 
 Sitten kun koirasi on rauhallinen, ala totuttamaan sitä näihin uusiin pihteihin. Huomaa, ettei koirasi vielä tiedä mitä pihdeillä tehdään, joten sen asenne niihin on todennäköisesti neutraali tai kiinnostunut. Älä ruoki koirasi pelkoa, vaan muista itsekin suhtautua uusiin kynsipihteihin sekä opetustilanteeseen rauhallisesti ja neutraalisti.
 
-Tämän vanhan mörön pois kouluttaminen kannattaa aloittaa ajoissa, eli vähintään paria viikkoa ennen, kun koirasi kynnet pitää leikata. Jos ennen leikkasit koirasi kynnet kylpyhuoneessa, niin aloittakaa harjoitukset vaikka olohuoneen lattialla.
+Tämän vanhan mörön pois kouluttaminen kannattaa aloittaa ajoissa, eli vähintään paria viikkoa ennen, kun koirasi kynnet pitää leikata. Jos ennen leikkasit koirasi kynnet kylpyhuoneessa, niin aloittakaa harjoitukset vaikka olohuoneessa. Lattiaan kannattaa tässä vaiheessa kiinnittää huomiota; valitse sellainen paikka harjoituksiin, jossa koiran tassut ei luista.
 
 Tiesithän myös sen, ettei koiraa saa koskaan kutsua luokse, kun aiot tehdä sille jotain mistä se ei pidä. Jos kutsut koiran luoksesi vaikka vain muutamiakin kertoja ennen ikävää toimenpidettä, niin koira oppii todella äkkiä ettei luoksetulovihjettä kannata noudattaa missään tilanteessa, koska luoksetulosta voi seurata "rangaistus".
 
@@ -83,4 +83,4 @@ Siedätin Mikin myös pitämään tätä karvahattua :)
 
 [![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/siedattaminen-sheippaamalla/IMG29753-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACylf-rkESpk1M0Mi1TIGzSa/aktivointi/siedattaminen-sheippaamalla/IMG29753.jpg)
 
-26.5.2017
+14.2.2019
