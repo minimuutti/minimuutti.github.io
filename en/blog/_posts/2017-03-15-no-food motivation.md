@@ -98,7 +98,7 @@ So, ask your dog to do something that he knows for sure and praise him. If he lo
 
 Sometimes Miki is quite funny when I'm testing him with different rewards. You can see from a mile away as he's thinking that "go on and scratch/pet me already so we can get to the food" :D
 
-There are some situations when Miki excepts attention and petting as a reward, like when I come home from work. I have taught him to greed me calmly and for reward he gets lots of attention. Miki hasn't ever seen verbal praise as a reward. Verbal praise to him is only a mark that he did a right thing and then expects another reward for it. You can't get Miki to do much for a verbal praise or a toy reward but he sure is ready walk around the world for a single piece of dry kibble.
+There are some situations when Miki accepts attention and petting as a reward, like when I come home from work. I have taught him to greed me calmly and for reward he gets lots of attention. Miki hasn't ever seen verbal praise as a reward. Verbal praise to him is only a mark that he did a right thing and then expects another reward for it. You can't get Miki to do much for a verbal praise or a toy reward but he sure is ready walk around the world for a single piece of dry kibble.
 
 The most important thing is to find a thing or two that motivates your dog the most. It can be food, toys or almost anything else. It's also very important to make sure that your dog is provided with tasty and nutritious food. Such food that your dog is willing to work for.
 

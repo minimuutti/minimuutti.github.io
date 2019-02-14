@@ -69,7 +69,7 @@ Before you start creating all possible flavour combinations, you should know tha
 * oats and white rice
 * cucumber, pumpkin and zucchini
 * celery
-* salads, kale and spinach
+* salads, cabbage and spinach
 * parsley
 * broccoli, cauliflower and brussels sprout
 * asparagus

@@ -37,6 +37,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 14.2.2019 Lisätty uusi postaus Blogiin; [Ilmastonmuutos ja koiran ruokinta](/blogi/ilmastonmuutos-ja-koiran-ruokinta/)
 * 14.2.2019 Päivitetty blogipostausta: [Pelkääkö koirasi kynsien leikkaamista?](/blogi/pelkaako-koirasi-kynsien-leikkaamista/)
 * 26.12.2017 Päivitetty aktivointivinkki; [JW Hol-ee Roller](/aktivointi/jw-hol-ee-roller/)
 * 26.12.2017 Lisätty uusi aktivointilelu; [PetProjekt Holobal](/aktivointilelut/petprojekt-holobal/)

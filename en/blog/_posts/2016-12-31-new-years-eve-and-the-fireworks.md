@@ -21,7 +21,7 @@ You can also desensitize your dog to the sounds of fireworks by playing the soun
 
 As 31.12.2016 came we took Miki on his walk in the afternoon and I also provided him a lot of mental activation during the day so that he would have been as calm as possible in the evening.
 
-I knew that I couldn't toss him kibble the whole night so I froze him a Kong toy full of liver paté. I know that timing is very important in counter conditioning and I also knew that the general public is allowed to fire rockets starting at 18:00. I gave the Kong toy to Miki at 17:58 - just in time before the fireworks went off.
+I knew that I couldn't toss him kibble the whole night so I froze him a Kong toy full of liver paté. I know that timing is very important in counter conditioning and I also knew that the general public is allowed to fire rockets starting at 18:00. I gave the Kong toy to Miki at 17:58 - just in time before the fireworks started.
 
 We had closed all the blinds so he couldn't see the fireworks. I was so proud of Miki that even if he stressed a bit he was still able to lick the Kong clean in our livingroom floor despite of all the noise.
 
