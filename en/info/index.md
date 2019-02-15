@@ -12,8 +12,6 @@ Twitter: @minimuutti
 
 ![](https://lh3.googleusercontent.com/rUi_U-5Iu5bgA0h60ykYVrw8kV3k10DMccmLkt_t2Vs=w245)
 
-You can buy my photos in full resolution and without the watermark on [500px.com](https://500px.com/search?q=minimuutticom&type=market).
-
 If you find this site useful and you want to support me, you can donate free amount via Paypal or you can send bitcoins to the adress below:
 
 <p>

@@ -12,8 +12,6 @@ Twitter: @minimuutti
 
 ![](https://lh3.googleusercontent.com/rUi_U-5Iu5bgA0h60ykYVrw8kV3k10DMccmLkt_t2Vs=w245)
 
-Valokuviani voit ostaa täysikokoisena ilman vesileimaa [500px.com](https://500px.com/search?q=minimuutticom&type=market) -sivustolta.
-
 Mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani, niin voit lahjoittaa haluamasi summan Paypalin kautta:
 
 <p>
