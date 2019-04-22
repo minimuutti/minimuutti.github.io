@@ -11,7 +11,7 @@ Passing other dogs, cyclists or small children is difficult for many dogs and he
 
 I mainly focus here on how to pass other dogs, but you can apply same techniques for passing cyclists, skate boarders, small children or something else.
 
-Remember that your dog is always mirroring your feelings. If you're afraid when you and your dog are passing other dogs and if you assume that your dog is going to lunge and bark, then he propably will. If you are relaxed and trust your dog, he's going to cope better because he senses your trust.
+Remember that your dog is always mirroring your feelings. If you're afraid when you and your dog are passing other dogs and if you assume that your dog is going to lunge and bark, then he probably will. If you are relaxed and trust your dog, he's going to cope better because he senses your trust.
 
 You may also want to read this related blog post: [Are reactive dogs just highly sensitive?](https://minimuutti.com/en/blog/are-reactive-dogs-just-highly-sensitive/)
 
