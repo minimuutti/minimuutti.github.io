@@ -34,6 +34,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2019-04-22 New post added into the Blog; [Passing other dogs](/en/blog/passing-other-dogs/)
 * 2019-02-14 New post added into the Blog; [What's your dog's food got to with the climate change](/en/blog/whats-your-dogs-food-got-to-with-the-climate-change)
 * 2019-02-14 Updated blog post; [How to desensitize a dog to nail clipping](/en/blog/how-to-desensitize-a-dog-to-nail-clipping/)
 * 2017-12-26 Updated brain game post; [JW Hol-ee Roller](/en/brain-games/jw-hol-ee-roller/)
