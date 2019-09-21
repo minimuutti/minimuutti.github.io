@@ -35,13 +35,13 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 21.9.2019 Lisätty uusia valokuvia kategoriaan; [Syksy](/valokuvaus/luontokuvat/syksy/)
 * 22.4.2019 Lisätty uusi postaus Blogiin; [Ohittaminen](/blogi/ohittaminen/)
 * 14.2.2019 Lisätty uusi postaus Blogiin; [Ilmastonmuutos ja koiran ruokinta](/blogi/ilmastonmuutos-ja-koiran-ruokinta/)
 * 14.2.2019 Päivitetty blogipostausta: [Pelkääkö koirasi kynsien leikkaamista?](/blogi/pelkaako-koirasi-kynsien-leikkaamista/)
 * 26.12.2017 Päivitetty aktivointivinkki; [JW Hol-ee Roller](/aktivointi/jw-hol-ee-roller/)
 * 26.12.2017 Lisätty uusi aktivointilelu; [PetProjekt Holobal](/aktivointilelut/petprojekt-holobal/)
 * 19.10.2017 Lisätty uusi aktivointivinkki; [Leipää ja sirkushuveja](/aktivointi/leipaa-ja-sirkushuveja/)
-* 25.9.2017 Lisätty uusia valokuvia kategoriaan; [Syksy](/valokuvaus/luontokuvat/syksy/)
 * 25.9.2017 Päivitetty aktivointivinkki; [Ikean Drömmar muotit](/aktivointi/ikean-drommar-muotit/)
 * 12.9.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
 * 31.8.2017 Lisätty uusi aktivointivinkki; [Korallimatto](/aktivointi/korallimatto/)
