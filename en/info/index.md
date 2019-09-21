@@ -34,13 +34,13 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2019-09-21 New photos added in category; [Autumn](/en/photography/finnish-nature/autumn/)
 * 2019-04-22 New post added into the Blog; [Passing other dogs](/en/blog/passing-other-dogs/)
 * 2019-02-14 New post added into the Blog; [What's your dog's food got to with the climate change](/en/blog/whats-your-dogs-food-got-to-with-the-climate-change)
 * 2019-02-14 Updated blog post; [How to desensitize a dog to nail clipping](/en/blog/how-to-desensitize-a-dog-to-nail-clipping/)
 * 2017-12-26 Updated brain game post; [JW Hol-ee Roller](/en/brain-games/jw-hol-ee-roller/)
 * 2017-12-26 New treat dispenser review; [PetProjekt Holobal](/en/treat-dispensers/petprojekt-holobal/)
 * 2017-10-19 New brain game post; [Bread and circuses](/en/brain-games/bread-and-circuses/)
-* 2017-09-25 New photos added in category; [Autumn](/en/photography/finnish-nature/autumn/)
 * 2017-09-25 Updated brain game post; [Ikea's Drömmar set](/en/brain-games/ikeas-drommar-set/)
 * 2017-09-12 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
 * 2017-08-31 New brain game post; [Coral mat](/en/brain-games/coral-mat/)
