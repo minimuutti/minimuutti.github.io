@@ -57,4 +57,6 @@ New years eve is also coming soon. If your dog is afraif of the fireworks please
 
 Merry christmas and happy new year 2020!
 
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/joulumiki.jpg)
+
 21.12.2019

@@ -71,4 +71,6 @@ Uudenvuodenaatto on jo nurkan takana, joten jos koirasi pelkää ilotulitusta ni
 
 Minimuutti toivottaa kaikille oikein antoisaa vuotta 2020 ja muistakaa tehdä hyvää!
 
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/joulumiki.jpg)
+
 21.12.2019
