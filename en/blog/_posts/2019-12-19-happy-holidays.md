@@ -17,7 +17,7 @@ I don't just want to donate money from my bank account. I've always been hardwor
 
 ##### Start with something small
 
-Remember, that the donation doesn't need to be massive, even small things can help. For example if you have some pet food in your home your pet's don't want to eat, give the food to your local animal shelter rather than throwing it away. 
+Remember, that the donation doesn't need to be massive, even small things can help. For example if you have some pet food in your home your pets don't want to eat, give the food to your local animal shelter rather than throwing it away. 
 
 ##### Use your own strenghts
 
@@ -29,13 +29,13 @@ If you are a good baker or good at knitting, sewing or crocheting you should def
 
 Wash your neighbours car or mow their lawn or plow snow from their driveway for a small fee you can then donate. As a bonus you'll get a free workout :)
 
-Do consumer surveys and donate money the surveycompanies pay you. Surveys (in Finland) pay usually something between $0,1-$5 per survey, but there are also special surveys that can pay as much as $60 per survey. Those special ones are seldom available and you have to pass strict selection process to enter.
+Do consumer surveys and donate money the survey companies pay you. Surveys (in Finland) pay usually something between $0,1-$5 per survey, but there are also special surveys that can pay as much as $60 per survey. Those special ones are seldom available and you have to pass strict selection process to enter.
 
 Give a different (Christmas) gift this year. Especially if you aren't sure what to give someone, do a charity donation for them.
 
 ##### My charity work in 2019
 
-I manage to knit 48 pairs of children's wool socks. I offered the socks to my local animal shelter so they could sell them, but they didn't have any fairs coming soon. I donated the socks to the Salvation Army so they can give them to the children that most need them. Some of that yarn I made the socks with was donated to me, so thanks to the doner :)
+I manage to knit 48 pairs of children's wool socks. I offered the socks to my local animal shelter so they could sell them, but they didn't have any fairs coming soon. I donated the socks to the Salvation Army so they can give them to children that most need them. Some of that yarn I made the socks with was donated to me, so thanks to the doner :)
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC02790-800px.jpg)
 
@@ -43,11 +43,11 @@ I also made 29 [snuffle mats](https://minimuutti.com/en/brain-games/snuffle-mat/
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/fleecematot-800px.jpg)
 
-In Finland we have a recycling system for drinking bottles and beverage cans. We pay a small deposit fee ($0,10-$0,50) when we purchase any drink and we get the deposit back when we return the empty bottles and cans back to the store. Over 90% of all bottles and cans are returned in Finland, but still some people just throw them away. When I'm walking Miki I usually pick them up when I find them and return them to our store to get the deposits. I raise between $20-$30 per year by doing this. And this is really free money up for grabs :)
+In Finland we have a recycling system for drinking bottles and beverage cans. We pay a small deposit fee ($0,10-$0,50) when we purchase any drink and we get the deposit back when we return the empty bottles and cans back to the store. Over 90% of all bottles and cans are returned in Finland, but still some people just throw them away. When I'm walking Miki I usually pick them up when I find them and return them to our store to get the deposits. I raise between $20-$30 per year by doing this. And this really is free money up for grabs :)
 
 Then I answered to consumer surveys and donated some of that money, don't know how much exactly.
 
-I made one 50€ (about $56) donation as a gift to Finnish Animal Welfare Organization instead of buying something useless.
+I made one 50€ (about $56) donation as a gift for a friend to a Finnish Animal Welfare Organization instead of buying something useless.
 
 In addition I emptied my piggy bank and gave that money to my local shelter as well.
 
