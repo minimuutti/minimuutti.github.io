@@ -34,6 +34,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2019-12-21 New post added into the Blog; [Happy Holidays!](/en/blog/happy-holidays/)
 * 2019-09-21 New photos added in category; [Autumn](/en/photography/finnish-nature/autumn/)
 * 2019-04-22 New post added into the Blog; [Passing other dogs](/en/blog/passing-other-dogs/)
 * 2019-02-14 New post added into the Blog; [What's your dog's food got to with the climate change](/en/blog/whats-your-dogs-food-got-to-with-the-climate-change)
