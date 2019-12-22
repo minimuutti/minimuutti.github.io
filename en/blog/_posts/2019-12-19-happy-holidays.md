@@ -47,13 +47,13 @@ In Finland we have a recycling system for drinking bottles and beverage cans. We
 
 Then I answered to consumer surveys and donated some of that money, don't know how much exactly.
 
-I made one 50€ (about $56) donation as a gift for a friend to a Finnish Animal Welfare Organization instead of buying something useless.
+I made one 50€ (about $56) donation as a gift for a friend to a Finnish animal welfare organization SEY instead of buying something useless.
 
 In addition I emptied my piggy bank and gave that money to my local shelter as well.
 
 ##### New year - fresh start
 
-New years eve is also coming soon. If your dog is afraif of the fireworks please read [this](https://minimuutti.com/en/blog/new-years-eve-and-the-fireworks/) post.
+New years eve is also coming soon. If your dog is afraid of the fireworks please read [this](https://minimuutti.com/en/blog/new-years-eve-and-the-fireworks/) post.
 
 Merry christmas and happy new year 2020!
 
