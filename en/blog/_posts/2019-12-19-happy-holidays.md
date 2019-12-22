@@ -35,7 +35,7 @@ Give a different (Christmas) gift this year. Especially if you aren't sure what 
 
 ##### My charity work in 2019
 
-I manage to knit 48 pairs of children's wool socks. I offered the socks to my local animal shelter so they could sell them, but they didn't have any fairs coming soon. I donated the socks to the Salvation Army so they can give them to children that most need them. Some of that yarn I made the socks with was donated to me, so thanks to the doner :)
+I managed to knit 48 pairs of children's wool socks. I offered the socks to my local animal shelter so they could sell them, but they didn't have any fairs coming soon. I donated the socks to the Salvation Army so they can give them to children that most need them. Some of that yarn I made the socks with was donated to me, so thanks to the doner :)
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC02790-800px.jpg)
 
