@@ -35,6 +35,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 3.2.2020 Lisätty uusi postaus Blogiin; [Säännöt](/blogi/saannot/)
 * 21.12.2019 Lisätty uusi postaus Blogiin; [Joulutervehdys](/blogi/joulutervehdys/)
 * 21.9.2019 Lisätty uusia valokuvia kategoriaan; [Syksy](/valokuvaus/luontokuvat/syksy/)
 * 22.4.2019 Lisätty uusi postaus Blogiin; [Ohittaminen](/blogi/ohittaminen/)
