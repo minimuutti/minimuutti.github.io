@@ -21,7 +21,7 @@ This was Miki's first move. Actually, this was his second move because he lived 
 
 I knew it would be good thing for my new puppy if he could get something familiar with him from his breeder. We talked about this with the breeder beforehand and she promised to give piece of a blanket with him. This blanket was the one that all the puppies had slept on so I was very pleased. Miki would get the familiar scent from his litter with him and it would ease his yearning within the first night away from his mom.
 
-I was very surprised when we went to pick him up from the breeder. She gave me piece of that blanket as she had promised but she told us she had just washed the blanket before cutting it to pieces because it had been dirty. Oh no. She had just washed all the familiar scent off the blanket and as I predicted it didn't bring any comfort to Miki as he whined through the first night with us yearning after his mom and siblings.
+I was very surprised when we went to pick him up from the breeder. She gave me piece of that blanket as she had promised but she told us she had just washed the blanket before cutting it to pieces because it had been dirty. Oh no! She had just washed all the familiar scent off the blanket and as I predicted it didn't bring any comfort to Miki as he whined through the first night with us yearning after his mom and siblings.
 
 I made a desicion that this time I would do everything I could to make this move as easy as possible for Miki. We have a new move coming in six months of time after this move so and I want things to go as smoothly as possible for the second time also.
 
@@ -97,7 +97,7 @@ We cleaned our new apartment a day before we moved in. I left Miki's fleece mat 
 
 If you have any issues with your dog (nail clipping, doorbell, a mailman or whatever) a move is a great opportunity to tackle the issues. The new setting (new home, new smells, new sounds, new surroundings etc.) allows you to start off from a clean slate.
 
-You can read more about desencitizing from [here](/en/brain-games/desensitizing/).
+You can read more about desensitizing from [here](/en/brain-games/desensitizing/).
 
 Fortunately Miki hasn't ever had any major issues. We do have some issues when we are drying him after a shower. Miki lets me dry him with a towel but he whines a lot so he's not very pleased. I can't dry a wet dog anywhere else but in the bathroom so my choice was to show the new bathroom in a different light to him after we moved.
 

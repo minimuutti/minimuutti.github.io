@@ -15,7 +15,7 @@ When we are talking about rules, some of us may associate it with punishing the 
 
 On the contrary, this post is about creating invisible boundaries and rules. The dog knows what is right (he gets what he wants and everybody is comfortable) and what is wrong (he don't get what he wants).
 
-Many of us thinks "How can I say no to that cute furball?". Well - you shouldn't. You should avoid saying (and shouting) "no!" as much as you can, because the word no doesn't teach anything to the dog. What you should do instead is to teach the right way.
+Many of us thinks "How can I say no to that cute furball?" well - you shouldn't. You should avoid saying (and shouting) "no!" as much as you can, because the word no doesn't teach anything to the dog. What you should do instead is to teach the right way.
 
 This is one example how the word "no" doesn't teach anybody anything. A person goes to a new job in brand new red blouse. The boss isn't happy and says: "No, red blouses are not allowed here. Next day the person wears a yellow blouse and the boss is not happy at all and says: "No, yellow blouses are not allowed here". Next day the person ponders what the heck she should wear and puts on a blue blouse and the same thing happens again, because blue blouses are not allowed either. Everybody understands that it would've been fair to tell the employee before the first day, that for example only white shirts were allowed. Denial didn't teach anything and the employee only got frustrated.
 
@@ -63,7 +63,7 @@ Here is one example of a fictional dog that always have zoomies and rampage in t
 
 The only way to change the situation is to left the dog completely without attention when he misbehaves and reward him when he has settled down. But in this case too the back chaining must be kept in mind. If the dog is rewarded immediately when he lays down the dog learns "rampage+laying down equals reward" not "laying down equals reward". So he should be rewarded like a minute or two after laying down. Or if possible reward him when he's calm, before the zoomies start.
 
-I have taught Miki laying down calmly by having a few treats in my pocket all the time and when Miki is laying down minding his own business (but not sleeping) I randomly give him a treat reward. I give him only a few rewards a week and I have done this for years now. In the beginning however I gave him a few treats every day.
+I have taught Miki to lay down calmly by having a few treats in my pocket all the time and when Miki is laying down minding his own business (but not sleeping) I randomly give him a treat reward. I give him only a few rewards a week and I have done this for years now. In the beginning however I gave him a few treats every day.
 
 #### Following the rules
 

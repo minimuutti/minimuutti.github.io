@@ -48,7 +48,7 @@ Here are drawings that shows the right way to pass other dogs, and two wrong way
 
 Brawling is due to more than just unintentional walking straight towards.
 
-It may have begun gradually without the human even noticing. The dog may have been insecure or afraid of some other dog on something else or got scared of other dog or something else (like wind or thunder or anything) and somehow connected it to other dogs. Alternatively the walker may have been insecure or afraid of something and the dog have thought that the walker is afraid of the on coming dog.
+It may have begun gradually without the human even noticing. The dog may have been insecure or afraid of some other dog or something else (like wind or thunder or anything) and somehow connected it to other dogs. Alternatively the walker may have been insecure or afraid of something and the dog have thought that the walker is afraid of the on coming dog.
 
 At that moment the dog has likely shown various body language signals to the walker to get out of the situation but the walker haven't noticed it. The only way now is to banish the on comers by any means necessary, which is shown as growling, lunging, barking, showing teeth etc.
 
@@ -58,7 +58,7 @@ The dog has now learned, that brawling is the way to banish the on comers. That 
 
 Dogs communicate mainly with body language. You can read more about body language from these blog posts: [Dog body language - calming signals](https://minimuutti.com/en/blog/dog-body-language-calming-signals/) and [Dog body language: tail - a dog's state of mind](https://minimuutti.com/en/blog/dog-body-language-tail-dogs-state-of-mind/).
 
-Dogs use body language to communicate with other dogs, but they also use it to communicate with humans as well. It's very important to learn at least the basics of dog body language so you can read your, dog but on coming dogs as well. Your dog will ALWAYS tell you his opinion of the on comers and it's your responsibility to understand it.
+Dogs use body language to communicate with other dogs, but they also use it to communicate with humans as well. It's very important to learn at least the basics of dog body language so you can read your dog but on coming dogs as well. Your dog will ALWAYS tell you his opinion of the on comers and it's your responsibility to understand it.
 
 If your dog's behaviour doesn't change at all (and you are sure about it) then it's likely to pass other dogs successfully.
 

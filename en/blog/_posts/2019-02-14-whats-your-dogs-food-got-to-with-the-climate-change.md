@@ -49,7 +49,7 @@ Most dog food brands have a wide selection so you can ditch red meat and choose 
 
 And because Miki's food produces lots of greenhouse gasses, we compensate that by eating only vegan food ourselves.
 
-Most dogs like vegetables and some fruits. Miki loves boiled carrot, sweet potato, broccoli, cabbage and many more vegetables. Obesity in dogs is also a great problem so why not provide a low fat vegatable treat for your dog every now and then? I always have some prepared vegetables for Miki in the fridge, so at late evenings when Miki is still hungry after his dinner I give him some vegetables because they won't make him fat. You can try variety of different vegetables to find out what your dog likes, but remember to boil root vegetables first so they won't clog your dog's bowels.
+Most dogs like vegetables and some fruits. Miki loves boiled carrot, sweet potato, broccoli, cabbage and many other vegetables. Obesity in dogs is also a great problem so why not provide a low fat vegatable treat for your dog every now and then? I always have some prepared vegetables for Miki in the fridge, so at late evenings when Miki is still hungry after his dinner I give him some vegetables because they won't make him fat. You can try variety of different vegetables to find out what your dog likes, but remember to boil root vegetables first so they won't clog your dog's bowels.
 
 If you are unsure what you can or can't feed to your dog you can check it [here](https://minimuutti.com/en/blog/ice-cream-for-hot-summer-days/).
 
