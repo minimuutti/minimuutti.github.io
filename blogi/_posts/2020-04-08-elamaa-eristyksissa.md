@@ -33,7 +33,7 @@ Miki ei luonteeltaan ole leikkijä, mutta se kuitenkin innostuu kaikesta tekemis
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC59046-800px.jpg)
 
-Nyt on myös aikaa askarrella koiralle itsetehtyjä aktivointipelejä ja niihin löydät vinkkejä sekä kuvalliset ohjeet [täältä](http://https://minimuutti.com/aktivointi/).
+Nyt on myös aikaa askarrella koiralle itsetehtyjä aktivointipelejä ja niihin löydät vinkkejä sekä kuvalliset ohjeet [täältä](https://minimuutti.com/aktivointi/).
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC51366-800px.jpg)
 
