@@ -17,7 +17,7 @@ Many of us have our homes already cleaned from top to bottom, all jigsaw puzzles
 
 This is a unique chance to teach something completely new to your dog. Or if your dog has any issues or unwanted behaviours, now is your chance to tackle them too. 
 
-In winter time Miki likes to sleep outside on our terrace. In Finland during winter time the temperatures can fall as low as -25°F so it's not possible to leave the door open for Miki to come and go. I solved the problem by purchasing a doorbell (with a large button) just for Miki and taught him to ring the bell when he wishes to come back inside. Miki has now rang the doorbell over five years whenever he wants to get back in. I taught him the doorbell before I let him go outside just by himself so he haven't form any unwanted behaviours like barking on the door or scratching the door to get back in.
+In winter time Miki likes to sleep outside on our terrace. In Finland during winter time the temperatures can fall as low as -25°F so it's not possible to leave the door open for Miki to come and go. I solved the problem by purchasing a doorbell (with a large button) just for Miki and taught him to ring the bell when he wishes to come back inside. Miki has now rang the doorbell over five years whenever he wants to get back in. I taught him the doorbell before I let him go outside just by himself so he hasn't formed any unwanted behaviours like barking on the door or scratching the door to get back in.
 
 Teaching replacement behaviours to the unwanted ones requires more time and a lot of repetition. In normal circumstances most of us don't have the time to do it so if your dog has any issues you should now grab the bull by the horns.
 
@@ -57,7 +57,7 @@ You can also check the tricks Miki masters in [here](https://minimuutti.com/en/t
 
 You can do some charity work despite the Corona restrictions.
 
-If you are good in arts and crafts or knitting or something like that, you can prepare items for charity fairs for advance. There will be a great need for charity after the Corona episode and you may as well prepare for it now when you have extra time.
+If you are good in arts and crafts or knitting or something like that, you can prepare items for charity fairs in advance. There will be a great need for charity after the Corona episode and you may as well prepare for it now when you have extra time.
 
 You can read [here](https://minimuutti.com/en/blog/happy-holidays/) about the charitywork I do, I hope it inspires you.
 
