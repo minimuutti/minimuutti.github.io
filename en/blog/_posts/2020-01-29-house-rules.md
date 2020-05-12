@@ -33,6 +33,12 @@ If you need to create a rule for some specific situation, you should create the 
 
 I've created dozens of rules and Miki obeys them automatically and no one has to enforce them. That's why I found it a bit hard to tell you some examples, but here's something: I've created a rule that Miki is allowed to sniff everything in our house, but he isn't allowed to take or taste anything without a permit. He needs to sit when I put his collar on and when a door opens Miki doesn't rush out but instead sits and waits for me to go first. Open front door doesn't mean Miki should bolt out and by staying in while the door is open pays well. Begging for food or attention is a sure way to be left without and not begging pays well. By whining or barking he gets nothing and by being silent and calm he gets what he wants. Jumping didn't get him any attention when he was a puppy and now he greets calmly.
 
+When I cut the fleece for the [charity snuffle mats](https://minimuutti.com/en/blog/happy-holidays/), Miki wanted to participate and see what I'm doing. I didn't want Miki to walk all over the fleece when I was cutting it, so I created a rule that Miki is not allowed to enter the room when there is fabric on the floor.
+
+Here's a couple of pictures Miki following the rule and watching from the hallway.
+
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/rules1.jpg)
+
 #### Set your dog up for success, not for failure
 
 Before you teach anything new try to think it through beforehand. Try also to think it from your dog's perspective and then try to create situations that will set your dog up for success, rather than failure.
