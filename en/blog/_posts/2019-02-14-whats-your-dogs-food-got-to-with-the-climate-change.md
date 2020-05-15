@@ -23,11 +23,13 @@ The diversity of animal species is diminishing due to mass extinctions. Humans n
 
 ### Impact of our chosen diet on climate change
 
-Meat and dairy causes over a fifth of all greenhouse gas emissions in the world. This is more than all the traffic in the world combined (such as. cars, trucks, airplanes, boats, train etc.).
+Meat and dairy causes over a fifth of all greenhouse gas emissions in the world. This is more than all the traffic in the world combined (such as. cars, trucks, airplanes, boats, trains etc.).
 
 Consumption of red meat (such as. beef, pork, lamb, goat) and cheese accelerates the climate change more than anything else. Poultry and fish has lesser effect - about 25% compared to red meat and dairy. So you could cut your emissions quite a lot by changing red meat and dairy to poultry and fish. Fish meat is nowadays full of micro plastic so I would recommend not to have that at all. In addition, scientist say that if we continue to consume fish as we do now - all fish species are extinct by year 2048. That is less than twenty years.
 
-Farm animals cause climate change in many different ways. Cattle produce massive amounts of greenhouse gasses and their manure pollutes our water. They need large areas to graze and that's why people need to cut down rainforests in an accelerating pace. When a forest is cut down, all the carbon emissions stored in trees are now being released in the atmosphere. Rainforests are the lungs of earth and they naturally remove carbondioxide from the air which slows the climate change. Cutting those forests accelerates climate change. Farm animals use now 25% of all earths surface, and that percentage is growing rapidly.
+Farm animals cause climate change in many different ways. Cattle produce massive amounts of greenhouse gasses and their manure pollutes our water. They need large areas to graze and that's why people need to cut down rainforests in an accelerating pace. When a forest is cut down, all the carbon emissions stored in trees are now being released in the atmosphere. Rainforests are the lungs of earth and they naturally remove carbondioxide from the air which slows the climate change. Cutting those forests accelerates climate change.
+
+Farm animals use already 50% of all earths ice-free surface, and that percentage is growing rapidly.
 
 You may think that buying only domestic food your consumption won't influence the rainforests but unfortunately you are wrong. Farm animals all over the world are often fed with feed that is produced in those used-to-be-rainforests.
 

@@ -18,6 +18,12 @@ Tässä on muutamia hyviä linkkejä, mistä saa ideoita ja vinkkejä temppujen 
 
 Miki osaa tällä hetkellä tehdä yli 70 toimintoa tai temppua vihjeestä ja joitain uusia on myös työn alla.
 
+Tosin Miki on mestari ymmärtämään ihmisten puhetta, joten kuka tietää paljonko sanoja ja vihjeitä se todellisuudessa ymmärtää.
+
+Viimeksi kun kävimme eläinlääkärissä, meitä palveli uusi lääkäri, joka ei ennen ollut tavannut Mikiä. Olimme viettäneet eläinlääkärissä aikaa viitisen minuuttia, kun eläinlääkäri jo totesi meille, että teidän koira ymmärtää puhetta vähän liian hyvin.
+
+Totta. Meiltä meinaa loppua suomen- ja englanninkielenkin sanasto jo kesken, kun yritämme keksiä kiertoilmauksia asioille, jotta Miki ei tietäisi mistä puhumme. Toisaalta on hämmästyttävän hienoa huomata kuinka älykäs Miki on, paitsi silloin, kun olemme lähdössä eläinlääkäriin tai vaikka kylään.
+
 Olen myös laittanut tänne sellaisia temppuja, joiden opettamista Mikille ei vielä ole aloitettu. Laitoin ne tänne siksi, jotta sinä saisit vinkkejä koirallesi opetettavista tempuista.
 
 Mikäli kaipaat vielä enemmän haasteita temppujen opettamiseen, niin kannattaa vilkaista [tästä viestiketjusta](http://www.petsie.fi/forums/1371-temppuja-koirille/page/8)

@@ -23,15 +23,15 @@ Olen kokeillut laittaa lelun sisään myös [Space Ball Stellaron](/aktivointile
 
 Voin lämpimästi suositella tätä lelua. Tämä kuvissa näkyvä lelu on meillä käytössä viikottain eikä lelu näytä mitään kulumisen merkkejä vaikka sen on meillä käytössä jo vuosia.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC12846_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABMwR0FbwtSutSjC1GCUBKga/aktivointilelut/kongit/DSC12846_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC12846_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC12971_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAASXZ8I472p_GdZYPwcAVlBa/aktivointilelut/kongit/DSC12971_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC12971_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC57921-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWzOtLflO4PwsHr64rEbdYa/aktivointilelut/kongit/DSC57921.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC57921-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS41310-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAxK7-0bJyTMWkcpKDb0Y4ca/aktivointilelut/kongit/DS41310.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS41310-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS60245-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADSgw44CC56wwzBChRENYLLa/aktivointilelut/kongit/DS60245.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS60245-800px.jpg)
 
 Tätä lelua on käytetty myös tehtävässä: 
 

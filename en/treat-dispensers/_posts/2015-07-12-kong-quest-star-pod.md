@@ -17,10 +17,10 @@ It takes Miki about 2 to 5 minutes to get all the treats out, but with chicken f
 
 Although the toy scores in durability, it's sometimes hard to find the right size treats for it.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC33990-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB90bVe5HY45o1jZnjJllr1a/aktivointilelut/kongit/DSC33990.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC33990-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34029-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_DP-IabAv0mB1Ck3-Cdb5a/aktivointilelut/kongit/DSC34029.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34029-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34066-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACA-lCQODug-66cy47vZ46La/aktivointilelut/kongit/DSC34066.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34066-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34032-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACtrWHoLbvvyjlGcJIFjOqFa/aktivointilelut/kongit/DSC34032.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34032-800px.jpg)

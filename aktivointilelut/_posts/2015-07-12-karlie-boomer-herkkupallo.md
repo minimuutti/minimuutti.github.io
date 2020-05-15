@@ -21,14 +21,14 @@ Suosittelen lämpimästi tätä Karlie Boomer herkkupalloa. Siitä kannattaa mak
 
 Näissä kuvissa Miki on reilun vuoden ikäinen ja se ihmettelee palloa ensimmäistä kertaa :)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00913_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACCalhj-wuH9neltQzPPkXVa/aktivointilelut/muut/DSC00913_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00913_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00904_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABdH_Me9VWo2RqgkIcNno9pa/aktivointilelut/muut/DSC00904_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00904_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00991_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADXuuC1msGdWfOudpAvUxKRa/aktivointilelut/muut/DSC00991_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00991_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00992_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADaGFf0_qtlWOzoyXGv47NSa/aktivointilelut/muut/DSC00992_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00992_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00996-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADWLXU8RKxPf-xnebAO8V5ra/aktivointilelut/muut/DSC00996.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00996-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS57995-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACulvquE99wFJHppU6qldO9a/aktivointilelut/muut/DS57995.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS57995-800px.jpg)

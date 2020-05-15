@@ -20,10 +20,10 @@ Vaikka lelu saa pisteitä kestävyydestä, niin sopivan kokoisten herkkujen löy
 
 Tämä lelu on tyhjä yleensä noin 2–5 minuutissa ja kanafileiden kanssa menee joskus muutama minuutti kauemmin.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC33990-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB90bVe5HY45o1jZnjJllr1a/aktivointilelut/kongit/DSC33990.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC33990-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34029-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_DP-IabAv0mB1Ck3-Cdb5a/aktivointilelut/kongit/DSC34029.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34029-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34066-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACA-lCQODug-66cy47vZ46La/aktivointilelut/kongit/DSC34066.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34066-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34032-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACtrWHoLbvvyjlGcJIFjOqFa/aktivointilelut/kongit/DSC34032.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34032-800px.jpg)

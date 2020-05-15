@@ -17,15 +17,15 @@ The first time I gave this toy to Miki I put some leftover pieces of meat in it,
 
 You can adjust the difficulty by choosing different size treats and the larger treats have usually been the hardest ones to get out.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34912-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACUo0NUZHIeoB3CoIk1xqLLa/aktivointilelut/kongit/DSC34912.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34912-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34977-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACFZb9OyLPoghu2EwpgFerDa/aktivointilelut/kongit/DSC34977.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34977-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC35072-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADcGPCASU_m-TT6NQ0vqOa0a/aktivointilelut/kongit/DSC35072.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC35072-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC35101-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5JX1Z7Ovz6N3tASJpRtCXa/aktivointilelut/kongit/DSC35101.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC35101-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC25949_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC3mAwfCOGqcQXJbKJ79lf3a/aktivointilelut/kongit/DSC25949_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC25949_2-800px.jpg)
 
 I’ve used this toy also in the game:
 

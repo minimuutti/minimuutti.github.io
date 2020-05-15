@@ -22,17 +22,17 @@ Miki sai tämän renkaan alle vuoden ikäisenä ja sama lelu on meillä edelleen
 
 Miki on tykännyt leikkiä tällä lelulla ilman ruokaakin, koska se tykkää jahdata lelua, kun joku vierittää sitä pitkin lattiaa :)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34392-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADf3DjnWn5JwEkNIy1s7KUia/aktivointilelut/kongit/DSC34392.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34392-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34394-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOs-TRZwKjnHUkKThzCiuka/aktivointilelut/kongit/DSC34394.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34394-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30218_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB1yEeD9Z8lP6cGA_qPR7qca/aktivointilelut/kongit/DSC30218_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30218_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30333-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAmAdt7HqSHPUaqak1bXcMQa/aktivointilelut/kongit/DSC30333.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30333-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30289-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABVly_wbykszgnGpuPmz8W7a/aktivointilelut/kongit/DSC30289.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30289-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30282-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADq16JEDe1yiIwIx9IF4ylca/aktivointilelut/kongit/DSC30282.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30282-800px.jpg)
 
 Tätä lelua on käytetty myös tehtävissä:
 

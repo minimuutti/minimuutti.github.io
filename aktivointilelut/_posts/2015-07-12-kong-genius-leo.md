@@ -25,17 +25,17 @@ Näissä kuvissa Miki touhuaa lelun kanssa ensimmäistä kertaa.
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC22957-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADS9NjzYijUyu4aK012jENpa/aktivointilelut/kongit/DSC22957.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC22957-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC22961-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAD9Za9sD1FQMfjupCIgYyga/aktivointilelut/kongit/DSC22961.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC22961-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC22980-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABityx4otNbLP9ddfEgtpoba/aktivointilelut/kongit/DSC22980.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC22980-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC23031-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOnm4tGTlbIi5S2sIPssPXa/aktivointilelut/kongit/DSC23031.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC23031-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC23034-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAB4sKCrrBCLNzxMhBgporxa/aktivointilelut/kongit/DSC23034.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC23034-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC23081-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABw9kLp_9BXLsu5B8eZAYrGa/aktivointilelut/kongit/DSC23081.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC23081-800px.jpg)
 
 Tätä lelua on käytetty myös seuraavissa tehtävissä:
 

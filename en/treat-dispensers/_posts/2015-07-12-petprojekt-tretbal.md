@@ -21,16 +21,16 @@ I use large pieces of a chicken fillet or large cuts from beef strips. These are
 
 When I gave the toy to Miki for the first time, I used only kibble because I knew that kibble would fall out easily. It was too easy and all the kibble fell almost straight out. But that is necessary for the first time so your dog won't get frustrated with the new toy.
 
-Depending on the treats I'm using it usually takes about 2-10 minutes for Miki to get all the treats out.
+Depending on the treats I'm using, it usually takes about 2-10 minutes for Miki to get all the treats out.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44547-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAATnpLyh79IuF16y-Ij2rXna/aktivointilelut/muut/DS44547.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44547-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44578-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD_GlFTtxVp_yXcjRNUDRHOa/aktivointilelut/muut/DS44578.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44578-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44576-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAiEct3fh8TtJ844hfD_svFa/aktivointilelut/muut/DS44576.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44576-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44767-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACkd06HZkvcv-qdqgck2OjZa/aktivointilelut/muut/DS44767.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44767-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44774-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABwdNZV96VX0U8oQ_WJyJm4a/aktivointilelut/muut/DS44774.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44774-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44824-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAApCsJWsed54ImcKJc8E04a/aktivointilelut/muut/DS44824.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44824-800px.jpg)

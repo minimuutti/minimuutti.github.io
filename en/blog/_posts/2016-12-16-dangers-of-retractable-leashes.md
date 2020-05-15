@@ -17,6 +17,6 @@ Every one of us love our dogs and now is finally the time to change those danger
 
 R.I.P.
  
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABiB5VA9n9xYcshKgImXR5za/blogi/Image.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/Image.jpg)
 
 2016-12-16

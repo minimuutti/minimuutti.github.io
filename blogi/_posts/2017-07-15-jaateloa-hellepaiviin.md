@@ -13,7 +13,7 @@ Tähän postiin on koottu vinkkejä ja reseptejä koirille sopiviin jäätelöih
 
 Koirat nauttivat kylmistä herkuista hellepäivinä siinä missä ihmisetkin, mutta tavallista jäätelöä koirille ei kannata antaa. Ihmisille tarkoitetut jäätelöt sisältävät paljon sokeria, lisäaineita ja lisäksi useimmissa jäätelöissä on laktoosia, joka ei sovi koirien vatsalle. Monissa ihmisten jäätelöissä on myös suklaata, joka on koirille myrkyllistä. Koirille kannattaakin aina valmistaa omat "jäätelöt" ja tähän postiin olen koonnut joitain vinkkejä ja reseptejä.
 
-Koirien jäätelöiden ei välttämättä tarvitse muistuttaa ihmisille tarkoitettua jäätelöä. Koirat eivät ajattele ruokaa samalla lailla, kuin ihmiset. Tarkoitan sitä, että koirilla ei siis ole mielikuvaa, että jäätelön pitäisi näyttää valkoiselta pallolta vohvelitötterön päällä :) Koirat eivät myöskään ajattele jäätelöä makeana ja hedelmäisenä kuten me, vaan tonnikala- tai maksajäätelö kuulostaa koirasi mielestä varmaan paremmalta. Tämä tieto antaa nyt sinulle aivan vapaat kädet käyttää mielikuvitustasi koirallesi sopivan jäätelön valmistamiseen.
+Koirien jäätelöiden ei välttämättä tarvitse muistuttaa ihmisille tarkoitettua jäätelöä. Koirat eivät ajattele ruokaa samalla lailla, kuin ihmiset. Tarkoitan sitä, että koirilla ei siis ole mielikuvaa, että jäätelön pitäisi näyttää valkoiselta pallolta vohvelitötterön päällä. Koirat eivät myöskään ajattele jäätelöä makeana ja hedelmäisenä kuten me, vaan tonnikala- tai maksajäätelö kuulostaa koirasi mielestä varmaan paremmalta. Tämä tieto antaa nyt sinulle aivan vapaat kädet käyttää mielikuvitustasi koirallesi sopivan jäätelön valmistamiseen.
 
 ### Koirille sopivat ja sopimattomat ruoka-aineet
 

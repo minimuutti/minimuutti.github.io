@@ -17,12 +17,12 @@ Tämä lelu ei ole ollut Mikillä käytössä kovinkaan montaa kertaa, koska se 
 
 Kun laitan leluun annoksen nappuloita, niin sen tyhjentäminen kestää Mikiltä noin 3-4 minuuttia.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC34406-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADe0ZHwtDHHEhGPbQ2fV0Eia/aktivointilelut/muut/DSC34406.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC34406-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC34439-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADa0cPf7lt8xsfw2LigE7aka/aktivointilelut/muut/DSC34439.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC34439-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC34408-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABKnr22fZde3LQuzEQFlKeda/aktivointilelut/muut/DSC34408.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC34408-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC34431-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABw6QOevKW73kvLOiAGWduna/aktivointilelut/muut/DSC34431.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC34431-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC34409-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACW7vGoh8pJPsUE-M_gyiXza/aktivointilelut/muut/DSC34409.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC34409-800px.jpg)

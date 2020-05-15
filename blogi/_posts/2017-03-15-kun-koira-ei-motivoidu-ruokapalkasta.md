@@ -83,8 +83,8 @@ Fakta on se, että jokaisen koiran pitää syödä pysyäkseen hengissä. Kaikki
 
 Jos et ole varma mikä motivoi koiraasi eniten, kannattaa tehdä tällainen testi. Jokainen meistä varmaan tunnistaa koirastaan sen ilmeen, kun se odottaa saavansa jotain. Kun Miki suorittaa pyytämäni toiminnon ja saa siitä palkaksi vain kehun tai rapsutuksia, niin tällöin Mikille tulee se ilme, että se odottaa jotain =ruokapalkkaa. Sen koko olemus sanoo "Haloo, tein juuri jotain mistä odotan palkkaa" ja se katsoo vuorotellen silmiini ja kättäni odottaen sen menevän taskuun, jossa pidän koulutuspalkkaa. Välillä se myös näyttää ihan suoraan pettyneeltä, jos ruokapalkkaa ei tule.
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADKwD2mYAixCBnes4Vo0rk_a/blogi/DSC42110-500px.JPG)
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABcj8YjbAkz3rgmmQQFoebWa/blogi/DSC42111-500px.JPG)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC42110-500px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC42111-500px.jpg)
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC48620-800px.jpg)
 

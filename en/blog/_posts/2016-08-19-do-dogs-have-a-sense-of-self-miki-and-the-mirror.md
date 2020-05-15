@@ -15,7 +15,7 @@ After about two minutes of him looking at the yawning dog from a mirror he raise
 
 It appeared to me like he was trying to figure out if he was looking at himself.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_20160726_101217-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACuKFxAIIkf5uM5E6g1zpjfa/blogi/IMG_20160726_101217.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_20160726_101217-800px.jpg)
 
 This photo doens't relate to that event.
 

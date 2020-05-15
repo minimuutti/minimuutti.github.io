@@ -36,12 +36,12 @@ In my experience the reasons for the (bad) behaviour on reactive dogs – and fo
 
 In the pictures below Miki is about 6 months old and he's lunging on the leash trying to banish an oncoming dog. At that time I still believed in the pack leader method and as you can see the correcting and scolding wasn't efficient. In fact it was useless and made the experience for Miki even worse.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_1932-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVajsX37Dc0eRi9bzdjz5ka/blogi/IMG_1932.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_1932-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_1943-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABRJQcDiObw8D_z8sdj9oQCa/blogi/IMG_1943.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_1943-800px.jpg)
 
 Nowadays I train only with positive methods such as rewarding right behaviours and the aggressive behaviours have vanished almost completely.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC25924-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACmltZ2mQa8PUPQEvNk1p5Va/blogi/DSC25924.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC25924-800px.jpg)
 
 2016-08-08

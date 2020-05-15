@@ -17,15 +17,15 @@ Ensimmäisellä kerralla laitoin tähän leluun pieniä kivipiiran paloja, kun n
 
 Lelun urissa on lipat, joiden alle herkut saa tungettua piiloon. Lelun vaikeustasoa voi muuttaa vaihtamalla siihen laitettavien herkkujen kokoa ja suuremmat herkut ovat yleensä antaneet Mikille eniten haastetta.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34912-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACUo0NUZHIeoB3CoIk1xqLLa/aktivointilelut/kongit/DSC34912.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34912-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34977-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACFZb9OyLPoghu2EwpgFerDa/aktivointilelut/kongit/DSC34977.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34977-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC35072-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADcGPCASU_m-TT6NQ0vqOa0a/aktivointilelut/kongit/DSC35072.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC35072-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC35101-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB5JX1Z7Ovz6N3tASJpRtCXa/aktivointilelut/kongit/DSC35101.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC35101-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC25949_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC3mAwfCOGqcQXJbKJ79lf3a/aktivointilelut/kongit/DSC25949_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC25949_2-800px.jpg)
 
 Tätä lelua on käytetty myös tehtävässä:
 

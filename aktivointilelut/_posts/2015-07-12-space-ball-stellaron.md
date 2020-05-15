@@ -15,17 +15,17 @@ Mikiltä kesti noin 2-3 minuuttia saada nuo herkut syötyä.
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49658-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAWCmUZYaHr78wsqqEb3b9ca/aktivointi/space-ball-stellaron/DSC49658.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49658-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49601-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACf3AskR5w7YrrwjTD6lya_a/aktivointi/space-ball-stellaron/DSC49601.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49601-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49633-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACrEo_A3MIynT3uLY1jDvs1a/aktivointi/space-ball-stellaron/DSC49633.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49633-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49681-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAP5yPbyTeQ_UGFmiGQSA3Sa/aktivointi/space-ball-stellaron/DSC49681.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49681-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49692-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAuitBqzpwMtkq85A7epOeTa/aktivointi/space-ball-stellaron/DSC49692.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49692-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49583-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAJWNMdoDeDbOpgN4Nlfeu_a/aktivointi/space-ball-stellaron/DSC49583.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49583-800px.jpg)
 
 Tätä lelua on käytetty myös tehtävässä [Fleece kiepit](/aktivointi/fleecekiepit/):
 

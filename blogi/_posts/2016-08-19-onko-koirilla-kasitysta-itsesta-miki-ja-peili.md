@@ -15,7 +15,7 @@ Miki oli katsellut haukottelevaa ja nenäänsä nuoleskelevaa kuvajaistaan noin 
 
 Minusta ainakin näytti siltä kuin se olisi yrittänyt selvittää katseleeko se itseään.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_20160726_101217-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACuKFxAIIkf5uM5E6g1zpjfa/blogi/IMG_20160726_101217.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_20160726_101217-800px.jpg)
 
 Tämä kuva ei liity yllä kuvattuun tapaukseen.
 

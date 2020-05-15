@@ -31,76 +31,76 @@ As the time approached to midnight I took a bag of Miki's favourite treats and f
 
 **19:45:**
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45547-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACyjQpWCpu8SDQ1vzJSar7Da/mikin-kuvat/3/DS45547.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45547-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45596-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABpV7htHHtmKrrJJV3KtzJ6a/mikin-kuvat/3/DS45596.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45596-800px.jpg)
 
 **20:00:**
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45592-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-BuO1xfqEO9EGWbgAt_rna/mikin-kuvat/3/DS45592.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45592-800px.jpg)
 
 **20:30 Miki even wanted to play a bit, fantastic!**
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45666-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABoXjZfmEGzOwN0YeJQpxqWa/mikin-kuvat/3/DS45666.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45666-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45674-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC_0csYRCuWrdPb5ReOYjp0a/mikin-kuvat/3/DS45674.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45674-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45694-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADrjNSXxAqrTmTzCTGEm3Yna/mikin-kuvat/3/DS45694.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45694-800px.jpg)
 
 **OMG WHAT WAS THAT?!?**
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45714-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAOEkak0YvTocKMY8fXuf_za/mikin-kuvat/3/DS45714.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45714-800px.jpg)
 
 **Miki even wanted to go out onto the balcony as he queued in front of the door but I thought it would have been too much for him.**
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45726-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD3gPqbc5LIMMMja0E8Ed1qa/mikin-kuvat/3/DS45726.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45726-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45729-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD6yDzmkK43vxVxdsTcdoDNa/mikin-kuvat/3/DS45729.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45729-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45743-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABmh1HbAfyCaqmexjF_jqQwa/mikin-kuvat/3/DS45743.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45743-800px.jpg)
 
 **This is how Miki felt about the fireworks :)**
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45736-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACM3sJvm_-aBv8bXLEEhAIxa/mikin-kuvat/3/DS45736.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45736-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45772-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACMCftDPKG__IK7O4Kv3Jxca/mikin-kuvat/3/DS45772.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45772-800px.jpg)
 
 **WHAT WAS THAT?!?**
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45755-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABuAvoNtRiLHLDPOJya3NTwa/mikin-kuvat/3/DS45755.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45755-800px.jpg)
 
 **Oh, probably nothing :)**
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45771-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABz0qLJj9y2pxEFnsNw_eQha/mikin-kuvat/3/DS45771.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45771-800px.jpg)
 
 **20:50 Susu had some fun with the camera :)**
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45809-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABzpCry9sE6QAak9AkwdFOLa/mikin-kuvat/3/DS45809.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45809-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45812-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADFh2j8LrpYYcynlgbvHJu_a/mikin-kuvat/3/DS45812.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45812-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45815-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB-t0bxrSxx8ecLP0w3-bIJa/mikin-kuvat/3/DS45815.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45815-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45817-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACNI6XnvbNEnWpucsgBeOeDa/mikin-kuvat/3/DS45817.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45817-800px.jpg)
 
 **21:20:**
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45833-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADNNtcsCJU2UJnq0Ah_1mH2a/mikin-kuvat/3/DS45833.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45833-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45868-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABa8cZaaEhpH8dm1rgVYOQaa/mikin-kuvat/3/DS45868.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45868-800px.jpg)
 
 **22:00:**
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45879-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADU-27ixUynsrd0Or0POqGia/mikin-kuvat/3/DS45879.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45879-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45889-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJshFU2QoPYaWNFiaEY5cHa/mikin-kuvat/3/DS45889.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45889-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45891-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-tz3FOaHN0EEBAo2pYZtpa/mikin-kuvat/3/DS45891.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45891-800px.jpg)
 
 **22:20:**
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45910-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADSTsCqQojJgMYEkojxVHjCa/mikin-kuvat/3/DS45910.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45910-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45933-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA7Io8gRTegRZ7UnoZKPvnJa/mikin-kuvat/3/DS45933.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45933-800px.jpg)
 
 2017-01-01

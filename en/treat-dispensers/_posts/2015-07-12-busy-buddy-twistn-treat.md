@@ -19,14 +19,14 @@ You can also open the the toy for cleaning.
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC13183_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAANTkb6xJ8fwTgJwGtsdfia/aktivointilelut/muut/DSC13183_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC13183_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC13229_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADbj8iQaD2QgNvR2P0dIIbfa/aktivointilelut/muut/DSC13229_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC13229_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC13236_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJgXPuOKhtsPx7AS-Nr0d1a/aktivointilelut/muut/DSC13236_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC13236_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC13226_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAJ0v5TQkI8pTcSxpOtZynpa/aktivointilelut/muut/DSC13226_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC13226_2-800px.jpg)
 
-I've used this toy also in: [Toys combined](/en/treat-dispensers/toys-combined/)
+'ve used this toy also in: [Toys combined](/en/treat-dispensers/toys-combined/)
 
 [![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS11052-800px.jpg)](/en/treat-dispensers/toys-combined/)

@@ -23,14 +23,14 @@ Ensimmäisellä kerralla laitoin leluun vain nappuloita, jotta tehtävä oli tar
 
 Herkkujen muodosta riippuen Mikiltä kestää 2-10 minuuttia saada ne ulos tästä.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44547-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAATnpLyh79IuF16y-Ij2rXna/aktivointilelut/muut/DS44547.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44547-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44578-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD_GlFTtxVp_yXcjRNUDRHOa/aktivointilelut/muut/DS44578.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44578-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44576-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAiEct3fh8TtJ844hfD_svFa/aktivointilelut/muut/DS44576.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44576-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44767-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACkd06HZkvcv-qdqgck2OjZa/aktivointilelut/muut/DS44767.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44767-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44774-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABwdNZV96VX0U8oQ_WJyJm4a/aktivointilelut/muut/DS44774.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44774-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44824-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAApCsJWsed54ImcKJc8E04a/aktivointilelut/muut/DS44824.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44824-800px.jpg)

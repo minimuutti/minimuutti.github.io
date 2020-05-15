@@ -13,20 +13,20 @@ This is also a great toy for dogs that are mouthy because of its shape and size 
 
 Then the downsides.. the toy is poorly designed on the inside. Majority of the kibble fell out in the beginning and the last remaining kibble were extremely hard to get out. Also, the toy doesn't properly open for cleaning.
 
-The toy is made of hard plastic and it makes a lot of noise on a hardwood floor. On the carpet the noise wasn't as bad but the sound was still quite loud because the kibble bounced inside the hollow cube. 
+The toy is made of hard plastic and it makes a lot of noise on a hardwood floor. On the carpet the noise wasn't as bad but the sound was still quite loud because the kibble bounced inside the hollow cube. In fact, the sound was too annoying so I gave this toy away after a short while.
 
 Unfortunately this toy didn't fill my expectations. If you are about to buy this toy I recommend that you skip it and choose something else.
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36159-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACoVWRuhIzF-M60la9AuXv3a/aktivointilelut/muut/DS36159.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36159-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36165-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABPg-sDwGzM6TP6v4gF_cAva/aktivointilelut/muut/DS36165.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36165-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36188-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA3xiu7gWIeGul5-2cPZwY1a/aktivointilelut/muut/DS36188.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36188-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36201-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_o5FCZoD5dvpW7iC0MX88a/aktivointilelut/muut/DS36201.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36201-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36227-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACcmta7bONH_Sy7xTVOnqaTa/aktivointilelut/muut/DS36227.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36227-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36232-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACC-tcI0Ep3_uquRPQxE4aka/aktivointilelut/muut/DS36232.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36232-800px.jpg)

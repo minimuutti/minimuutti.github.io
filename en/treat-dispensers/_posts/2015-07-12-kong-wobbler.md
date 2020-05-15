@@ -17,15 +17,15 @@ So then I wondered how I could make this otherwise great toy more difficult. I c
 
 You can also put some tennis balls or some other soft balls inside the toy with the kibble. I've put a laundry ball into the toy, and then it takes Miki about five minutes to get all the kibble out. You can also put another toy inside it, like this [Space Ball Stellaron](/en/treat-dispensers/space-ball-stellaron/) toy or some small [corals](/en/brain-games/corals/) to add the challenge.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC12846_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABMwR0FbwtSutSjC1GCUBKga/aktivointilelut/kongit/DSC12846_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC12846_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC12971_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAASXZ8I472p_GdZYPwcAVlBa/aktivointilelut/kongit/DSC12971_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC12971_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC57921-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABWzOtLflO4PwsHr64rEbdYa/aktivointilelut/kongit/DSC57921.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC57921-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS41310-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAxK7-0bJyTMWkcpKDb0Y4ca/aktivointilelut/kongit/DS41310.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS41310-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS60245-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADSgw44CC56wwzBChRENYLLa/aktivointilelut/kongit/DS60245.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS60245-800px.jpg)
 
 I’ve used this toy also in the game:
 

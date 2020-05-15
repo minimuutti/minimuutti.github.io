@@ -25,17 +25,17 @@ This classic toy is one of my favourite toys and it certainly is a versatile bor
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS37157-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABhnRSLaX_vRnzwn85bUcIka/aktivointilelut/kongit/DS37157.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS37157-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC16731_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADF6PI-JLkAoONYtFslr74da/aktivointilelut/kongit/DSC16731_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC16731_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC19223_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADbkl3kfuZhs-pmx8aq4jxfa/aktivointilelut/kongit/DSC19223_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC19223_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC19253_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAwMQWFwdPu0YMLjEqwmVC6a/aktivointilelut/kongit/DSC19253_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC19253_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC14116_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC3IwQozsDOm3fS-BjNzfLWa/aktivointilelut/kongit/DSC14116_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC14116_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30350_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQslRdrUkVJ7i3JiKyihMxa/aktivointilelut/kongit/DSC30350_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30350_2-800px.jpg)
 
 I've used this toy also in the following games:
 
