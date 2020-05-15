@@ -11,8 +11,8 @@ Please give space to dogs wearing yellow bandanas. For example Miki wears one be
 
 So please give us some space or time to move out of your way. Thank you :)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/gulahund-poster-en.JPG.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/gulahunden.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/gulahund_poster_englishP-500px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/gulahundp-500px.jpg)
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/B70lVfDIUAI3lGs.jpg)

@@ -11,6 +11,6 @@ Annathan tilaa keltaista huivia käyttävälle koiralle. Miki käyttää myös k
 
 Joten annathan meille tilaa tai aikaa väistää pois alta. Kiitos :)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/gulahund-poster-fi.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/gulahundfi.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/gulahund_poster_englishP-500px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/gulahundp-500px.jpg)
