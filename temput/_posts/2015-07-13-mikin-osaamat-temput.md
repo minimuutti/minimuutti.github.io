@@ -65,7 +65,6 @@ image:
 ![](https://b2.minimuutti.com/file/minimuutti-com/temput/3/DSC09041-245px.jpg)
 
 * highten (antaa yläfemman molemmilla tassuilla yhtäaikaa)
-
 * paina nappia (esim. valokatkaisijaa tai ovikelloa)
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/temput/3/DSC29748-245px.jpg)
@@ -141,11 +140,11 @@ image:
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/temput/3/DSC25924-245px.jpg)
 
+* käy nukkumaan
 * nuku vaan (jää nukkumaan tai makaamaan eikä esim. säntää mukaan toiseen huoneeseen)
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/temput/3/DSC32154-245px.jpg)
 
-* käy nukkumaan
 * jatkakaa (jos joku ääni tai toiminto keskeytti jotain mitä Miki oli tekemässä ennen häiriötä niin se jatkaa sitä mitä oli alun perin tekemässä)
 * kaiva (kaivaa lumeen tai hiekkaan itsensä kokoisen kuopan hetkessä)
 
@@ -261,7 +260,7 @@ image:
 ![](https://b2.minimuutti.com/file/minimuutti-com/temput/3/DSC41870-245px.jpg)
 ![](https://b2.minimuutti.com/file/minimuutti-com/temput/3/DSC32998-245px.jpg)
 
-* vaaka (menee vaa'an päälle seisomaan)
+* vaaka (menee vaa'an päälle seisomaan punnitusta varten)
 * mangusti (nousee istuma-asennosta istumaan pystyasentoon, ei sanallista vihjettä, vain käsimerkki)
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/temput/3/DSC32005-245px.jpg)
@@ -277,7 +276,7 @@ image:
 ![](https://b2.minimuutti.com/file/minimuutti-com/temput/3/DSC30961-245px.jpg)
 
 * kasi (pujottelee kasia jalkojen välissä)
-* nenää (eskimopusu eli koskee nenään omalla kuonollaan, joko pyytäjän nenään tai nimetyn henkilön X nenään)
+* nenä (eskimopusu eli koskee nenään omalla kuonollaan, joko pyytäjän nenään tai nimetyn henkilön X nenään)
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/temput/3/DSC33483-245px.jpg)
 

@@ -19,17 +19,17 @@ Vaikein näistä oli Mikille se, kun laitoin namit piiloon muottien alle. Kumisi
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jaapalamuotit/DSC46471-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAwi6SmIfSyMOneUMqKZsVya/aktivointi/jaapalamuotit/DSC46471.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jaapalamuotit/DSC46471-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jaapalamuotit/DSC46369-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAT-Ajwbohh0wrt7JW5omf6a/aktivointi/jaapalamuotit/DSC46369.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jaapalamuotit/DSC46369-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jaapalamuotit/DSC46405-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABy43CRdPpWcfltzvxRUMkSa/aktivointi/jaapalamuotit/DSC46405.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jaapalamuotit/DSC46405-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jaapalamuotit/DSC46427-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADioDohu1WOoak69CgBAkZQa/aktivointi/jaapalamuotit/DSC46427.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jaapalamuotit/DSC46427-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jaapalamuotit/DSC46448-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAkYg5cHzMoD7vHZwBqdZJIa/aktivointi/jaapalamuotit/DSC46448.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jaapalamuotit/DSC46448-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jaapalamuotit/DSC46497-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACyLuoIvqImbBHbBIHr5fL6a/aktivointi/jaapalamuotit/DSC46497.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jaapalamuotit/DSC46497-800px.jpg)
 
 Jääpalamuottia on käytetty hellepäivän pelastajana, postissa "[Jään sisällä olevat namit](/aktivointi/jaan-sisalla-olevat-namit/)".
 

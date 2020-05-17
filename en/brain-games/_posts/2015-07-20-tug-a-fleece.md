@@ -21,27 +21,27 @@ At the first time it took Miki about 20 seconds to figure out that he needed to 
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02729-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADy7Y_CuoCW4yHjwwlX8J_-a/aktivointi/solmupiilo/DS02729.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02729-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02746-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABdglZ3x-beRBRxgU0KULDda/aktivointi/solmupiilo/DS02746.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02746-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02757-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABXJCECYt6b67eAs-qXIqUAa/aktivointi/solmupiilo/DS02757.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02757-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02775-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAARwZyZthpNJ4Q0QxEl80dCa/aktivointi/solmupiilo/DS02775.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02775-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02797-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADEwxazeDktgdabbRwewSAoa/aktivointi/solmupiilo/DS02797.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02797-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02806-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC4eheGYQU4FlX7PK8onqfea/aktivointi/solmupiilo/DS02806.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02806-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02849-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABbIhNizx9pmxjt4IplX1Iea/aktivointi/solmupiilo/DS02849.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02849-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02879-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABL-e8SJX2IGvm53xKey5IAa/aktivointi/solmupiilo/DS02879.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02879-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02887-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB8fyb-eLTQYMT-h6Q_coXIa/aktivointi/solmupiilo/DS02887.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02887-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02719-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACze71sO0uHinxiKyil0BOAa/aktivointi/solmupiilo/DS02719.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02719-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02720-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADGH4991prslNSBMIBDOaH6a/aktivointi/solmupiilo/DS02720.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02720-800px.jpg)
 
 If you don't have a Kong Genius toy you can make a similar game with the same size fleece as above and a small soda bottle.
 
@@ -51,16 +51,16 @@ If you have never given any bottles to your dog before, I recommend that you fir
 
 When I gave Miki this bottle with fleece for the first time it took Miki about 2 minutes to get the fleece and the treats out from the bottle.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13410-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-FvOdqUPUbWP5esy7YzS6a/aktivointi/solmupiilo/DS13410.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13410-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13239-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADvpyimkDDprP-jSfoBPcyya/aktivointi/solmupiilo/DS13239.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13239-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13255-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAADtDdF5scXnAjdA00tgXrVa/aktivointi/solmupiilo/DS13255.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13255-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13473-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAk8gDo9dF-Hv8rhHix0snOa/aktivointi/solmupiilo/DS13473.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13473-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13302-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA_9Kvm9FAlj-jk6Sp7vXExa/aktivointi/solmupiilo/DS13302.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13302-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13501-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAhKTkDPYLzv-QRARRexzFua/aktivointi/solmupiilo/DS13501.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13501-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13519-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADwIeh9PPQQvUmO-XymhCL-a/aktivointi/solmupiilo/DS13519.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13519-800px.jpg)

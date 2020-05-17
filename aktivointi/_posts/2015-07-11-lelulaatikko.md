@@ -21,10 +21,10 @@ Yhden namin etsimiseen menee 5–15 sekuntia. Jos omistaa paljon tyhjiä limupul
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelulaatikko/DSC29380_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADNI0Yyb_6vyS0ATurH4DNpa/aktivointi/lelulaatikko/DSC29380_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelulaatikko/DSC29380_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelulaatikko/DSC30079_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADCb4aelWBvcHCwuvcpywPTa/aktivointi/lelulaatikko/DSC30079_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelulaatikko/DSC30079_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelulaatikko/DSC30084_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABrhlaVjkOc8chUZPfAMnNqa/aktivointi/lelulaatikko/DSC30084_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelulaatikko/DSC30084_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelulaatikko/DSC26654_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADgGbUpC4e6942qZcaGrj3ia/aktivointi/lelulaatikko/DSC26654_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelulaatikko/DSC26654_2-800px.jpg)

@@ -17,12 +17,12 @@ In the first time it took Miki about ten minutes to "read" the book and to find 
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC25474_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADBb0srhfMpHPTpxUpg-zuda/aktivointi/puhelinluetteloviuhka/DSC25474_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC25474_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC25478_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAALU6Oyy1SyXOtxo8BaGvlda/aktivointi/puhelinluetteloviuhka/DSC25478_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC25478_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC25659_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADsVJ-gcGcXfLSWEifTNQcxa/aktivointi/puhelinluetteloviuhka/DSC25659_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC25659_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC38061-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAw6VjBvxHaj1OJ3Vm0yZZla/aktivointi/puhelinluetteloviuhka/DSC38061.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC38061-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC38063-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAbSMFmDTeSLn8pujEY0TC_a/aktivointi/puhelinluetteloviuhka/DSC38063.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC38063-800px.jpg)

@@ -12,7 +12,7 @@ Kong Quest Star Pod on kestävä lelu ja se on hyvä lelu, mikäli sinulla on la
 
 Lelua valmistetaan useammassa koossa ja tämä kuvissa näkyvä on L kokoinen.
 
-Laitan tähän yleensä [Nutrivet Instinct Dog Treat](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/nutrivet)) nameja. Nämä namit ovat juuri sopivan kokoisia noihin pyöreisiin aukkoihin, kun ne kääntää poikittain sinne aukon sisään.
+Laitan tähän yleensä [Wolf of Wilderness Wild Bites](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(https://www.zooplus.fi/shop/koirat/luut/wolf_of_wiilderness/wolf_of_wilderness_lihakuutiot/688392?rrec=true&pr=product1_rr&slot=1&exprienceid=7837&strategyid=103144)) nameja. Nämä namit ovat juuri sopivan kokoisia noihin pyöreisiin aukkoihin, kun ne kääntää poikittain sinne aukon sisään.
 
 Myös [kuivatusta kanafileestä](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/rocco/rocco_puruliuskat/534985)) saa leikattua sopivan kokoisia paloja. Alla olevissa kuvissa lelussa on täytteenä kuivattuja lihapaloja, jotka ovat myös sopivan kokoisia noihin koloihin.
 

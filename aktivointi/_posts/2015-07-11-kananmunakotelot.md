@@ -15,9 +15,9 @@ Tyhjän pakkauksen sisälle laitetaan ruokaa tai jotain herkkuja ja ensimmäisel
 
 Mikiltä kestää teipatun kotelon tuhoaminen noin 1-2 minuuttia.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DSC42631-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABKjZkSoy7yhP0_hzsEm7ZDa/aktivointi/kananmunakotelot/DSC42631.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DSC42631-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DSC01587_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAymo1oi7d1nmkbQB9SpLGea/aktivointi/kananmunakotelot/DSC01587_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DSC01587_2-800px.jpg)
 
 ##### Tehtävä 2:
 
@@ -25,15 +25,15 @@ Pakkauksen voi myös täyttää [paperipalloilla](/aktivointi/minitehtavia/#pape
 
 Mikiltä kestää namien saaminen teipatusta pakkauksesta noin 4 minuuttia.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12656-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABYOIDNB1Hlcd5BKbjGWNl7a/aktivointi/kananmunakotelot/DS12656.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12656-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12686-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACYCSEECkaPk0G3oBuZmOREa/aktivointi/kananmunakotelot/DS12686.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12686-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12725-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACUW_W0pcByhx26EaluAUiha/aktivointi/kananmunakotelot/DS12725.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12725-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12759-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAxGmBW2nQlxnMVDk3I7Q1pa/aktivointi/kananmunakotelot/DS12759.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12759-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12778-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD6Og2xDggYvXVszGU8P1LIa/aktivointi/kananmunakotelot/DS12778.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12778-800px.jpg)
 
 ##### Tehtävä 3:
 
@@ -41,15 +41,15 @@ Tätä tehtävää varten tarvitset vähintään kaksi samanlaista koteloa. Avas
 
 Mikiltä kesti noin 3 minuuttia saada nappulat ulos tästä.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12519-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADTrXqdMwWOu6c5JTI5s6z5a/aktivointi/kananmunakotelot/DS12519.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12519-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12558-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADLp3_vi6CpG4wjtfK6Hq2ca/aktivointi/kananmunakotelot/DS12558.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12558-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12522-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQJx2SVZBE3jPjbjNOBYida/aktivointi/kananmunakotelot/DS12522.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12522-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12623-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAsOoYbCT1JXY7pEj7ch83ra/aktivointi/kananmunakotelot/DS12623.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12623-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12650-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADlz1RB9itaHtnzEL1rGUIBa/aktivointi/kananmunakotelot/DS12650.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12650-800px.jpg)
 
 ##### Tehtävä 4:
 
@@ -61,27 +61,27 @@ Näissä koteloissa on syvennys myös kotelon päällä. Silloin kun annan Mikil
 
 Kotelot tarjoavat sen verran haastetta, etten ole koskaan teipannut niitä. Mikäli haluat koirallesi lisää haastetta niin teippaamista kannattaa kokeilla. Mikiltä kestää yhden kotelon avaaminen alle minuutin.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS11990-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABQyBKJhk8NQIznKZqto4HUa/aktivointi/kananmunakotelot/DS11990.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS11990-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12000-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAqXJ7SWg4MQTU4qLlHYnUxa/aktivointi/kananmunakotelot/DS12000.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12000-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12004-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACTmw-OPcH9DgbxT-rr5dDaa/aktivointi/kananmunakotelot/DS12004.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12004-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS11771-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACoNxE63dBT1iojzcCxRCgYa/aktivointi/kananmunakotelot/DS11771.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS11771-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS11787-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABitOQB9lz3evccJla6yEVla/aktivointi/kananmunakotelot/DS11787.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS11787-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS11833-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACawCBkKuE26gTsdMwswiR9a/aktivointi/kananmunakotelot/DS11833.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS11833-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12010-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABoa9kH_Bp8Tr80mt0LJk4Na/aktivointi/kananmunakotelot/DS12010.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12010-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12028-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACAxensMgWoPro5U4qM66hTa/aktivointi/kananmunakotelot/DS12028.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12028-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12181-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABZ1dJ2o5crhXqfeXXdCxqba/aktivointi/kananmunakotelot/DS12181.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12181-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12227-800px%20%282%29.jpg)](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12227-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12227-800px%20%282%29.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12235-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABGi1dVl0OP14eOZUce4jc4a/aktivointi/kananmunakotelot/DS12235.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS12235-800px.jpg)
 
 ##### Tehtävä 5:
 

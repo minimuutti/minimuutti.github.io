@@ -23,14 +23,14 @@ And I’m sure you wanna play this game on the bathroom floor or maybe in the ga
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC30685_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADfl4LtSC6scWGXSwcMd6dBa/aktivointi/namien-poiminta-vedesta/DSC30685_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC30685_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC30702_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACwA8n-S8616aOy-8nFpO1ba/aktivointi/namien-poiminta-vedesta/DSC30702_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC30702_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC39375-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABdJXFB6uSwJnfDB0Dlena4a/aktivointi/namien-poiminta-vedesta/DSC39375.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC39375-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC39414-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC-yNCUDNddfJGGRGsiVwcLa/aktivointi/namien-poiminta-vedesta/DSC39414.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC39414-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC39418-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADvTWwEVb-XOalQvpr70tFYa/aktivointi/namien-poiminta-vedesta/DSC39418.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC39418-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC39402-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACIM4ut88xLRxZqpBvLZXO_a/aktivointi/namien-poiminta-vedesta/DSC39402.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC39402-800px.jpg)

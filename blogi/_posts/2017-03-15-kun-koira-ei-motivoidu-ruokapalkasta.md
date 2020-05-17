@@ -71,7 +71,7 @@ On myös hyvä huomioida, että jos koirasi jättää kuivaruokanappulat syömä
 
 Aina, kun koiralle on antamassa ruokaa/herkkuja/lelun/jotain muuta, niin koiraa voi ensin pyytää tekemään jonkin sille opetetun käytöksen, vaikkapa pyytää koiraa istumaan. Jos se ei tottele, niin vie ruoka/lelu takaisin kaappiin ja jätä koira ihmettelemään mitä oikein tapahtui. Tee omia asioitasi vaikkapa 5-15 minuuttia ja kokeile uudestaan. Tällä kerralla koira todennäköisesti istuu, jos tarjoamasi palkkio on tavoittelemisen arvoinen. Tässä kohtaa on hyvä pitää mielessä, että pyytää koiralta vain sellaista käytöstä, minkä se 100% varmuudella osaa. Kun koira joutuu näkemään vaivaa haluamansa asian eteen, niin se näkee palkkionsa aivan uudessa valossa ja arvostaa sitä enemmän. 
 
-Miki on oppinut tämän ja aina, kun sen ruoka-aika tai herkkuhetki on käsillä, niin se käy jo valmiiksi istumaan tai maahan tilanteesta riippuen :) Tässä kohtaa voit itse päättää haluatko, että koira tekee aina samalla lailla, vaikkapa istuu ja odottaa, vai haluatko, että se tekee pyynnöstäsi jotain muuta sille opetettua. 
+Miki on oppinut tämän ja aina, kun sen ruoka-aika tai herkkuhetki on käsillä, niin se käy jo valmiiksi istumaan tai maahan tilanteesta riippuen. Tässä kohtaa voit itse päättää haluatko, että koira tekee aina samalla lailla, vaikkapa istuu ja odottaa, vai haluatko, että se tekee pyynnöstäsi jotain muuta sille opetettua. 
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC09041-800px.jpg)
 
@@ -79,13 +79,12 @@ Jos koira saa kaiken tarvitsemansa hopealautaselta, niin se ei todennäköisesti
 
 ### Testaa koiraasi ja selvitä mistä se motivoituu eniten
 
-Fakta on se, että jokaisen koiran pitää syödä pysyäkseen hengissä. Kaikkia koiria ruoka ei motivoi yhtä paljon ja tämä yleensä vaihtelee koiran rodusta riippuen. Koiran kouluttamisen kannalta jokaisen kannattaa testata omaa koiraansa ja tärkeintä onkin löytää se asia, joka motivoi sitä parhaiten. Yksi koira palkkaantuu ruuasta, toinen leikistä, kolmas rapsutuksista, neljäs saattaa palkkantua pelkistä kehuista ja viides vaikkapa näistä kaikista - tai ihan jostain muusta :)
+Fakta on se, että jokaisen koiran pitää syödä pysyäkseen hengissä. Kaikkia koiria ruoka ei motivoi yhtä paljon ja tämä yleensä vaihtelee koiran rodusta riippuen. Koiran kouluttamisen kannalta jokaisen kannattaa testata omaa koiraansa ja tärkeintä onkin löytää se asia, joka motivoi sitä parhaiten. Yksi koira palkkaantuu ruuasta, toinen leikistä, kolmas rapsutuksista, neljäs saattaa palkkantua pelkistä kehuista ja viides vaikkapa näistä kaikista - tai ihan jostain muusta.
 
 Jos et ole varma mikä motivoi koiraasi eniten, kannattaa tehdä tällainen testi. Jokainen meistä varmaan tunnistaa koirastaan sen ilmeen, kun se odottaa saavansa jotain. Kun Miki suorittaa pyytämäni toiminnon ja saa siitä palkaksi vain kehun tai rapsutuksia, niin tällöin Mikille tulee se ilme, että se odottaa jotain =ruokapalkkaa. Sen koko olemus sanoo "Haloo, tein juuri jotain mistä odotan palkkaa" ja se katsoo vuorotellen silmiini ja kättäni odottaen sen menevän taskuun, jossa pidän koulutuspalkkaa. Välillä se myös näyttää ihan suoraan pettyneeltä, jos ruokapalkkaa ei tule.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC42110-500px.jpg)
-
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC42111-500px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC42110-500px.JPG)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC42111-500px.JPG)
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC48620-800px.jpg)
 

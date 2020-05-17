@@ -21,16 +21,16 @@ For this one you can use any dry treats that can fit through the hole, I used ki
 
 The tennis ball was a good obstacle inside the cube and it took Miki about three minutes to get all the kibble out.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37048-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADdo78Bcuiqe0BzM94_FFDTa/aktivointi/herkkukuutio/DSC37048.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37048-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37210-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABMikgeWXFGIzcgnK7jYua-a/aktivointi/herkkukuutio/DSC37210.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37210-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37226-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADQ_HP5A4Pup0_sY_dnqnTPa/aktivointi/herkkukuutio/DSC37226.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37226-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37208-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJNcvwDDrxNn0K3LeTBsKLa/aktivointi/herkkukuutio/DSC37208.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37208-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37186-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABkZ6GQqeRWj2Og94AtINLia/aktivointi/herkkukuutio/DSC37186.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37186-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37126-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD0anbj69Ht-eFrPv13xcFca/aktivointi/herkkukuutio/DSC37126.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37126-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37040-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADx7NdZk2U5WMgYVhUimLwja/aktivointi/herkkukuutio/DSC37040.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkukuutio/DSC37040-800px.jpg)

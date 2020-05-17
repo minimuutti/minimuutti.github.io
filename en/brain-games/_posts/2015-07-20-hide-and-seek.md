@@ -13,8 +13,7 @@ We play hide and seek with Miki every now and then.
 
 We have quite a large apartment so we have plenty of places to hide. I go and hide myself when Miki is in another room and pays no attention to me. I always take some treats with me, so that Miki gets rewarded when he finds me.
 
-The hiding place doesn't need to be mediocre, so you don't have to cram yourself into bottom of your wardrobe :D
-First times you play this game, make the game easy for your dog, so go and hide somewhere your dog can easily find you. You can hide in a dark room, behind a door, undet the kitchen table, behind a bed or a couch or you can just go to your balcony if the door is already open.
+First times you play this game, make the game easy for your dog, so go and hide somewhere your dog can easily find you. You can hide in a dark room, behind a door, under the kitchen table, behind a bed or a couch or you can just go to your balcony or terrace if the door is already open.
 
 Later on you can make this game harder and even go and hide yourself outside on the yard or even in a forest.
 

@@ -17,14 +17,14 @@ Toisella kerralla laitoin sekä pandan, että lumiukko Kongin sisälle nappuloit
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49366-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAN6UzWzpqvobVBlLkAI_rxa/aktivointi/pehmopanda/DSC49366.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49366-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49402-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABV0SNLLeLaPvhc8YhMNGdga/aktivointi/pehmopanda/DSC49402.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49402-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49437-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAYnjCCBcR22lA1_wQaApQSa/aktivointi/pehmopanda/DSC49437.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49437-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49513-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC6vLxXtVdUgrNlmx5QNmfJa/aktivointi/pehmopanda/DSC49513.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49513-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49564-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACgijvQvSvLnDgA2UQ-RYYoa/aktivointi/pehmopanda/DSC49564.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49564-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49573-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA9-kugipwVWDaLz7-PUrq7a/aktivointi/pehmopanda/DSC49573.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49573-800px.jpg)

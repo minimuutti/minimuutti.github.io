@@ -25,26 +25,26 @@ Tätä leikkiä kannattaa leikkiä eri huoneissa ja vaikka kylässä ollessaan. 
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60408-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAdxEBLo0_Rhlo50PBMOC_ra/aktivointi/jotain-muuta-leikki/DSC60408.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60408-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60035-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABBmuz7nMeyit-DJCVt7lUga/aktivointi/jotain-muuta-leikki/DSC60035.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60035-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60037-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABB_YoUOlGmp9ZhjWh99xlca/aktivointi/jotain-muuta-leikki/DSC60037.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60037-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60075-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACn4a_KpAWcLU9g3FoR_GXba/aktivointi/jotain-muuta-leikki/DSC60075.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60075-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60053-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAS4A9Ev3HrIllxZm0EChXYa/aktivointi/jotain-muuta-leikki/DSC60053.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60053-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60082-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADGOZUnbFxaW1GIXb0YWQ5Ca/aktivointi/jotain-muuta-leikki/DSC60082.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60082-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60089-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAaI9oYbFeWAzBa91-NY6nta/aktivointi/jotain-muuta-leikki/DSC60089.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60089-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60100-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABERWOobk7CK7iEAI2MBnmma/aktivointi/jotain-muuta-leikki/DSC60100.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60100-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60102-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABT0kVUQqKaQuimPNF1nK4la/aktivointi/jotain-muuta-leikki/DSC60102.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60102-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DS00716-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD7hn0cyrIaPeleZoLTJpmha/aktivointi/jotain-muuta-leikki/DS00716.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DS00716-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DS00707-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADE2EzBNEtVrtsWJtc9Rmk5a/aktivointi/jotain-muuta-leikki/DS00707.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DS00707-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DS00761-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADTUIomzB6IAIcNNAQZ0Xu8a/aktivointi/jotain-muuta-leikki/DS00761.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DS00761-800px.jpg)

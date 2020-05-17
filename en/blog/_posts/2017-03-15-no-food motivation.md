@@ -87,9 +87,8 @@ The fact is that every dog needs to eat in order to stay alive. All dogs aren't 
 
 If you aren't sure what motivates your dog the most, you can do this simple test. You probably know the expression on your dog when he's clearly waiting for something. When Miki does something that I asked him to do and I pay him with praise and/or petting only he always gives me this waiting expression because he is waiting something (=a food reward). His whole being is shouting "Hello, I did something that I expect to get paid" and he looks my eyes and my hand in turns waiting that I put my hand in my pocket and pay him with food. Or sometimes he gives me this long face if he's disappointed when there is no food reward.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC42110-500px.jpg)
-
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC42111-500px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC42110-500px.JPG)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC42111-500px.JPG)
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC48620-800px.jpg)
 

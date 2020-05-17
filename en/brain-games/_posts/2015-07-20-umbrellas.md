@@ -19,8 +19,8 @@ At second time I used two umbrellas, but you can use as many as you like.
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sateenvarjot/DSC38230-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAMvl_P2ZoYe8-zTAL940E-a/aktivointi/sateenvarjot/DSC38230.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sateenvarjot/DSC38230-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sateenvarjot/DSC38196-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABUUD4z5DRvta1Whtxea6UKa/aktivointi/sateenvarjot/DSC38196.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sateenvarjot/DSC38196-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sateenvarjot/DSC38250-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADxnOYcMwRSAO5RRm_ZEAgia/aktivointi/sateenvarjot/DSC38250.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sateenvarjot/DSC38250-800px.jpg)

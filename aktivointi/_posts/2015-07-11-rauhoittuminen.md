@@ -17,8 +17,8 @@ Tätä harjoittelemme Mikin kanssa sitten myöhemmin, kun on sen aika. Nyt ensin
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/rauhoittuminen/DSC14806_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC_0Sc03DTpLHNZEJ8Dx-t6a/aktivointi/rauhoittuminen/DSC14806_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/rauhoittuminen/DSC14806_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/rauhoittuminen/DSC14799_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADGLulkO-Kic_3RNGBIFmHva/aktivointi/rauhoittuminen/DSC14799_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/rauhoittuminen/DSC14799_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/temput/1/DSC13786_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJpVEbDJMr-Hfb5Axnuy-sa/temput/1/DSC13786_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/temput/1/DSC13786_2-800px.jpg)

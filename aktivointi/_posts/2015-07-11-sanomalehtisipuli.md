@@ -21,12 +21,12 @@ Tälläistä sanomalehtisipulia ei kannata antaa koiralle valkoisella matolla, v
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sanomalehtisipuli/DSC37686-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACPE77u0txV79hNBAQ0NiERa/aktivointi/sanomalehtisipuli/DSC37686.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sanomalehtisipuli/DSC37686-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sanomalehtisipuli/DSC37688-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADLdEKW0cnIGE8xlnacvX8aa/aktivointi/sanomalehtisipuli/DSC37688.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sanomalehtisipuli/DSC37688-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sanomalehtisipuli/DSC37787-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACuNlroVcLq02Qzgu6x28xja/aktivointi/sanomalehtisipuli/DSC37787.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sanomalehtisipuli/DSC37787-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sanomalehtisipuli/DSC37764-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABT9c7WYULv6TxlCRFduMeEa/aktivointi/sanomalehtisipuli/DSC37764.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sanomalehtisipuli/DSC37764-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sanomalehtisipuli/DSC37824-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAKr4GUK4cHGJADoStDGiVLa/aktivointi/sanomalehtisipuli/DSC37824.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sanomalehtisipuli/DSC37824-800px.jpg)

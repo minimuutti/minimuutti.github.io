@@ -26,26 +26,26 @@ Samaa voi kokeilla niin, että namit ovat vaunussa palikoiden väleissä.
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-mula-vaunu/DSC42292-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACSZtlKolHL8pqRc0DnQl_Ma/aktivointi/ikean-mula-vaunu/DSC42292.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-mula-vaunu/DSC42292-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-mula-vaunu/DSC42352-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADe0XtbnkKizT09Iq22ghMRa/aktivointi/ikean-mula-vaunu/DSC42352.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-mula-vaunu/DSC42352-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-mula-vaunu/DSC44287-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAirFTjhVmkYCvfP_ZS1Xipa/aktivointi/ikean-mula-vaunu/DSC44287.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-mula-vaunu/DSC44287-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-mula-vaunu/DSC42852-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADcEC3E5laTWH1YPFxDR2RDa/aktivointi/ikean-mula-vaunu/DSC42852.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-mula-vaunu/DSC42852-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42855-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACOHEOFgIPVNmncUdDfKx9ga/aktivointi/karryn-vetaminen/DSC42855.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42855-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42862-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABvriuAQbo80zzOmp0eNU2Oa/aktivointi/karryn-vetaminen/DSC42862.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42862-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42890-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADmXWELk_EDYcu_ONdTk1a8a/aktivointi/karryn-vetaminen/DSC42890.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42890-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42919-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC1YtUeSLOZ2uTT4cWz64mTa/aktivointi/karryn-vetaminen/DSC42919.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42919-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42929-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAABiZEG1DbKKXd7hqe_elp5a/aktivointi/karryn-vetaminen/DSC42929.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42929-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC54173-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADIoavWNbMt6GhC70BXD0-ga/aktivointi/karryn-vetaminen/DSC54173.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC54173-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-mula-vaunu/DSC42357-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACpexnz988ntJdF--vwLw4ya/aktivointi/ikean-mula-vaunu/DSC42357.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-mula-vaunu/DSC42357-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ritila/DSC42191-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAArYe7fdXZgQrDkGW1GbphVa/aktivointi/ritila/DSC42191.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ritila/DSC42191-800px.jpg)

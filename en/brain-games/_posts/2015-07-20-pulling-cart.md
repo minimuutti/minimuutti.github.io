@@ -24,14 +24,14 @@ As much as we would have liked to get a sled dog when we got Miki, we didn't. Af
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC29067_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAfTJ9AAqUG0wADx860abpOa/aktivointi/karryn-vetaminen/DSC29067_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC29067_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC29055_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACeDfFF9NJ7p6nOxpUuX60ha/aktivointi/karryn-vetaminen/DSC29055_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC29055_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42862-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABvriuAQbo80zzOmp0eNU2Oa/aktivointi/karryn-vetaminen/DSC42862.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42862-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42890-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADmXWELk_EDYcu_ONdTk1a8a/aktivointi/karryn-vetaminen/DSC42890.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42890-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42919-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC1YtUeSLOZ2uTT4cWz64mTa/aktivointi/karryn-vetaminen/DSC42919.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42919-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42929-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAABiZEG1DbKKXd7hqe_elp5a/aktivointi/karryn-vetaminen/DSC42929.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42929-800px.jpg)

@@ -19,22 +19,22 @@ Tehtävän vaikeutta voi jonkun verran säädellä jättämällä pyyhkeestä en
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58159-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADpXfuZ9nEoaDphKxVCiY1za/aktivointi/under-the-dome/DSC58159.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58159-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58161-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADG_rCavhYsqPWpJ9H5XEH_a/aktivointi/under-the-dome/DSC58161.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58161-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58174-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAK8cEsHFcCjqAkFXnYwsZTa/aktivointi/under-the-dome/DSC58174.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58174-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58166-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADgaeDOaFRGc5efEn34JuP5a/aktivointi/under-the-dome/DSC58166.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58166-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58228-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABZ641Y_wcxZuwGXoQSNJ7za/aktivointi/under-the-dome/DSC58228.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58228-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58255-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAfs8vNia1VxePn_CFxdBxma/aktivointi/under-the-dome/DSC58255.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58255-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58233-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADcczcxHjbvgKZn2a0zuM2Ha/aktivointi/under-the-dome/DSC58233.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58233-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58295-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAf8RP5OGJz71KuJmmSGmbua/aktivointi/under-the-dome/DSC58295.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58295-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58234-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABuO2gisa10yCoDqOsZ70nha/aktivointi/under-the-dome/DSC58234.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58234-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58235-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABw2z3eLZuRBYQ_9_IlKAg0a/aktivointi/under-the-dome/DSC58235.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58235-800px.jpg)

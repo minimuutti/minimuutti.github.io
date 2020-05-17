@@ -27,18 +27,18 @@ Miki oppi tämän tehtävän sekunneissa. Muutaman kerran jälkeen vaihdoin tuon
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putoilevat-namit/DSC51335-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABTyDEns9DjBJ8Xyq4z-FyKa/aktivointi/putoilevat-namit/DSC51335.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putoilevat-namit/DSC51335-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putoilevat-namit/DSC51365-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAqnLo9cVcNsMivjhR7AYCSa/aktivointi/putoilevat-namit/DSC51365.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putoilevat-namit/DSC51365-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putoilevat-namit/DSC51366-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACcTniVaNGvBN5tH9z_vWvLa/aktivointi/putoilevat-namit/DSC51366.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putoilevat-namit/DSC51366-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putoilevat-namit/DSC51417-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABJ8jtS-5pLL8XkCUcBgtcva/aktivointi/putoilevat-namit/DSC51417.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putoilevat-namit/DSC51417-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putoilevat-namit/DSC51418-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACIjRUY6e5aDyBBJ7bhZ0E9a/aktivointi/putoilevat-namit/DSC51418.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putoilevat-namit/DSC51418-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putoilevat-namit/DSC51419-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABgeRvt2lB1cwrdETu7nENKa/aktivointi/putoilevat-namit/DSC51419.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putoilevat-namit/DSC51419-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putoilevat-namit/DSC51389_3-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADIaZ9_YtigDqfOK-B4LdUia/aktivointi/putoilevat-namit/DSC51389_3.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putoilevat-namit/DSC51389_3-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putoilevat-namit/DSC51321_-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABfXo3v1XjyqdCXBC3bH0zha/aktivointi/putoilevat-namit/DSC51321_.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putoilevat-namit/DSC51321_-800px.jpg)

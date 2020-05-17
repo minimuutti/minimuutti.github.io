@@ -33,4 +33,4 @@ Tätä lelua on käytetty myös tehtävässä [Fleece kiepit](/aktivointi/fleece
 
 ja lelua on käytetty vaikeutuksena [Kong Wobblerin](/aktivointilelut/kong-wobbler/) kanssa:
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS41310-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAxK7-0bJyTMWkcpKDb0Y4ca/aktivointilelut/kongit/DS41310.jpg)
+[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS41310-800px.jpg)](/aktivointilelut/kong-wobbler/)

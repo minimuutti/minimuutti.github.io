@@ -27,24 +27,26 @@ Leikattuani kaikki pahvisydämet irti, huomasin ilokseni, että yhdestä pahvila
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04772-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADBaWXVO_lFhl3QZvnztG_ma/aktivointi/ystavanpaivan-sydan/DS04772.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04772-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04779-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADoWFcVJkyXRuruqk2PwWQIa/aktivointi/ystavanpaivan-sydan/DS04779.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04779-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04813-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACqexyAOb9sqppTGSeVHnOxa/aktivointi/ystavanpaivan-sydan/DS04813.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04813-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04904-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACZmnQE7a4J14HeK9LtIxWPa/aktivointi/ystavanpaivan-sydan/DS04904.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04904-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04910-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACf6roQbz5h2GX0Z-F5WRSZa/aktivointi/ystavanpaivan-sydan/DS04910.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04910-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS05004-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACSskc7NaB-ALb1j05CEfNha/aktivointi/ystavanpaivan-sydan/DS05004.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS05004-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS05109-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACEYyRko7nEVfQD2-wKVqXLa/aktivointi/ystavanpaivan-sydan/DS05109.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS05109-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS05163-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACwt7ff7nQpAu_TmNyp7qnRa/aktivointi/ystavanpaivan-sydan/DS05163.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS05163-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS05239-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACC4zK5ep8oi7EpOFC0KVZJa/aktivointi/ystavanpaivan-sydan/DS05239.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS05239-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/sydankollaasi-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAksX-TqhkRMhAReWULXrNZa/aktivointi/ystavanpaivan-sydan/sydankollaasi.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/sydankollaasi-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04759-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADKzr2F93ezsP-jMM2SWC7Ra/aktivointi/ystavanpaivan-sydan/DS04759.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04759-800px.jpg)
+
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kurkkaa-koloon/DS04011-800px.jpg)

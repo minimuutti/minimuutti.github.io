@@ -17,16 +17,16 @@ I tied the string to the paper cup's handles and then I tied a round block to th
 
 Then I put a couple of treats into the cup and pushed the cup bottom first into the tube so far, that only the handle remained out.
 
-Miki knew right away what he was supposed to do, because of the green block handle (which have been used as a handle before). The game was still challenging for Miki, because the paper cup's diameter was about the same as the tube's, so it didn't come out so easily. Still, this game was sooo fun for Miki and for me too :)
+Miki knew right away what he was supposed to do, because of the green block handle (which have been used as a handle before). The game was still challenging for Miki, because the paper cup's diameter was about the same as the tube's, so it didn't come out so easily. Still, this game was sooo fun for Miki and for me too.
 
 As the cup was in the tube quite tightly, I hold the tube from the other end against the floor while Miki pulled the string.
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muki-tuubissa/DSC56581-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADEY8bX6-EEDmoTKd_b0oi9a/aktivointi/muki-tuubissa/DSC56581.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muki-tuubissa/DSC56581-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muki-tuubissa/DSC56597-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADzFioHr8mH3FBcQ15Kvhgia/aktivointi/muki-tuubissa/DSC56597.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muki-tuubissa/DSC56597-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muki-tuubissa/DSC56649-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACk0K48Sh3m6UXb8BgIv3PMa/aktivointi/muki-tuubissa/DSC56649.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muki-tuubissa/DSC56649-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muki-tuubissa/DSC56628-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADNrqGoGGjnRJZk6PnZhHXma/aktivointi/muki-tuubissa/DSC56628.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muki-tuubissa/DSC56628-800px.jpg)

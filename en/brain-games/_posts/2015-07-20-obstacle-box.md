@@ -17,20 +17,20 @@ I'm not going to tell you exactly how I crafted this box. If you want to do an o
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/estelaatikko/DSC41515-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC3MCRZhhhUnaNTNsfkDB3Ra/aktivointi/estelaatikko/DSC41515.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/estelaatikko/DSC41515-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/estelaatikko/DSC41529-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACzhEGlC9Ue_8Nbwt-aV-zQa/aktivointi/estelaatikko/DSC41529.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/estelaatikko/DSC41529-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/estelaatikko/DSC41526-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADVRtOvyh3FgYpOZE8dPjyFa/aktivointi/estelaatikko/DSC41526.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/estelaatikko/DSC41526-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/estelaatikko/DSC41581-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAHlU-ztK6_UllrL_Kt4ce8a/aktivointi/estelaatikko/DSC41581.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/estelaatikko/DSC41581-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/estelaatikko/DSC41625-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABV8E8kda2oPW6Ly0zR4RIza/aktivointi/estelaatikko/DSC41625.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/estelaatikko/DSC41625-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/estelaatikko/DSC41633-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB2VCiIv5Aa5nAdYTHa1RHDa/aktivointi/estelaatikko/DSC41633.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/estelaatikko/DSC41633-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/estelaatikko/DSC41641-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB4EWP3WheqtZ5sYxnkba-2a/aktivointi/estelaatikko/DSC41641.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/estelaatikko/DSC41641-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/estelaatikko/DSC41672-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB4mx-OGaBixawzAGUv950ea/aktivointi/estelaatikko/DSC41672.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/estelaatikko/DSC41672-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/estelaatikko/DSC41652-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADMZoc9JfF3DGstxFVA3G7Ba/aktivointi/estelaatikko/DSC41652.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/estelaatikko/DSC41652-800px.jpg)

@@ -19,12 +19,12 @@ Tehtävän suorittamiseen kului Mikiltä noin kaksi minuuttia.
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kelluvat-kupit/DSC39307-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABmgbC-tys5eo3J4BzX00I8a/aktivointi/kelluvat-kupit/DSC39307.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kelluvat-kupit/DSC39307-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kelluvat-kupit/DSC39318-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABBYUkFkXpxbBigGsS_FV1Va/aktivointi/kelluvat-kupit/DSC39318.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kelluvat-kupit/DSC39318-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kelluvat-kupit/DSC39312-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC38-4woSw0x47MuU6GXY7Ha/aktivointi/kelluvat-kupit/DSC39312.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kelluvat-kupit/DSC39312-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kelluvat-kupit/DSC39344-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADapIrrD14CLxw_LWtXl0fPa/aktivointi/kelluvat-kupit/DSC39344.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kelluvat-kupit/DSC39344-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kelluvat-kupit/DSC39357-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADjF252HrM26Fj-3vaNTEBLa/aktivointi/kelluvat-kupit/DSC39357.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kelluvat-kupit/DSC39357-800px.jpg)

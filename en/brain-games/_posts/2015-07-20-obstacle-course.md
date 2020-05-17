@@ -27,22 +27,22 @@ Miki loved this game so much, that he didn't have patience to wait while the oth
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC58098_-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACx2X_WVTc74yMlt7cFl5h3a/aktivointi/esterata/DSC58098_.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC58098_-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC58046-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADKVFCpaeLntoaimMwbCXZga/aktivointi/esterata/DSC58046.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC58046-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC58047-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACPw8fATNgdXhXJgooYraIRa/aktivointi/esterata/DSC58047.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC58047-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC57978-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABYHyxgy4TGk1bs6A1G18HHa/aktivointi/esterata/DSC57978.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC57978-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC57985-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADdq6n3Rr2kal3aD9RRxEKYa/aktivointi/esterata/DSC57985.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC57985-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC58011-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAYyQl6ThJSUkWS4nu6yoota/aktivointi/esterata/DSC58011.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC58011-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC57944-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADefZRokJcyQEUv-DnxKqbOa/aktivointi/esterata/DSC57944.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC57944-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC57946-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD5-sRvtlpGQTNeU2QT8yoXa/aktivointi/esterata/DSC57946.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC57946-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC57964-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADtZizzEYiMIeGEaV4zs0JGa/aktivointi/esterata/DSC57964.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC57964-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC57968-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADO9fWZ_d-x5A7th5KN-dBXa/aktivointi/esterata/DSC57968.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC57968-800px.jpg)

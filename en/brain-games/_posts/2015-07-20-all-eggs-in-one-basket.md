@@ -19,73 +19,73 @@ The single games were relatively easy for Miki. However he needed to think how t
 
 ###### Game 1: Tennis balls
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__1-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABM90rTwR4G2T0MFDsXsFHqa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__1.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__1-800px.jpg)
 
 ###### Game 2: JW Hol-ee Roller
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__6-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACG5vw5PoxFqL1PdPrIDfIDa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__6.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__6-800px.jpg)
 
 
 ###### Game 3: Kong Genius Leos
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__iso_1-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACW1k-Xr7eTAXB4d62_h1lWa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__iso_1.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__iso_1-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__31-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA2EblOdfXgWHXKuUjJgbdAa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__31.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__31-800px.jpg)
 
 ###### Game 4: Space Ball Stellaron and floorball
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACagI3XIgMAPG6WvUYm88hZa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__2-800px.jpg)
 
 ###### Game 5: Small cups
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__3-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAvH7zZa_C1w5jqfyzokoUpa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__3.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__3-800px.jpg)
 
 ###### Game 6: Rope toy
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__4-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABsYehfHKyyPKhe8xKgsZ-Sa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__4.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__4-800px.jpg)
 
 ###### Game 7: Towel
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__5-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADppxE-KM_om_KCJp8IKeSsa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__5.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__5-800px.jpg)
 
 ###### Game 8: Bowl
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__8-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADiTXJ-BnNUasLzVspwyd7Za/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__8.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__8-800px.jpg)
 
 ###### Game 9: Treat tubes
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__9-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAg60Sbi6h8oUi1wTPvKbHWa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__9.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__9-800px.jpg)
 
 ###### Game 10: Soccer balls
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__iso_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABV7uM4VDfVQgPpp5FAV3-fa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__iso_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__iso_2-800px.jpg)
 
 ###### Game 11: Stuffed panda
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__iso_3-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACozuL8FEFEuf_noJWgHziea/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__iso_3.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__iso_3-800px.jpg)
 
 ###### Game 12: Large cups
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__7-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACk5-sr0EHr4Dp_ZbwTzLPaa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__7.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__7-800px.jpg)
 
 ###### Game 13: Packing paper
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__20-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAL2Gv9iRUtPgBNSTdLBkTIa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__20.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__20-800px.jpg)
 
 ###### Game 14: Paper balls made from packing paper
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__21-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAkVGPzjpjC69dupooFUUDja/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__21.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__21-800px.jpg)
 
 ###### Game 15: Corals
 
 You can find the directions how to make corals from [here](/en/brain-games/corals/).
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__32-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADYxUPMZM_W5CDad2VPXCGNa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__32.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__32-800px.jpg)
 
 ###### Game 16: Laundry balls
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__34-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD4GsDt67VGcps65Kb-D6uoa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__34.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__34-800px.jpg)
 
 ###### Game 17: Fleece strips
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__33-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABo4PglkuYlL2ekjHZJWkTFa/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__33.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/Kollaasi__33-800px.jpg)

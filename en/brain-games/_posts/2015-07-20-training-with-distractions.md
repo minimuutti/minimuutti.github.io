@@ -21,6 +21,6 @@ Different sounds are good distractions too. Open the the drawer where you store 
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/hairioharjoitukset/DSC41354-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACZiIaBZ6bxkXSf-2U0Ij1Fa/aktivointi/hairioharjoitukset/DSC41354.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/hairioharjoitukset/DSC41354-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/hairioharjoitukset/DSC41355-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA6pk4JhYZkCQGw5sbgkDUua/aktivointi/hairioharjoitukset/DSC41355.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/hairioharjoitukset/DSC41355-800px.jpg)

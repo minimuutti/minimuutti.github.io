@@ -21,13 +21,13 @@ It took Miki about a minute to find a small handful of kibble.
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkilot-laatikossa/DSC47163-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD5tvjmo70J920Z9Zdz32bCa/aktivointi/putkilot-laatikossa/DSC47163.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkilot-laatikossa/DSC47163-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkilot-laatikossa/DSC47197-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABr2SVEEKJ4OYZpGtC76JNPa/aktivointi/putkilot-laatikossa/DSC47197.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkilot-laatikossa/DSC47197-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkilot-laatikossa/DSC47175-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABevI79gZKIeYiK0FyupVa2a/aktivointi/putkilot-laatikossa/DSC47175.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkilot-laatikossa/DSC47175-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkilot-laatikossa/DSC47219-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC94TFIbqR4uPlEr55keAKEa/aktivointi/putkilot-laatikossa/DSC47219.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkilot-laatikossa/DSC47219-800px.jpg)
 
 ### Game 2
 
@@ -35,12 +35,12 @@ I took four tubes and I put the treats in the tubes before I placed them in the 
 
 It took Miki about two minutes to figure out, that he needed to lift the tubes out of the box one at a time in order to get the treats. It took Miki about three minutes altogether to eat all the treats.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkilot-laatikossa/DSC48624-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABXSbvdObb7cbcMxxLPrF4Da/aktivointi/putkilot-laatikossa/DSC48624.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkilot-laatikossa/DSC48624-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkilot-laatikossa/DSC48626-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACyin1UsXUADPolIaPc_6Wqa/aktivointi/putkilot-laatikossa/DSC48626.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkilot-laatikossa/DSC48626-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkilot-laatikossa/DSC48644-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACXJtsFI_x6qOohbtU2c1m1a/aktivointi/putkilot-laatikossa/DSC48644.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkilot-laatikossa/DSC48644-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkilot-laatikossa/DSC48649-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABKLS0m9r9XM6eUwGhVuWTsa/aktivointi/putkilot-laatikossa/DSC48649.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkilot-laatikossa/DSC48649-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkilot-laatikossa/DSC48651-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC_kHBOQ2YZnt_oXSobqpGBa/aktivointi/putkilot-laatikossa/DSC48651.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkilot-laatikossa/DSC48651-800px.jpg)

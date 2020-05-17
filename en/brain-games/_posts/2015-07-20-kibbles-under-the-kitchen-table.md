@@ -17,6 +17,6 @@ It takes Miki about two to three minutes to get all the kibble. And his morning 
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulat-poydan-alla/DSC29490_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADV3OJxGreg6u-Y9LNMkug9a/aktivointi/nappulat-poydan-alla/DSC29490_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulat-poydan-alla/DSC29490_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulat-poydan-alla/DSC29489_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAaIJ_RaD2SannyZP5NeyRWa/aktivointi/nappulat-poydan-alla/DSC29489_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulat-poydan-alla/DSC29489_2-800px.jpg)

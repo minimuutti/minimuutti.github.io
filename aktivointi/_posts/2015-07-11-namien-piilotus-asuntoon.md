@@ -19,10 +19,10 @@ Vaihtelua tähän leikkiin saa laittamalla namit ensin paperipallojen sisälle, 
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30802-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADJNygvQa5m6cGDUvu5DudXa/aktivointi/namien-piilotus-asuntoon/DSC30802.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30802-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30814-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAEYDFOUkdaw9LZeU-PLTHfa/aktivointi/namien-piilotus-asuntoon/DSC30814.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30814-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30810-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAKFuVHweL_TIlsUVMWNA6-a/aktivointi/namien-piilotus-asuntoon/DSC30810.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30810-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30804-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACmjUIUiQGOgKfXrsJ3qqG2a/aktivointi/namien-piilotus-asuntoon/DSC30804.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30804-800px.jpg)

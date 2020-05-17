@@ -9,7 +9,7 @@ image:
 
 Kong Genius Leo on yksi Mikin suosikkileluista.
 
-Lelun suosioon voi vaikuttaa myös se, että minäkin pidän lelusta :) Se antaa Mikille kivasti haastetta ja se on kestänyt käytössä pitkään.
+Lelun suosioon voi vaikuttaa myös se, että minäkin pidän lelusta. Se antaa Mikille kivasti haastetta ja se on kestänyt käytössä pitkään.
 
 Lelua tehdään monessa koossa ja tämä kuvissa näkyvä on L kokoinen.
 
@@ -19,7 +19,7 @@ Yleensä laitan leluun nappuloita ja nappuloiden tyhjentäminen kestää Mikilt�
 
 Laitoin myös Kong Companylle kehitysehdotuksen, että näitä Genius leluja voisi valmistaa myös mustasta Extreme -materiaalista, jotta lelu kestäisi kovempaakin käsittelyä. Tämän yhden tapauksen jälkeen uusi lelu on kestänyt Mikin käytössä jo vuosia.
 
-Miki rakastaa tätä lelua. Kun olimme muuttamassa, niin pakkasimme tavaroitamme laatikoihin ja Miki seurasi vierestä. Miki hävisi hetkeksi ja se palasi takaisin tämän lelun kanssa. Miki toi lelun meille ja asetti sen pakattavana olevan laatikon viereen. Se selvästikin tajusi mitä oli tapahtumassa ja varmisti, että hänen lempilelunsa pakataan mukaan :)
+Miki rakastaa tätä lelua. Kun olimme muuttamassa ja pakkasimme tavaroitamme laatikoihin niin Miki seurasi puuhailuamme vierestä. Miki hävisi hetkeksi ja se palasi takaisin tämän lelun kanssa. Miki toi lelun meille ja asetti sen pakattavana olevan laatikon viereen. Se selvästikin tajusi mitä oli tapahtumassa ja varmisti, että hänen lempilelunsa pakataan mukaan.
 
 Näissä kuvissa Miki touhuaa lelun kanssa ensimmäistä kertaa.
 

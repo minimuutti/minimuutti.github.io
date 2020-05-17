@@ -17,14 +17,14 @@ Mikiltä kesti noin minuutin saada namit ulos tästä.
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55791-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAOfkISr4KZEWz8jJUlTucCa/aktivointi/herkkuwrappi/DSC55791.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55791-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55799-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACUuHIXFj7SBBeEQqP_p7gqa/aktivointi/herkkuwrappi/DSC55799.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55799-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55844-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADesYMq5GN67NVeFnkrxs1pa/aktivointi/herkkuwrappi/DSC55844.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55844-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55864-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABG98fakMR0-HdolPpJTp5la/aktivointi/herkkuwrappi/DSC55864.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55864-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55871-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAuxoHtluoBLfBOme9qqSJda/aktivointi/herkkuwrappi/DSC55871.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55871-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55779-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAAecPJgAQ0HBljoPIWXIXKa/aktivointi/herkkuwrappi/DSC55779.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55779-800px.jpg)

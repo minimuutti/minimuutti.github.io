@@ -25,7 +25,7 @@ Kong Traxx renkaan saa helposti yhdistettyä myös muihin leluihin. Olen käytt�
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS10861_-800px.jpg)
 
-Olen yhdistänyt Kong Traxx -renkaan myös JW Playbites Caterpillar lelun kanssa. Laitoin renkaan sisälle muutaman [Nutrivet Instinct Dog Treat](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/nutrivet)) namin jotka ovat juuri oikean kokoisia lelun sisälle, sekä nappuloita ja sitten Caterpillar lelun renkaan läpi. Mikiltä kesti noin 2-3 minuuttia saada lelut erotettua ja namit syötyä. 
+Olen yhdistänyt Kong Traxx -renkaan myös JW Playbites Caterpillar lelun kanssa. Laitoin renkaan sisälle muutaman [Wolf of Wilderness Wild Bites](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(https://www.zooplus.fi/shop/koirat/luut/wolf_of_wiilderness/wolf_of_wilderness_lihakuutiot/688392?rrec=true&pr=product1_rr&slot=1&exprienceid=7837&strategyid=103144)) namin jotka ovat oikean kokoisia lelun sisälle, sekä nappuloita ja sitten Caterpillar lelun renkaan läpi. Mikiltä kesti noin 2-3 minuuttia saada lelut erotettua ja namit syötyä. 
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS11128-800px.jpg)
 

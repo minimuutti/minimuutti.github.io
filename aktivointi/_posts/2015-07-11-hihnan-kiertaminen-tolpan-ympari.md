@@ -17,10 +17,10 @@ Tässäkin kannattaa aloittaa ensin yhdellä kierroksella ja se kannattaa aloitt
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32210-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC2MmXDiF8cVYsbglxkEGZTa/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32210.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32210-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32196-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAASBfLYoXFM0nEp4mG23unMa/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32196.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32196-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32197-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA7_3SLMFAa9i5RA-5AHGvna/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32197.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32197-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32198-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABVVnkuWsSlPGfdcsFKU4F8a/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32198.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32198-800px.jpg)

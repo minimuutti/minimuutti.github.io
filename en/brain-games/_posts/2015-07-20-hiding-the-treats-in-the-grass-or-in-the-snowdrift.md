@@ -18,8 +18,8 @@ Searching in the dusk or in the dark is always harder for your dog than searchin
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB_tRoRrBfDq7I7AdEb4w_xa/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23983_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACtTCK3wRxoCR43oUP6PTcPa/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23983_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23983_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC27428_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAfYJUIihNkK9Ks3Xao1TtLa/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC27428_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC27428_2-800px.jpg)

@@ -17,20 +17,20 @@ So I put this rope into a cardboard box and take the metal snap hook out. Then I
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koysilaatikko/DSC30098_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABk_1YmCySuM16smJPZKpkNa/aktivointi/koysilaatikko/DSC30098_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koysilaatikko/DSC30098_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koysilaatikko/DSC30102_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADhFF3NIdIoLdrb5VPs_CRSa/aktivointi/koysilaatikko/DSC30102_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koysilaatikko/DSC30102_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koysilaatikko/DSC26678_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACmWqIHuZkHHGemydBKW55Ka/aktivointi/koysilaatikko/DSC26678_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koysilaatikko/DSC26678_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koysilaatikko/DSC26701_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACX51D73LVU08BIEh5fP7HYa/aktivointi/koysilaatikko/DSC26701_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koysilaatikko/DSC26701_2-800px.jpg)
 
 If you don't have any rope you can always improvise. I happened to have three long fleece plaits which I put on a basket and they were just perfect for this game.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koysilaatikko/DS40104-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB85FbKs8QNXhhCOaaoi5dqa/aktivointi/koysilaatikko/DS40104.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koysilaatikko/DS40104-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koysilaatikko/DS40135-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACLaLnVkNKB5jIQiV_K2cS4a/aktivointi/koysilaatikko/DS40135.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koysilaatikko/DS40135-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koysilaatikko/DS40110-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAGWf9i5zgEdYZEZqmkuX2Da/aktivointi/koysilaatikko/DS40110.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koysilaatikko/DS40110-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koysilaatikko/DS40124-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAARBANQNIf3D3Z7uBweEXs8a/aktivointi/koysilaatikko/DS40124.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koysilaatikko/DS40124-800px.jpg)

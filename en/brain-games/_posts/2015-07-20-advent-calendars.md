@@ -25,29 +25,29 @@ Or you can put some pate in the gaps and put the tray in the freezer for a coupl
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59065-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAEOI0WAwhSsOwFzQ00uu_va/aktivointi/joulukalenterit/DSC59065.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59065-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59082-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAbG2F2jaPOsG5OzFT9i3oXa/aktivointi/joulukalenterit/DSC59082.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59082-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59121-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACGWvd5X-kj0CQH5Fnp6uc6a/aktivointi/joulukalenterit/DSC59121.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59121-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59190-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADzQquaaoam8mY4k5Wy-_kxa/aktivointi/joulukalenterit/DSC59190.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59190-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59233-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACZkktfkQprfLpUSw4gUj0ga/aktivointi/joulukalenterit/DSC59233.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59233-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59250-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABRCcU_Qz_xGsWxWQcMXX0-a/aktivointi/joulukalenterit/DSC59250.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59250-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59057-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABur-JoffunzY_EuqRwQJX2a/aktivointi/joulukalenterit/DSC59057.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59057-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59352-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAHMYX80Fegs9UnETgbiWIva/aktivointi/joulukalenterit/DSC59352.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59352-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59357-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABwyMimbKC6XuXDJ2NQE6wka/aktivointi/joulukalenterit/DSC59357.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59357-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59408-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABEOw7dVr9rwSv5k1v2wdgda/aktivointi/joulukalenterit/DSC59408.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59408-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC60440-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABk_-QHNhdXskDNDG7s9Zb2a/aktivointi/joulukalenterit/DSC60440.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC60440-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC60457-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABgbKFZ9AQXaYt2IjE4Ks0Ua/aktivointi/joulukalenterit/DSC60457.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC60457-800px.jpg)
 
 Advent calendar tray has also been used in the [Fleece puzzle](/en/brain-games/fleece-puzzle/) game:
 

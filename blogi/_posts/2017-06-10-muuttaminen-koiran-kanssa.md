@@ -63,7 +63,7 @@ Muista, ettei koiran jättäminen kuumaan autoon muuttopäiväksi ole vaihtoehto
 
 ### Koirat ovat älykkäitä
 
-Koirat ovat älykkäitä ja ne keksivät nopeasti mitä on tapahtumassa. Pakkasimme tavaroitamme muuttolaatikoihin vanhassa asunnossamme Mikin katsellessa touhuamme. Muutaman laatikon pakattuamme se kävi jostain hakemassa yhden leluistaan ja asetti sen laatikon viereen jota olimme juuri pakkaamassa. Sen koko olemus sanoi meille: "Tämä on se lelu, josta pidän ja jonka haluan mukaan, pakatkaa myös tämä"  :)
+Koirat ovat älykkäitä ja ne keksivät nopeasti mitä on tapahtumassa. Pakkasimme tavaroitamme muuttolaatikoihin vanhassa asunnossamme Mikin katsellessa touhuamme. Muutaman laatikon pakattuamme se kävi jostain hakemassa yhden leluistaan ja asetti sen laatikon viereen jota olimme juuri pakkaamassa. Sen koko olemus sanoi meille: "Tämä on se lelu, josta pidän ja jonka haluan mukaan, pakatkaa myös tämä".
 
 ### Uudessa kodissa
 
@@ -88,8 +88,6 @@ Jos muutat työn vuoksi ja työaikasi muuttuvat muuton yhdeydessä, niin mieti o
 ### Uusia alkuja
 
 Muutto on erinomainen mahdollisuus kouluttaa pois vanhoja mörköjä, koska uudessa asunnossa on uudet hajut, uudet äänet, uusi ympäristö jne. Nyt sinulla on mitä parhain mahdollisuus opettaa koirallesi vaikeat asiat aivan alusta, koska koira ei välttämättä yhdistä tätä uutta tekemistä vanhoihin kaavoihin. Ovikellon haukkuminen on eräs mörkö monella koiralla ja muutto onkin oiva tilaisuus kouluttaa tämä haukkuminen pois.
-
-Voit lukea lisää siedättämisestä [täältä](/aktivointi/siedattaminen-sheippaamalla/).
 
 Onneksi Mikin kanssa ei koskaan ole ollut mitään suurempia ongelmia. Meillä on satunnaisia ongelmia turkin kuivaamisen kanssa, muttei onneksi mitään vakavaa. Miki antaa kyllä kuivata eikä pyri karkuun, mutta sen vinkumisesta kyllä huomaa, ettei se pidä siitä. Itse päätin puuttua tähän kuivausmörköön nyt muuton yhteydessä, vaikka ongelma ei meillä ole mitenkään paha.
 

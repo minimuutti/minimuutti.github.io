@@ -154,7 +154,7 @@ Olen satunnaisesti ostanut (tai saanut) märkäruokaa Mikille ja se kyllä ollut
 
 ##### Jäätelön näköinen jäätelö
 
-Jos välttämättä haluat tehdä koirallesi ihmisten jäätelön kaltaista jäätelöä, niin tässä on ohje myös sellaiseen. Teen tätä samaa jäätelöä myös itselleni, sillä erotuksella, että laitan seokseen hieman makeutta, mutta tätä jäätelöä voitte syödä koirasi kanssa samasta kulhosta :)
+Jos välttämättä haluat tehdä koirallesi ihmisten jäätelön kaltaista jäätelöä, niin tässä on ohje myös sellaiseen. Teen tätä samaa jäätelöä myös itselleni, sillä erotuksella, että laitan seokseen hieman makeutta, mutta tätä jäätelöä voitte syödä koirasi kanssa samasta kulhosta.
 
 * 2dl laktoositonta vähärasvaista jugurttia tai rahkaa
 * 1 kypsä banaani
@@ -166,7 +166,7 @@ Tässä reseptissä voi ihan yhtä hyvin käyttää muitakin hedelmiä, kuten va
 
 ### Apukokki aina mukana
 
-Kuten jo aiemmin kerroinkin, niin Miki kyllä rakastaa ruokaa kuin ruokaa, mutta mikään ei voita juuri keitettyä lihaa. Minulla onkin aina apukokki keittiössä valmistaessani näitä jäätelöitä (tai oikeastaan mitä tahansa ruokaa) :) Apukokki tietää, että ainoa keino saada maistiaisia, on odottaa hiljaa maaten matolla. Jaloissa ei saa pyöriä eikä varsinkaan kerjätä, silloin jää ilman.
+Kuten jo aiemmin kerroinkin, niin Miki kyllä rakastaa ruokaa kuin ruokaa, mutta mikään ei voita juuri keitettyä lihaa. Minulla onkin aina apukokki keittiössä valmistaessani näitä jäätelöitä (tai oikeastaan mitä tahansa ruokaa). Apukokki tietää, että ainoa keino saada maistiaisia, on odottaa hiljaa maaten matolla. Jaloissa ei saa pyöriä eikä varsinkaan kerjätä, silloin jää ilman.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS59333-800px.jpg)
 

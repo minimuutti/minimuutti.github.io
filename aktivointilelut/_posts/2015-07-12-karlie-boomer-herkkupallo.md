@@ -19,7 +19,7 @@ Karlie Boomer pallon tyhjentäminen kestää Mikiltä noin pari minuuttia. Lelun
 
 Suosittelen lämpimästi tätä Karlie Boomer herkkupalloa. Siitä kannattaa maksaa vähän enemmän, koska tuon halvan kopion kanssa menee lähinnä vaan hermot.
 
-Näissä kuvissa Miki on reilun vuoden ikäinen ja se ihmettelee palloa ensimmäistä kertaa :)
+Näissä kuvissa Miki on reilun vuoden ikäinen ja se ihmettelee palloa ensimmäistä kertaa.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00913_2-800px.jpg)
 

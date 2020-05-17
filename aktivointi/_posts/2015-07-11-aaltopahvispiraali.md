@@ -18,18 +18,18 @@ Mikiltä kesti noin 6 minuuttia saada kaikki namit ulos tuolta.
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53679-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACuq5Q3BbKv017mib94z_Wba/aktivointi/aaltopahvispiraali/DSC53679.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53679-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53683-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADuHZ2YVdkJWHmtPBxfbLHYa/aktivointi/aaltopahvispiraali/DSC53683.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53683-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53727-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB7R-v5fWC-5t5pWKum3wb9a/aktivointi/aaltopahvispiraali/DSC53727.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53727-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53702-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAfNyYKmvUUlRRrnFH0MqWUa/aktivointi/aaltopahvispiraali/DSC53702.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53702-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53764-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACtwSDeUzqv4s-b3SjjmZ4Xa/aktivointi/aaltopahvispiraali/DSC53764.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53764-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53866-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABjI1EeJyj3ZvUxXRDEcl5za/aktivointi/aaltopahvispiraali/DSC53866.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53866-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53877-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA0OZoXjbW67okjpyyrABOLa/aktivointi/aaltopahvispiraali/DSC53877.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53877-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53839-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACFGlwf9dbbdqilGS-c25E1a/aktivointi/aaltopahvispiraali/DSC53839.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53839-800px.jpg)

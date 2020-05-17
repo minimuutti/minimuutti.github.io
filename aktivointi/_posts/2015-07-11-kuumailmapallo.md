@@ -18,12 +18,12 @@ Mikiltä kesti pallon pudottaminen noin minuutin.
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40547-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAiMorsN6nUEHn634QoOT27a/aktivointi/kuumailmapallo/DSC40547.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40547-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40575-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACJY-AjQ--fm_OmNj_AD2p9a/aktivointi/kuumailmapallo/DSC40575.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40575-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40554-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABYTvjqOH2KFBaM3yY9YaHEa/aktivointi/kuumailmapallo/DSC40554.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40554-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40589-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA8OE6nT-jopIoFFQsMB9lVa/aktivointi/kuumailmapallo/DSC40589.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40589-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40545-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAASxcV9MIoF7cZGd_XPAhtua/aktivointi/kuumailmapallo/DSC40545.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40545-800px.jpg)

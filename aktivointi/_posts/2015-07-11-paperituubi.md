@@ -23,22 +23,22 @@ Mikiltä meni noin 10 minuuttia tämän jättituubin tuhoamisessa.
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DSC29139_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC0HKq-8P7BIUmmW7KM3Axba/aktivointi/paperituubi/DSC29139_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DSC29139_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DSC29140_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD5fSJTEQtLDSsxZ5s94NQUa/aktivointi/paperituubi/DSC29140_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DSC29140_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DSC29142_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADO_MH5-r84IgHcYABANhsqa/aktivointi/paperituubi/DSC29142_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DSC29142_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DSC29144_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACuCJmbUSeH5hcvKQRcjKrva/aktivointi/paperituubi/DSC29144_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DSC29144_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DSC29173_2-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADDGYJfhuAZ7jS0vDZyVaHwa/aktivointi/paperituubi/DSC29173_2.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DSC29173_2-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DS01685-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADWPbwLLO6kAKalBOu6X7ANa/aktivointi/paperituubi/DS01685.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DS01685-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DS01693-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABwrt7Ct3e21m3y9OTZRvXwa/aktivointi/paperituubi/DS01693.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DS01693-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DS01711-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA-Ip4tBJ3oLepZUrV76zTwa/aktivointi/paperituubi/DS01711.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DS01711-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DS01780-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB0vE8Lqkg3McDovS3ICMoPa/aktivointi/paperituubi/DS01780.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DS01780-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DS01781-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADxsvVUQ5iRjh1hWHgzEyxVa/aktivointi/paperituubi/DS01781.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DS01781-800px.jpg)

@@ -17,14 +17,14 @@ Tähän mattoon meni 85 korallia, mutta määrä riippuu käyttämäsi pyyhkeen 
 
 Ensimmäisellä kerralla ripottelin nappulat tuohon päälle, jotta Miki yhdisti tehtävän haisteluun ja etsimiseen. Vasta myöhemmin piilottelin nappulat tuonne korallien koloihin.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/korallimatto/DS60525-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD_CBBBSamE9rIPh58ugvVia/aktivointi/korallimatto/DS60525.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/korallimatto/DS60525-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/korallimatto/DS60577-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAgequnkYRhna_4XC1hsBCQa/aktivointi/korallimatto/DS60577.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/korallimatto/DS60577-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/korallimatto/DS60641-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACCGClULBI3MKDbtkdCJLhCa/aktivointi/korallimatto/DS60641.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/korallimatto/DS60641-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/korallimatto/DS60671-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADY90KwtcD9oX5pNkDNKJUJa/aktivointi/korallimatto/DS60671.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/korallimatto/DS60671-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/korallimatto/DS60699-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADO0MrD8Av0MKe-lbesSI8Ka/aktivointi/korallimatto/DS60699.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/korallimatto/DS60699-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/korallimatto/DS60331-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABZprp8OFK3y0TcR06p8DjJa/aktivointi/korallimatto/DS60331.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/korallimatto/DS60331-800px.jpg)

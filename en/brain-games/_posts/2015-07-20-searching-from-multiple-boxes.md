@@ -19,10 +19,10 @@ If your dog hasn’t search much before, you can start with only three boxes, li
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsinta-useista-laatikoista/DSC29381-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAOfwBVj4yDcLaIFlieens9a/aktivointi/etsinta-useista-laatikoista/DSC29381.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsinta-useista-laatikoista/DSC29381-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsinta-useista-laatikoista/DSC29389-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADtDrRVz5bU9un1-lBN_JrOa/aktivointi/etsinta-useista-laatikoista/DSC29389.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsinta-useista-laatikoista/DSC29389-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsinta-useista-laatikoista/DSC29362-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADX4o1pN_MWT-LGR-15O9cja/aktivointi/etsinta-useista-laatikoista/DSC29362.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsinta-useista-laatikoista/DSC29362-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsinta-useista-laatikoista/DSC29376-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC2_B3AUK2BHwC80h-CEQoga/aktivointi/etsinta-useista-laatikoista/DSC29376.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsinta-useista-laatikoista/DSC29376-800px.jpg)

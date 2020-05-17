@@ -13,10 +13,10 @@ You can read more about the study in [here](http://www.companionanimalpsychology
 
 ### Nose work
 
-Any type of nose work games and searching games are good ways to drain your dog's energy.
+Any type of nose work games and searching games are good ways to drain dogs' energy. You could say that dogs are using their brains when they are using their nose.
 
 If your dog hasn’t searched for anything before, you should start by throwing a couple of treats to the floor in front of your dog so that he can see them and give a cue: search (when he goes and eat the treats).
-Only after this you can make the searching games harder. You can throw the treats on a sidewalk, or in a short grass. Later on you can throw the treats in a long grass on even in a snowdrift. When you are outside with your dog you should always be very careful, because you can’t always be sure if there aren’t any broken glass or other dangerous things in the thick, long grass. Or there could be something hidden, that you may not like your dog to eat, like used paper tissues or chewing gums.
+Only after this you can make the searching games harder. You can then throw treats on he ground or into short grass. Later on you can throw treats into long grass on even into a snowdrift. When you are outside with your dog you should always be very careful, because you can’t always be sure if there aren’t any broken glass or other dangerous things in the thick, long grass. Or there could be something hidden, that you may not like your dog to eat, like used paper tissues or chewing gums.
 
 Here you can find various nose work and searching game ideas for your dog.
 
@@ -26,6 +26,6 @@ You can arrange various of problem solving tasks and brain games for your dog, a
 
 You should never help your dog with the tasks you’ve given to him, because when the dog figures something out by itself, it drains the energy and boosts the dog's self-confidence. Always start with something easy enough, so your dog can complete the task without any help.
 
-You should always watch your dog when you give him these assignments to prevent any injuries. And you shouldn’t give him any toxic materials or anything with small loose parts that he could swallow by accident.
+You should always supervise your dog when you give him these assignments to prevent any injuries. And you shouldn’t give him any toxic materials or anything with small loose parts that he could swallow by accident.
 
 You'll get to see the full posts with more images by clicking the small icons.

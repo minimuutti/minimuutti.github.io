@@ -15,6 +15,6 @@ Myöhemmin on tarkoitus saada Miki odottamaan lupaa ottaa sen nenän päälle as
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/odottaminen/DSC29359-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB8VPREXZCX5tPb_e-zgSy-a/aktivointi/odottaminen/DSC29359.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/odottaminen/DSC29359-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/odottaminen/DSC32591-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACwLrrbpcDTirPoxU0EkENTa/aktivointi/odottaminen/DSC32591.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/odottaminen/DSC32591-800px.jpg)

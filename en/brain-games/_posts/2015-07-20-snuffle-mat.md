@@ -25,18 +25,18 @@ The first time you give the mat to your dog, put the threats ON TOP of the strip
 
 You may want to use only dry treats with the mat. If you make the mat with a towel, you can easily put the mat inside a laundry bag and put it in the washing machine. If you choose a rubber mat you may need to hand wash it if it gets dirty.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16645-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADaVdAODgjzdvrhUYSiI1tua/aktivointi/fleecematto/DS16645.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16645-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16649-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADrfEL3DG8vEAGXRwDps-E7a/aktivointi/fleecematto/DS16649.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16649-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16370-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADPQbB3Vjegzsq5XHO_zkdBa/aktivointi/fleecematto/DS16370.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16370-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16386-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAbUabrAkrCdEtpNZEMP-3Aa/aktivointi/fleecematto/DS16386.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16386-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16409-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABvRhWGSSFfuhqd0ZLA04i2a/aktivointi/fleecematto/DS16409.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16409-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16401-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABHJI7QWzf5mF8Kk2g4f8-Ta/aktivointi/fleecematto/DS16401.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16401-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16431-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACISAilmecqqeFkF5_FV_aVa/aktivointi/fleecematto/DS16431.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16431-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/fleecematto_kollaasi-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADdEqBfmgLbIZR0nozo-v6da/aktivointi/fleecematto/fleecematto_kollaasi.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/fleecematto_kollaasi-800px.jpg)

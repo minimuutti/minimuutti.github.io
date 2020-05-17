@@ -21,14 +21,14 @@ Tätä tehtävää voi vaikeuttaa leikkaamalla aaltopahvista pidemmän suikaleen
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55668-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB16RvF3Tw8Sm-SiiBOfatBa/aktivointi/aaltopahviwrapit/DSC55668.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55668-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55671-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD3cyzdfG-yoH7kyrU9D4Aya/aktivointi/aaltopahviwrapit/DSC55671.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55671-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55675-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABez40uqyJb1dcOAuYpPubva/aktivointi/aaltopahviwrapit/DSC55675.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55675-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55676-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAChCdrV4GvA5Tf2sJsP0leTa/aktivointi/aaltopahviwrapit/DSC55676.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55676-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55685-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADm8vJd2xiIuktqBf1_Aa4_a/aktivointi/aaltopahviwrapit/DSC55685.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55685-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55665-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACne5RLc_NSW4LOlliZ4EFma/aktivointi/aaltopahviwrapit/DSC55665.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55665-800px.jpg)

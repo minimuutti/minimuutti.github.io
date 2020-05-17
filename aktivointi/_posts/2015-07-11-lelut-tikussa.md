@@ -9,7 +9,7 @@ image:
 
 Lelujen vetäminen pois tikusta antaa koiralle aivan uudenlaista haastetta.
 
-Laitoin Kong Traxx renkaan sisälle pari [Nutrivet Instinct Dog Treat](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/nutrivet)) namia, jotka ovat juuri oikean kokoisia lelun sisälle ja sen jälkeen pujotin renkaan tikkuun.
+Laitoin Kong Traxx renkaan sisälle pari [Wolf of Wilderness Wild Bites](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(https://www.zooplus.fi/shop/koirat/luut/wolf_of_wiilderness/wolf_of_wilderness_lihakuutiot/688392?rrec=true&pr=product1_rr&slot=1&exprienceid=7837&strategyid=103144)) namia, jotka ovat juuri oikean kokoisia lelun sisälle ja sen jälkeen pujotin renkaan tikkuun.
 
 Käyttämäni tikku on mopin varsi, mutta voit käyttää mitä tahansa tikkua tai vartta johon saa jonkun koiran leluista pujotettua. Tikku ei kuitenkaan saa olla terävä eikä sen päässä saa olla mitään piikkiä ettei koira vahingossa satuta itseään.
 
@@ -19,26 +19,26 @@ Tehtävää voi vaikeuttaa niin, että pitelee tikkua yläviistoon, jolloin lelu
 
 Kong Traxx -lelun saat ostettua [Zooplussasta](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/lelut/aktivointilelut/aktivointi/326683)).
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS07912-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD8Ta6o9PieqTyidFXaozdfa/aktivointi/lelut-tikussa/DS07912.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS07912-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS07913-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADcnttXEqgxZLEfYXVkCUCaa/aktivointi/lelut-tikussa/DS07913.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS07913-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS07996-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADqAcZ5ibCysRcOrPMn_zT0a/aktivointi/lelut-tikussa/DS07996.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS07996-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS08013-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABAF-TU_RKswp5EjZ9G74u5a/aktivointi/lelut-tikussa/DS08013.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS08013-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS08019-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADHgrg8EU-vpver1aIUl7iWa/aktivointi/lelut-tikussa/DS08019.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS08019-800px.jpg)
 
 Teimme tätä tehtävää myös Hunter solmulelulla, jossa on sopiva lenkki pujottamista varten. Laitoin lelun toisessa päässä olevaan koloon pienen ankkafileestä leikatun palasen ennen kuin pujotin lelun tikkuun.
 
 Hunter solmulelun saat myös [Zooplussasta](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/lelut/herkkulelut/hammashoitolelut/438146)).
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS08025-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAtbvHoVX5wlCMtor0Bulr0a/aktivointi/lelut-tikussa/DS08025.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS08025-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS08028-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACTgFBKDIq7ZcnwzI4JM2bLa/aktivointi/lelut-tikussa/DS08028.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS08028-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS08031-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACwXNZqSdIYWG4A5fvTILtaa/aktivointi/lelut-tikussa/DS08031.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS08031-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS08050-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADTdhE9DmmyJkHqKUMA3j6ca/aktivointi/lelut-tikussa/DS08050.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS08050-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS08022-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD2tUXvkSjuxVKVlvK_nXvTa/aktivointi/lelut-tikussa/DS08022.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelut-tikussa/DS08022-800px.jpg)

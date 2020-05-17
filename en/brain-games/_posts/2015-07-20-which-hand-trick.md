@@ -17,6 +17,6 @@ So the whole point of this is that when you get your dog to sniff and guess 50 t
 
 ---
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kumpi-kasi/DSC29521-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADwsaNkahHic6WTIZMLBo43a/aktivointi/kumpi-kasi/DSC29521.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kumpi-kasi/DSC29521-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kumpi-kasi/DSC29523-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADy3zr1WTYaUfO1U14L0Wwoa/aktivointi/kumpi-kasi/DSC29523.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kumpi-kasi/DSC29523-800px.jpg)
