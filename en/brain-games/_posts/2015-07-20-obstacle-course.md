@@ -23,7 +23,7 @@ You should make the obstacle course to kind of a zig zag, so that your dog needs
 
 You can play the game with or without another person. If you play this game with another person like I did, you can both go to different ends of the course and call the dog to come in turns. If you don't have a friend to play this game with, you can simply tell your dog to wait on the other end, and then call the dog to come.
 
-Miki loved this game so much, that he didn't have patience to wait while the other one of us called him, but instead he ran through the course over and over again :D It took Miki some time to realize, that the only way he can get the treats we were holding, is to wait to be called.
+Miki loved this game so much, that he didn't have patience to wait while the other one of us called him, but instead he ran through the course over and over again. It took Miki some time to realize, that the only way he can get the treats we were holding, is to wait to be called.
 
 ---
 

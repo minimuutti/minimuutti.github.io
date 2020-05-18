@@ -23,7 +23,7 @@ We also played this game with a rolled bath towel and a cut from a plastic pipe.
 
 Once we played with the tube I put three Kong Classic toys inside the tube and I put few kibble into each toy. I also put the Kong Genius Mike toy in the tube with some kibble in it. It took Miki about four minutes to get all the kibble out.
 
-The Kong toys fits just inside the tube, and because the tube has a dent at the other end the Kong toys doesn't fall out right away :)
+The Kong toys fits just inside the tube, and because the tube has a dent at the other end the Kong toys doesn't fall out right away.
 
 I made similar game with 60 cm (about 24") long tube and a 60 cm wide bath towel. I sprinkled a small handful of kibble on top the towel and then I rolled it and pushed it inside the tube. It took Miki about 15 minutes to get all the kibble out.
 

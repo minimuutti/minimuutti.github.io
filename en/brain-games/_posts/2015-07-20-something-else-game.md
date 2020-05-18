@@ -15,7 +15,7 @@ In this game you don't give the dog any clues about what he's supposed to do, yo
 
 I started this by picking up the clicker and some kibble and I sat in an arm chair without saying anything and waited for Miki to do **anything** (that he is allowed to do). This was enough to put Miki in a working mode and right away he sat in front of me because that is usually our starting position. I clicked for the sit and gave him a kibble. Then I said to him "do something else" even though at that time it wasn't a cue that Miki recognised. When sitting didn't lead to another click Miki lied down. I clicked and gave him another kibble. Then again I said to him "do something else" waited for him to do something else, clicked and gave him a kibble.
 
-After every click+kibble I said "do something else". It didn't take long before Miki knew what he was supposed to do or it might have been that he got frustrated because he didn't get kibble from the things he had already done and tried something else. But that was exactly what I wanted :)
+After every click+kibble I said "do something else". It didn't take long before Miki knew what he was supposed to do or it might have been that he got frustrated because he didn't get kibble from the things he had already done and tried something else. But that was exactly what I wanted.
 
 This kind of game can be really taxing so it's really important to end the game before the dog gets too tired. Miki has so high energy levels that it's almost impossible to tire him down so I let him do about 20-25 different things when we first played this game. At the time he knew about 70 tricks/cues so 20-25 was about the right amount for him.
 

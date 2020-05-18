@@ -13,7 +13,7 @@ This is a two-part game. First the dog needs to pull the knotted fleece out of t
 
 First I cut a string of fleece, about 6cm wide and 60cm long. Then I tied three loose knots to the fleece. You should use fleece, so that it won't unravel when the dog pulls it out from the toy.
 
-I placed one of these [Nutrivet Instinct Dog Treats](http://www.zooplus.com/shop/dogs/dog_treats_chews/dog_reward_treats/other/428730) into every knot and pulled the knots tight. Then I pushed the knotted fleece into the Kong Genius Leo toy, but left about 10cm tail outside. You can use a Kong Genius Mike toy as well, if you don't have the Leo.
+I placed a treat into every knot and pulled the knots tight. Then I pushed the knotted fleece into the Kong Genius Leo toy, but left about 10cm tail outside. You can use a Kong Genius Mike toy as well, if you don't have the Leo.
 
 First two times we played this game I hold on the toy, so that the fleece was easier for Miki to pull out. On the third time I gave the whole thing to Miki, and he knew right away what he was supposed to do in order to get the fleece out.
 

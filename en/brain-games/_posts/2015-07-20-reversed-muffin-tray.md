@@ -25,9 +25,9 @@ I placed thin slices of duck fillet in the paper liners (mosaic picture 5). Then
 
 You can use this game over and over again. Just cut the small pieces of tape open, reset the paper liners (and change them for new ones if necessary) fold it close and put some fresh tape to the panels to seal them again.
 
-You may want to hold on the game as we did when Miki was solving the mysteries of the paper liners :D
+You may want to hold on the game as we did when Miki was solving the mysteries of the paper liners.
 
-This game was easy for Miki and it took only couple of seconds before the first liner was torn open. For some reason this game was a bit exciting for Miki, so Miki got tired after just a couple of sessions and fell asleep :)
+This game was easy for Miki and it took only couple of seconds before the first liner was torn open. For some reason this game was a bit exciting for Miki, so Miki got tired after just a couple of sessions and fell asleep.
 
 ---
 
@@ -49,6 +49,6 @@ This game was easy for Miki and it took only couple of seconds before the first 
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04264-800px.jpg)
 
-The result :)
+The result:
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04390-800px.jpg)

@@ -15,7 +15,7 @@ Make sure that the pages of the magazine are glued, not stapled.
 
 I cut the fillets into small pieces and put them in between the pages, near the center of the magazine. Then I rolled the magazine and secured it with masking tape at both ends.
 
-We gave this gift wrapped package to Miki on his 3rd birthday :) It took Miki about 10 minutes to get all the treats out.
+We gave this gift wrapped package to Miki on his 3rd birthday. It took Miki about 10 minutes to get all the treats out.
 
 First you can try this game without rolling and taping the magazine. From an unrolled magazine Miki was able to get the treats out in five minutes.
 

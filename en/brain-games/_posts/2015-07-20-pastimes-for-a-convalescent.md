@@ -75,7 +75,7 @@ Wash balls are a great way to entertain your convalescent dog because you can pu
 
 I put about 2 spoons of Miki's food into each ball. I took 5 plastic cups and put some food on the bottom of them as well before I placed the wash balls on top. Finally I put them in a plastic container before I gave them to Miki.
 
-Miki spreads some rice all over when he eats this food from wash balls but fortunately he is so eager to eat that he picks every rice from the floor and I don't have to clean anything :D
+Miki spreads some rice all over when he eats this food from wash balls but fortunately he is so eager to eat that he picks every rice from the floor so I don't have to clean anything.
 
 It took Miki about 10 minutes to eat all the food.
 

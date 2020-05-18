@@ -21,7 +21,7 @@ If you don't have any suitable weight you can always hold on the box while your 
 
 I put small treats on both sides of the weights and closed the box. Before I closed the last flap, I drop one  more treat in the gap.
 
-The first time I gave this game to Miki, I left the last flap slightly open, as you can see in the first picture. Miki got the box open in 15 seconds. But it was not until the sixth try Miki really understood how to get the box open correctly, until that he just clawed and pushed the box randomly to get it open :D
+The first time I gave this game to Miki, I left the last flap slightly open, as you can see in the first picture. Miki got the box open in 15 seconds. But it was not until the sixth try Miki really understood how to get the box open correctly, until that he just clawed and pushed the box randomly to get it open.
 
 ---
 

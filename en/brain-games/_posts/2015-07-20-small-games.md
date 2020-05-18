@@ -13,7 +13,7 @@ In this post you can find various small games.
 
 ### Kibbles under an office chair
 
-For this game you only need an office chair and any treats. I sprinkled some kibble under the chair and let Miki search them. Although this game is relatively easy for the dog, this is definately fun to watch :)
+For this game you only need an office chair and any treats. I sprinkled some kibble under the chair and let Miki search them. Although this game is relatively easy for him, this is definitely fun to watch.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/minitehtavia/DSC51202-800px.jpg)
 

@@ -9,7 +9,7 @@ redirect_from:
   - /en/activation/hikes-in-the-forest/
 ---
 
-Forests have multiple times more of scents and sounds compared to residental areas.
+Forests have different scents and sounds compared to residential areas.
 
 So if you take your dog to hike in the thick forest instead, the dog will drain off the energy more efficiently.
 

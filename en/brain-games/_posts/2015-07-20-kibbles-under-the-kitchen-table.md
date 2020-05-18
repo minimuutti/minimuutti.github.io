@@ -13,7 +13,7 @@ Throw the kibble under the kitchen table and under the chairs. It may sound "too
 
 When you put the chairs tight under the table, there will be tight space in between, so the dog really needs to circle the table multiple times and needs to get down and crawl under the chairs to get his kibble.
 
-It takes Miki about two to three minutes to get all the kibble. And his morning gymnastic exercises are done at the same time :D
+It takes Miki about two to three minutes to get all the kibble. And his morning gymnastic exercises are done at the same time.
 
 ---
 

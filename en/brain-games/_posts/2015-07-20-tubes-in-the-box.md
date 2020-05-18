@@ -11,7 +11,7 @@ redirect_from:
 
 Just a few tubes and a box and you can make these fun games for your dog.
 
-I used three cardboard tubes and a cut from a plastic pipe for this game. You can use any tubes available, for example soda bottles, Pringles tubes or for a smaller dog empty paper towel rolls or cat treat tubes. At least for once you have a justified reason for buying several tubes of crisps at the same time :D
+I used three cardboard tubes and a cut from a plastic pipe for this game. You can use any tubes available, for example soda bottles, Pringles tubes or for a smaller dog empty paper towel rolls or cat treat tubes. At least for once you have a justified reason for buying several tubes Pringles at the same time :D
 
 ### Game 1
 

@@ -19,7 +19,7 @@ You can use just kibble (or any other dry treats) but I've used some tastier tre
 
 #### Game 1: 3 nested packages
 
-The destruction process took Miki about 4 minutes :D
+The destruction process took Miki about 4 minutes.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikot-sisakkain/DS09455-800px.jpg)
 

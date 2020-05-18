@@ -7,7 +7,7 @@ image:
   thumb:
 ---
 
-Metsässä on moninkertainen määrä erilaisia hajuja ja ääniä normaaliin kaupunkiympäristöön verrattuna, joten metsälenkki villissä ryteikössä kuluttaa koiralta enemmän energiaa kuin tavallinen tiellä kävely.
+Metsässä on erilaisia hajuja ja ääniä normaaliin kaupunkiympäristöön verrattuna, joten metsälenkki villissä ryteikössä voi kuluttaa koiralta enemmän energiaa, kuin tavallinen tiellä kävely.
 
 Miki tosin ei väsy metsälenkistä oikeastaan yhtään sen enempää kuin tavallisestakaan lenkistä, mutta virikkeellistämismielessä teemme näitä silloin tällöin. Ja onhan se itsellekin mukavaa vaihtelua.
 

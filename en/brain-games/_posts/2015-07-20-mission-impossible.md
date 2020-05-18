@@ -53,11 +53,11 @@ Then Miki tried to scoop the toy with his paw but nothing worked.
 
 After a while I showed him that the treats will fall out when you turn the toy upside down (just like Miki normally does to get the treats out) but for some reason Miki didn't get it at all.
 
-At some point he got the toy secured and tried to lick the treats out :D He managed to get some pieces out but not all of them.
+At some point he got the toy secured and tried to lick the treats out. He managed to get some pieces out but not all of them.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/mission-impossible/DS59762-800px.jpg)
 
-It's important that your dog succeeds in the games you present to him. That's why I made the game less difficult so that Miki could succeed. I replaced the small treats with narrow and elongated ones that Miki was able to pull out without flipping the toy upside down :)
+It's important that your dog succeeds in the games you present to him. That's why I made the game less difficult so that Miki could succeed. I replaced the small treats with narrow and elongated ones that Miki was able to pull out without flipping the toy upside down.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/mission-impossible/DS59817-800px.jpg)
 

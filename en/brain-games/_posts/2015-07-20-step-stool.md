@@ -41,11 +41,11 @@ Ikean Kalas cups and paper cups fit perfectly in these gaps.
 
 ###### Game 3: Balls
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jakkara/DS00949-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jakkara/DS00949-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jakkara/DS00951-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jakkara/DS00951-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jakkara/DS00967-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jakkara/DS00967-800px.jpg)
 
 ###### Game 4: Towel
 

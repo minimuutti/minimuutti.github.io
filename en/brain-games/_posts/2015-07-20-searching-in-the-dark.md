@@ -17,7 +17,7 @@ When I sprinkle about half a cup of kibble on the floor, it takes Miki about 3 m
 
 We sometimes play this fun game, where I toss very small pieces of treats on the floor and let Miki search them. I only toss one to three pieces at once and I always toss them in different directions, so that Miki really needs to use his nose in order to find the treats.
 
-Last time we played this game, I had about 20 soft and small treats, which I had cut in eight parts each. That makes about 160 very small pieces of treats and the game lasted about 25 minutes :)
+Last time we played this game, I had about 20 soft and small treats, which I had cut in eight parts each. That makes about 160 very small pieces of treats and the game lasted about 25 minutes.
 
 You can do the same thing if you have a windowless room even if it's bright outside, just shut the door and turn the lights off.
 

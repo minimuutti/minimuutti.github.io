@@ -9,7 +9,7 @@ redirect_from:
   - /en/activation/papertube/
 ---
 
-For this one you only need two or three pages from the magazine (staples taken out), masking tape and some dry treats.
+For this one you only need two or three pages from the magazine (staples taken out), masking tape and some dry treats or kibble.
 
 I put the pages side by side and taped them together on both sides. Then I put the treats on top of it and rolled it into a tube. I folded the tube and put some masking tape on it to make it harder.
 
