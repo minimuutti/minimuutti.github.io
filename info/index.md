@@ -35,6 +35,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 21.5.2020 Lisätty uusi postaus Blogiin; [Kun koira ei tottele](/blogi/kun-koira-ei-tottele/)
 * 18.5.2020 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
 * 15.5.2020 Päivitetty [Mikin osaamat temput](/temput/mikin-osaamat-temput/)
 * 12.5.2020 Päivitetty blogipostausta; [Säännöt](/blogi/saannot/)

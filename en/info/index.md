@@ -34,6 +34,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2020-05-21 New post added into the Blog; [When a dog don't obey](/en/blog/when-a-dog-dont-obey/)
 * 2020-05-18 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
 * 2020-05-15 Updated [Tricks and commands that Miki knows](/en/tricks/tricks-and-cues-that-Miki-knows/)
 * 2020-05-12 Updated blog post; [House rules](/en/blog/house-rules/)
