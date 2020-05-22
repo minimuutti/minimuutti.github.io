@@ -191,7 +191,7 @@ Example: a dog is with his owner in a dog park and the dog is loose. The owner c
 * has the recall been taught to the dog properly or does his owner just assume the dog knows it?
 * did he say the right cue and intonation as it has been taught, taking into account the owners body language?
 * is the recall taught to he dog so the dog thinks he needs to act right away?
-* does the dog assume that he will get rewarded when he comes?
+* does the dog assume that he will get a reward when he comes?
 * does the dog fear he might get punished for something?
 * does the dog fear that the fun playtime ends and he is been taking back to home although he wants to keep playing?
 
