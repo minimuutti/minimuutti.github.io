@@ -187,7 +187,7 @@ Tässä kohtaa kannattaa miettiä:
 
 * onko luoksetulo opetettu koiralle, vai oletatko vain, että koirasi tietää mitä pitää tehdä?
 * esititkö kutsun niin, kuin olet sen koiralle opettanut: oikea vihje (sana), äänenpaino sekä kehonkieli?
-* onko kutsu opetettu niin, että sen kuullessa kannattaa tulla heti, eikä vasta sitten koiraa huvittaa?
+* onko kutsu opetettu niin, että sen kuullessa kannattaa tulla heti, eikä vasta sitten kun koiraa huvittaa?
 * olettaako koirasi saavansa palkkion tullessaan luoksesi?
 * pelkääkö koirasi, että sitä saatetaan rankaista jostain?
 * pelkääkö koirasi, että kiva leikkihetki loppuu ja se viedään kotiin kesken leikin?
