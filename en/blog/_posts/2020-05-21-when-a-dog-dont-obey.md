@@ -17,7 +17,7 @@ No dog is disobedient just for the sake of it. There is always a reason behind d
 
 ### Don't assume, teach
 
-I you want a dog to master a specific behaviour, for example heeling, the behaviour needs to be taught to him.
+If you want a dog to master a specific behaviour, for example heeling, the behaviour needs to be taught to him.
 
 Young puppies don't have a clue how to walk on a leash, so you can't expect them to know if it hasn't been taught. (Jerking the leash when a dog is pulling is not educating, it's a punishment for a wrong behaviour.)
 
