@@ -25,10 +25,3 @@ You can also make tunnels from big cardboard boxes.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tunnelit/IMG29506-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/temput/1/DSC09608_2-800px.jpg)
-
-![](https://b2.minimuutti.com/file/minimuutti-com/temput/1/DSC09619_2-800px.jpg)
-
-![](https://b2.minimuutti.com/file/minimuutti-com/temput/1/DSC41884-800px.jpg)
-
-![](https://b2.minimuutti.com/file/minimuutti-com/temput/1/DSC41885-800px.jpg)
