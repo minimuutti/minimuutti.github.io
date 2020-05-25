@@ -17,7 +17,7 @@ Usually we play the eye contact game, which means that one of us sits down on th
 
 You can make distractions with the dog's food bowl and some kibble or you can play with the dog's toys, you can sprint around the dog or do some physical exercise in front of him, you can get up in a chair, eat in front of the dog, put on your dog walking shoes and clothes, pick up his leash and collar etc.
 
-Different sounds are good distractions too. Open the the drawer where you store the dogs food, open a refrigerator door or a freezer door, knock on the wall, ring the doorbell, shake your keys, sing, clap your hands or do whatever that normally gets your dog’s attention.
+Different sounds are good distractions too. Open the drawer where you store the dogs food, open a refrigerator door or a freezer door, knock on the wall, ring the doorbell, shake your keys, sing, clap your hands or do whatever that normally gets your dog’s attention.
 
 ---
 
