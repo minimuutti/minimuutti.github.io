@@ -15,7 +15,7 @@ For example a Classic Kong toy (size L) and a Kong Traxx toy (size M/L) can be j
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC30218_2-800px.jpg)
 
-You can join a Kong Traxx toy (size M/L) with a Busy Buddy Twist'n Treat toy (size L). Just twist the Busy Buddy open and put the Traxx on top of the other half. Then add some small treats or just kibble and twist the Busy Buddy loosely together. It tool Miki about 4 minutes to get the kibble out of this.
+You can join a Kong Traxx toy (size M/L) with a Busy Buddy Twist'n Treat toy (size L). Just twist the Busy Buddy open and put the Traxx on top of the other half. Then add some small treats or just kibble and twist the Busy Buddy loosely together. It took Miki about 4 minutes to get the kibble out of this.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS11052-800px.jpg)
 

@@ -29,7 +29,7 @@ You can find the directions how to make corals from [here](/en/brain-games/coral
 
 ###### Game 2: Cups
 
-Ikean Kalas cups and paper cups fit perfectly in these gaps.
+Ikea's Kalas cups and paper cups fit perfectly in these gaps.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jakkara/DS01055-800px.jpg)
 

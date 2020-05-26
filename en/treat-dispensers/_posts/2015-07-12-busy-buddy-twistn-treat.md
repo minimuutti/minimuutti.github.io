@@ -27,6 +27,6 @@ You can also open the the toy for cleaning.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC13226_2-800px.jpg)
 
-'ve used this toy also in: [Toys combined](/en/treat-dispensers/toys-combined/)
+I've used this toy also in: [Toys combined](/en/treat-dispensers/toys-combined/)
 
 [![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS11052-800px.jpg)](/en/treat-dispensers/toys-combined/)
