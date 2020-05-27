@@ -20,5 +20,3 @@ Tätä harjoittelemme Mikin kanssa sitten myöhemmin, kun on sen aika. Nyt ensin
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/rauhoittuminen/DSC14806_2-800px.jpg)
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/rauhoittuminen/DSC14799_2-800px.jpg)
-
-![](https://b2.minimuutti.com/file/minimuutti-com/temput/1/DSC13786_2-800px.jpg)

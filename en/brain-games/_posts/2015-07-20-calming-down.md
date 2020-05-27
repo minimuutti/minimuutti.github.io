@@ -22,5 +22,3 @@ You can also capture the calm behaviour when the dog is lying on his mat or in h
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/rauhoittuminen/DSC14806_2-800px.jpg)
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/rauhoittuminen/DSC14799_2-800px.jpg)
-
-![](https://b2.minimuutti.com/file/minimuutti-com/temput/1/DSC13786_2-800px.jpg)
