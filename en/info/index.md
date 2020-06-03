@@ -34,8 +34,10 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2020-06-03 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
+* 2020-06-03 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
+* 2020-06-03 New photos added in category; [Spring](/en/photography/finnish-nature/spring/)
 * 2020-05-21 New post added into the Blog; [When a dog don't obey](/en/blog/when-a-dog-dont-obey/)
-* 2020-05-18 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
 * 2020-05-15 Updated [Tricks and commands that Miki knows](/en/tricks/tricks-and-cues-that-Miki-knows/)
 * 2020-05-12 Updated blog post; [House rules](/en/blog/house-rules/)
 * 2020-04-08 New post added into the Blog; [Jailhouse playtime](/en/blog/jailhouse-playtime/)
@@ -48,7 +50,6 @@ New and recently updated posts:
 * 2017-12-26 New treat dispenser review; [PetProjekt Holobal](/en/treat-dispensers/petprojekt-holobal/)
 * 2017-10-19 New brain game post; [Bread and circuses](/en/brain-games/bread-and-circuses/)
 * 2017-09-25 Updated brain game post; [Ikea's Drömmar set](/en/brain-games/ikeas-drommar-set/)
-* 2017-09-12 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
 * 2017-08-31 New brain game post; [Coral mat](/en/brain-games/coral-mat/)
 * 2017-07-28 New brain game post; [Mission impossible](/en/brain-games/mission-impossible/)
 * 2017-07-15 New post added into the Blog; [Ice cream for hot summer days](/en/blog/ice-cream-for-hot-summer-days/)

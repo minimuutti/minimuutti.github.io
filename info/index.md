@@ -35,8 +35,10 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 3.6.2020 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
+* 3.6.2020 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
+* 3.6.2020 Lisätty uusia valokuvia kategoriaan; [Kevät](/valokuvaus/luontokuvat/kevat/)
 * 21.5.2020 Lisätty uusi postaus Blogiin; [Kun koira ei tottele](/blogi/kun-koira-ei-tottele/)
-* 18.5.2020 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
 * 15.5.2020 Päivitetty [Mikin osaamat temput](/temput/mikin-osaamat-temput/)
 * 12.5.2020 Päivitetty blogipostausta; [Säännöt](/blogi/saannot/)
 * 8.4.2020 Lisätty uusi postaus Blogiin; [Elämää eristyksissä](/blogi/elamaa-eristyksissa/)
@@ -49,7 +51,6 @@ Uudet ja viimeksi päivitetyt osiot:
 * 26.12.2017 Lisätty uusi aktivointilelu; [PetProjekt Holobal](/aktivointilelut/petprojekt-holobal/)
 * 19.10.2017 Lisätty uusi aktivointivinkki; [Leipää ja sirkushuveja](/aktivointi/leipaa-ja-sirkushuveja/)
 * 25.9.2017 Päivitetty aktivointivinkki; [Ikean Drömmar muotit](/aktivointi/ikean-drommar-muotit/)
-* 12.9.2017 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
 * 31.8.2017 Lisätty uusi aktivointivinkki; [Korallimatto](/aktivointi/korallimatto/)
 * 28.7.2017 Lisätty uusi aktivointivinkki; [Mission impossible](/aktivointi/mission-impossible/)
 * 15.7.2017 Lisätty uusi postaus Blogiin; [Jäätelöä hellepäiviin](/blogi/jaateloa-hellepaiviin/)
