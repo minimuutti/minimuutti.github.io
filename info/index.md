@@ -8,9 +8,9 @@ Yhteystiedot:
 sähköposti: minimuutti.com(at)gmail.com<br/>
 Twitter: @minimuutti
 
-[![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AADN3gQnG6WMsOFYQTpumxJda/muut/Twitter%20logo_40.jpg)](https://twitter.com/minimuutti)
+[![](https://b2.minimuutti.com/file/minimuutti-com/muut/twitter.jpg)](https://twitter.com/minimuutti)
 
-![](https://lh3.googleusercontent.com/rUi_U-5Iu5bgA0h60ykYVrw8kV3k10DMccmLkt_t2Vs=w245)
+![](https://b2.minimuutti.com/file/minimuutti-com/muut/computer_wolf_.jpg)
 
 Mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani, niin voit lahjoittaa haluamasi summan Paypalin kautta:
 
@@ -25,9 +25,9 @@ Mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani, niin voit lah
 
 Voit tukea toimintaani myös käyttämällä alla olevaa linkkiä, kun seuraavan kerran asioit Zooplussan verkkokaupassa. Linkki avautuu klikkaamalla kaupan logoa.
 
-![](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABJ4id2qnwExeeaa1empjHfa/muut/matkassa%20mukana.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/muut/matkassa_mukana.jpg)
 
-[![](https://lh3.googleusercontent.com/MKwfsbFq7uu2wQQcpBMKzbeTWG_X6GHIw91FFzQ2LGw=w447)](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/))
+[![](https://b2.minimuutti.com/file/minimuutti-com/muut/zooplus.jpg)](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/))
 
 Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
@@ -35,7 +35,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 3.6.2020 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
+* 4.6.2020 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
 * 3.6.2020 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
 * 3.6.2020 Lisätty uusia valokuvia kategoriaan; [Kevät](/valokuvaus/luontokuvat/kevat/)
 * 21.5.2020 Lisätty uusi postaus Blogiin; [Kun koira ei tottele](/blogi/kun-koira-ei-tottele/)
