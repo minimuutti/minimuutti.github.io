@@ -97,8 +97,6 @@ We cleaned our new apartment a day before we moved in. I left Miki's fleece mat 
 
 If you have any issues with your dog (nail clipping, doorbell, a mailman or whatever) a move is a great opportunity to tackle the issues. The new setting (new home, new smells, new sounds, new surroundings etc.) allows you to start off from a clean slate.
 
-You can read more about desensitizing from [here](/en/brain-games/desensitizing/).
-
 Fortunately Miki hasn't ever had any major issues. We do have some issues when we are drying him after a shower. Miki lets me dry him with a towel but he whines a lot so he's not very pleased. I can't dry a wet dog anywhere else but in the bathroom so my choice was to show the new bathroom in a different light to him after we moved.
 
 When I had picked up Miki from the day care, I sprinkled his dinner all over the bathroom floor so Miki thougt that the new bathroom is the best place in the whole world :)
