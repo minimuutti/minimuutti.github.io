@@ -35,7 +35,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 11.6.2020 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
+* 14.6.2020 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
 * 3.6.2020 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
 * 3.6.2020 Lisätty uusia valokuvia kategoriaan; [Kevät](/valokuvaus/luontokuvat/kevat/)
 * 21.5.2020 Lisätty uusi postaus Blogiin; [Kun koira ei tottele](/blogi/kun-koira-ei-tottele/)
