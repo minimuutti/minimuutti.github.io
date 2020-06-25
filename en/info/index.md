@@ -34,6 +34,7 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2020-06-25 New treat dispenser review; [Trixie Roly Poly](/en/treat-dispensers/trixie-roly-poly/)
 * 2020-06-14 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
 * 2020-06-03 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
 * 2020-06-03 New photos added in category; [Spring](/en/photography/finnish-nature/spring/)
