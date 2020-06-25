@@ -9,7 +9,7 @@ This site introduces ideas how you can drain your dog's excess energy in various
 
 [**Brain games**](/en/brain-games/) –category contains over a hundred different games including nose work games, mental activation games and enrichment ideas including instructions with pictures.
 
-[**Treat dispensers**](/en/treat-dispensers/) –category introduces various toys and puzzle feeders and also some recommendations about the treats suitable for different toys.
+[**Treat dispensers**](/en/treat-dispensers/) –category contains treat dispenser and puzzle feeder reviews and also some recommendations about the treats suitable for different toys.
 
 [**Tricks**](/en/tricks/) –category contais all the tricks and cues Miki knows by now and also something that we are working with right now.
 
