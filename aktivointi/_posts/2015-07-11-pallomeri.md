@@ -17,8 +17,6 @@ Mikin mielestä pallot olivat super kivoja ja Miki olisi välttämättä halunnu
 
 Pääsimme myöhemmin kokeilemaan tätä myös oikeilla pallomeren palloilla, joka oli Mikin mielestä vähintään yhtä kivaa kuin noilla ilmapalloilla.
 
----
-
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pallomeri/DSC39227-800px.jpg)
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pallomeri/DSC39252-800px.jpg)
@@ -32,3 +30,11 @@ Pääsimme myöhemmin kokeilemaan tätä myös oikeilla pallomeren palloilla, jo
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pallomeri/DS01899-800px.jpg)
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pallomeri/DS01881-800px.jpg)
+
+Pallomereen saa vaihtelua korvaamalla osan palloista pesupalloilla. Pesupallot tulee pestä hyvin, ennen kuin niitä antaa koiralle.
+
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pesupallot/DS69301-800px.jpg)
+
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pesupallot/DS69309-800px.jpg)
+
+---

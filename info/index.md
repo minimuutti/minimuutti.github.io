@@ -35,6 +35,7 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 29.7.2020 Lisätty uusi aktivointivinkki; [Pesupallot](/aktivointi/pesupallot/)
 * 25.6.2020 Lisätty uusi aktivointilelu; [Trixie Roly Poly](/aktivointilelut/trixie-roly-poly/)
 * 14.6.2020 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
 * 3.6.2020 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
