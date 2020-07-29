@@ -49,7 +49,7 @@ When I changed the fleece strips to [corals]([corals](https://minimuutti.com/en/
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pesupallot/DS69421-800px.jpg)
 
-You can attach multiple balls on cardboard/box with double sided tape. I assumed that it would've made the game harder, because Miki couldn't roll the balls on the floor any more to get the food out. On the contrary, this game turned to be too easy for Miki and it took Miki under a minute to eat all the treats.
+You can attach multiple balls to cardboard/box with double sided tape. I assumed that it would've made the game harder, because Miki couldn't roll the balls on the floor any more to get the food out. On the contrary, this game turned to be too easy for Miki and it took Miki under a minute to eat all the treats.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pesupallot/DS70842-800px.jpg)
 
