@@ -35,8 +35,9 @@ If you live in Finland, please use the link below next time you buy something fr
 New and recently updated posts:
 
 * 2020-07-29 New brain game post; [Laundry balls](/en/brain-games/laundry-balls)
+* 2020-07-29 New photos added in category; [Autumn](/en/photography/finnish-nature/autumn/)
+* 2020-07-29 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
 * 2020-06-25 New treat dispenser review; [Trixie Roly Poly](/en/treat-dispensers/trixie-roly-poly/)
-* 2020-06-14 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
 * 2020-06-03 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
 * 2020-06-03 New photos added in category; [Spring](/en/photography/finnish-nature/spring/)
 * 2020-05-21 New post added into the Blog; [When a dog don't obey](/en/blog/when-a-dog-dont-obey/)
@@ -44,7 +45,6 @@ New and recently updated posts:
 * 2020-05-12 Updated blog post; [House rules](/en/blog/house-rules/)
 * 2020-04-08 New post added into the Blog; [Jailhouse playtime](/en/blog/jailhouse-playtime/)
 * 2019-12-21 New post added into the Blog; [Happy Holidays!](/en/blog/happy-holidays/)
-* 2019-09-21 New photos added in category; [Autumn](/en/photography/finnish-nature/autumn/)
 * 2019-04-22 New post added into the Blog; [Passing other dogs](/en/blog/passing-other-dogs/)
 * 2019-02-14 New post added into the Blog; [What's your dog's food got to with the climate change](/en/blog/whats-your-dogs-food-got-to-with-the-climate-change)
 * 2019-02-14 Updated blog post; [How to desensitize a dog to nail clipping](/en/blog/how-to-desensitize-a-dog-to-nail-clipping/)

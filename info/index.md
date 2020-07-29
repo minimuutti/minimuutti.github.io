@@ -36,8 +36,9 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 Uudet ja viimeksi päivitetyt osiot:
 
 * 29.7.2020 Lisätty uusi aktivointivinkki; [Pesupallot](/aktivointi/pesupallot/)
+* 29.7.2020 Lisätty uusia valokuvia kategoriaan; [Syksy](/valokuvaus/luontokuvat/syksy/)
+* 29.7.2020 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
 * 25.6.2020 Lisätty uusi aktivointilelu; [Trixie Roly Poly](/aktivointilelut/trixie-roly-poly/)
-* 14.6.2020 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
 * 3.6.2020 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
 * 3.6.2020 Lisätty uusia valokuvia kategoriaan; [Kevät](/valokuvaus/luontokuvat/kevat/)
 * 21.5.2020 Lisätty uusi postaus Blogiin; [Kun koira ei tottele](/blogi/kun-koira-ei-tottele/)
@@ -45,7 +46,6 @@ Uudet ja viimeksi päivitetyt osiot:
 * 12.5.2020 Päivitetty blogipostausta; [Säännöt](/blogi/saannot/)
 * 8.4.2020 Lisätty uusi postaus Blogiin; [Elämää eristyksissä](/blogi/elamaa-eristyksissa/)
 * 21.12.2019 Lisätty uusi postaus Blogiin; [Joulutervehdys](/blogi/joulutervehdys/)
-* 21.9.2019 Lisätty uusia valokuvia kategoriaan; [Syksy](/valokuvaus/luontokuvat/syksy/)
 * 22.4.2019 Lisätty uusi postaus Blogiin; [Ohittaminen](/blogi/ohittaminen/)
 * 14.2.2019 Lisätty uusi postaus Blogiin; [Ilmastonmuutos ja koiran ruokinta](/blogi/ilmastonmuutos-ja-koiran-ruokinta/)
 * 14.2.2019 Päivitetty blogipostausta: [Pelkääkö koirasi kynsien leikkaamista?](/blogi/pelkaako-koirasi-kynsien-leikkaamista/)
