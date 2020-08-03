@@ -81,7 +81,7 @@ Näissä kuvissa Miki on jahdannut jänistä ja sitten se on stressaantunut, kos
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS28270-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS28274-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAByKK4s2zY7tWPEbAT3Cl-Ca/blogi/DS28274.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS28274-800px.jpg)
 
 Kuumaa läähättävan koiran olemus on usein rauhallinen/iloinen ja kieli on rento.
 

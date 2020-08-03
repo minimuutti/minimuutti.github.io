@@ -89,10 +89,10 @@ Mikäli sinulla on isompia kananmunakennoja tai tällainen pääsiäismunista sa
 
 Ensin käänsin alustan ympäri ja laitoin koloihin nappuloita. Myöhemmin laitoin esteeksi pieniä koralleja. Korallien teko-ohjeen löydät [täältä](/aktivointi/korallit/).
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS10446_-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB41s8Se8wHakPMOOmHiJsya/aktivointi/kananmunakotelot/DS10446_.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS10446_-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS11359-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACpzm-YGAaIWSqin1OeKFxpa/aktivointi/kananmunakotelot/DS11359.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS11359-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS11368-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAACgyMYU_bsqzs0YEUO3cxja/aktivointi/kananmunakotelot/DS11368.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS11368-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS11393-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAA9XjKOcL9Dsjd9XviPg_Oba/aktivointi/kananmunakotelot/DS11393.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kananmunakotelot/DS11393-800px.jpg)

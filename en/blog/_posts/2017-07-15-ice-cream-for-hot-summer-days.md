@@ -186,8 +186,8 @@ Later on, when the ice creams were frozen:
 
 Frozen wet food in Ikea's Drömmar set:
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-drommar-muotit/DS60168-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAQ2uhciVo69P2_npHlpeKCa/aktivointi/ikean-drommar-muotit/DS60168.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-drommar-muotit/DS60168-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-drommar-muotit/DS60181-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACcsBymqzAcNKEWD0kWCEwGa/aktivointi/ikean-drommar-muotit/DS60181.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-drommar-muotit/DS60181-800px.jpg)
 
 15.7.2017

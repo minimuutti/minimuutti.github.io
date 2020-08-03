@@ -23,9 +23,9 @@ Ripulin tai vatsataudin alkupäivinä koiralle usein kehotetaan juottamaan vain 
 
 Meidän Yrjö "Viidakon Ykä" Laattala (siis Miki) oli alla näkyvissä kuvissa nestepainotteisella kana+riisi ruokavaliolla oksentelun vuoksi, joten soseutin kanat ja riisit ja sekoitin joukkoon riisin keitinvettä ennen kuin täytin muotin.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/IMG_20151213_183733-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAD775tcs2Ieb480Et8QuxrDa/aktivointi/ajanvietetta-toipilaalle/IMG_20151213_183733.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/IMG_20151213_183733-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/IMG_20151213_183756-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAB7rPifxACH-W6WB1oCq6iUa/aktivointi/ajanvietetta-toipilaalle/IMG_20151213_183756.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/IMG_20151213_183756-800px.jpg)
 
 Taudin hellittäessä en enää soseuttanut noita, vaan laitoin suoraan kana+riisi+raejuustoseosta muotteihin. Tähden malliset tai muun malliset muotit antavat koiralle vähän enemmän haastetta kuin nuo pyöreät.
 

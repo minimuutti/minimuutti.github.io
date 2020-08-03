@@ -3,7 +3,7 @@ title: "Hide and seek"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACa8Tg4Ea6XmT_EJp3dL8S-a/muut/Picture%20coming%20soon.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/muut/Picture coming soon.jpg
   thumb:
 redirect_from:
   - /en/activation/hide-and-seek/

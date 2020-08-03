@@ -3,7 +3,7 @@ title: "Two wash basins"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAARWXcryKbvwF-nnN82i7wka/aktivointi/pesuvadit-paallekkain/DS07837-245px%20%282%29.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pesuvadit-paallekkain/DS07837-245px (2).jpg
   thumb:
 redirect_from:
   - /en/activation/two-wash-basins/

@@ -289,11 +289,11 @@ Leikkasin foliorullan hylsystä noin 15 sentin mittaisen pätkän. Taitoin yhden
 
 Mikiltä kesti noin 5 minuuttia saada ne herkut ulos sieltä.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC41076-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAAsqjrZNyZa0sLMzwIz8168a/aktivointi/paperirullien-hylsyt/DSC41076.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC41076-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC41122-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AACCL9UET4ZyQpuMQmbS4J6sa/aktivointi/paperirullien-hylsyt/DSC41122.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC41122-800px.jpg)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC41270-800px.jpg)](https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AAC5GOLE6I5YMz9QefRuKOgna/aktivointi/paperirullien-hylsyt/DSC41270.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC41270-800px.jpg)
 
 Paperirullien hylsyjä on käytetty myös [Palloputket](/aktivointi/palloputket/) tehtävässä.
 

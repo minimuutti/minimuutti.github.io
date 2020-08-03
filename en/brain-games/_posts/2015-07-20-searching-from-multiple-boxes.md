@@ -3,7 +3,7 @@ title: "Searching from multiple boxes"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABXS3vk7vkGHB9gGjkDhqena/aktivointi/etsinta-useista-laatikoista/DSC29381-245px%20%282%29.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsinta-useista-laatikoista/DSC29381-245px (2).jpg
   thumb:
 redirect_from:
   - /en/activation/searching-from-multiple-boxes/
@@ -26,3 +26,7 @@ If your dog hasn’t search much before, you can start with only three boxes, li
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsinta-useista-laatikoista/DSC29362-800px.jpg)
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsinta-useista-laatikoista/DSC29376-800px.jpg)
+
+
+
+

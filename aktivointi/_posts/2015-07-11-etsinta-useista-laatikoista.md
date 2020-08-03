@@ -3,7 +3,7 @@ title: "Etsintä useista laatikoista"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABXS3vk7vkGHB9gGjkDhqena/aktivointi/etsinta-useista-laatikoista/DSC29381-245px%20%282%29.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/etsinta-useista-laatikoista/DSC29381-245px (2).jpg
   thumb:
 ---
 

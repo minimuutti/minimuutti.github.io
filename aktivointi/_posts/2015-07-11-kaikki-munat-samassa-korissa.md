@@ -3,7 +3,7 @@ title: "Kaikki munat samassa korissa"
 layout: article
 image:
   feature:
-  teaser: https://dl.dropboxusercontent.com/sh/ea1wtnz7z734o12/AABHwaa24Kv-BVozHa1diJZ7a/aktivointi/kaikki-munat-samassa-korissa/DSC58683_.jpg
+  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikki-munat-samassa-korissa/DSC58683_245px.jpg
   thumb:
 ---
 
