@@ -34,11 +34,12 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
+* 2020-09-23 New photos added in category; [Autumn](/en/photography/finnish-nature/autumn/)
+* 2020-09-23 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
+* 2020-09-23 New photos added in category; [Abstract & other](/en/photography/abstract-other/)
 * 2020-07-29 New brain game post; [Laundry balls](/en/brain-games/laundry-balls)
-* 2020-07-29 New photos added in category; [Autumn](/en/photography/finnish-nature/autumn/)
 * 2020-07-29 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)
 * 2020-06-25 New treat dispenser review; [Trixie Roly Poly](/en/treat-dispensers/trixie-roly-poly/)
-* 2020-06-03 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
 * 2020-06-03 New photos added in category; [Spring](/en/photography/finnish-nature/spring/)
 * 2020-05-21 New post added into the Blog; [When a dog don't obey](/en/blog/when-a-dog-dont-obey/)
 * 2020-05-15 Updated [Tricks and commands that Miki knows](/en/tricks/tricks-and-cues-that-Miki-knows/)
@@ -55,7 +56,6 @@ New and recently updated posts:
 * 2017-08-31 New brain game post; [Coral mat](/en/brain-games/coral-mat/)
 * 2017-07-28 New brain game post; [Mission impossible](/en/brain-games/mission-impossible/)
 * 2017-07-15 New post added into the Blog; [Ice cream for hot summer days](/en/blog/ice-cream-for-hot-summer-days/)
-* 2017-07-14 New photos added in category; [Abstract & other](/en/photography/abstract-other/)
 
 
 © Susu

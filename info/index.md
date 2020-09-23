@@ -35,11 +35,12 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
+* 23.9.2020 Lisätty uusia valokuvia kategoriaan; [Syksy](/valokuvaus/luontokuvat/syksy/)
+* 23.9.2020 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
+* 23.9.2020 Lisätty uusia valokuvia kategoriaan; [Abstraktit ja muut](/valokuvaus/abstraktit-muut/)
 * 29.7.2020 Lisätty uusi aktivointivinkki; [Pesupallot](/aktivointi/pesupallot/)
-* 29.7.2020 Lisätty uusia valokuvia kategoriaan; [Syksy](/valokuvaus/luontokuvat/syksy/)
 * 29.7.2020 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
 * 25.6.2020 Lisätty uusi aktivointilelu; [Trixie Roly Poly](/aktivointilelut/trixie-roly-poly/)
-* 3.6.2020 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
 * 3.6.2020 Lisätty uusia valokuvia kategoriaan; [Kevät](/valokuvaus/luontokuvat/kevat/)
 * 21.5.2020 Lisätty uusi postaus Blogiin; [Kun koira ei tottele](/blogi/kun-koira-ei-tottele/)
 * 15.5.2020 Päivitetty [Mikin osaamat temput](/temput/mikin-osaamat-temput/)
@@ -56,6 +57,6 @@ Uudet ja viimeksi päivitetyt osiot:
 * 31.8.2017 Lisätty uusi aktivointivinkki; [Korallimatto](/aktivointi/korallimatto/)
 * 28.7.2017 Lisätty uusi aktivointivinkki; [Mission impossible](/aktivointi/mission-impossible/)
 * 15.7.2017 Lisätty uusi postaus Blogiin; [Jäätelöä hellepäiviin](/blogi/jaateloa-hellepaiviin/)
-* 14.7.2017 Lisätty uusia valokuvia kategoriaan; [Abstraktit ja muut](/valokuvaus/abstraktit-muut/)
+
 
 © Susu
