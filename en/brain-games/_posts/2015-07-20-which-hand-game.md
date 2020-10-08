@@ -1,5 +1,5 @@
 ---
-title: "Which hand -trick"
+title: "Which hand -game"
 layout: article
 image:
   feature:
