@@ -9,7 +9,7 @@ The site is also available in [**English**](/en/).
 
 Sivusto sisältää vinkkejä vilkkaiden koirien energian kuluttamiseksi. Kaikki sivustolta löytyvät ideat on testattu eläinkokein ;) ja testaajana on toiminut oma vilkas koirani Miki.
 
-[**Aktivointi**](/aktivointi/) –kategoriasta löytyy paljon haistelu- ja älytehtäviä sekä erilaisia itsetehtyjä pelejä kuvallisilla ohjeilla.
+[**Aktivointi**](/aktivointi/) –kategoriasta löytyy paljon haistelu- ja älytehtäviä sekä erilaisia itsetehtyjä pelejä kuvallisine ohjeineen.
 
 [**Aktivointilelut**](/aktivointilelut/) –kategoriasta löydät vinkkejä eri aktivointilelujen käyttöön.
 
@@ -25,23 +25,25 @@ Sivustolla on myös [**Valokuvaus**](/valokuvaus/) -osio, jossa voit katsella [*
 
 ### Mikistä ja vähän myös kirjoittajasta
 
-Miki (inuiittikieltä, tarkoittaa pientä) on elokuussa 2012 syntynyt alaskanmalamuutin ja suomenlapinkoiran sekoitus; minimuutti. Luonteeltaan ja käytökseltään se on kuin malamuutti, lapinkoira näkyy Mikissä lähinnä sen pienenä fyysisenä kokona. Miki oli 8 pennun pentueestaan pentu numero 1. Se oli ensimmäisenä emon nisällä, ensimmäisenä meitä tervehtimässä ja kuulemma söi häikäilemättä myös vanhempiensa ruuat.
+Miki (inuiittikieltä, tarkoittaa pientä) on elokuussa 2012 syntynyt alaskanmalamuutin ja suomenlapinkoiran sekoitus; minimuutti. Luonteeltaan ja käytökseltään se on kuin malamuutti, lapinkoira näkyy Mikissä lähinnä sen pienenä fyysisenä kokona. Miki oli 8 pennun pentueestaan pentu numero 1. Se oli ensimmäisenä emon nisällä, ensimmäisenä meitä tervehtimässä kun menimme tapaamaan pentuja ja se kuulemma söi häikäilemättä myös sisarustensa sekä vanhempiensa ruuat.
 
 Alaskanmalamuutti on jalostettu vetämään raskaita kuormia vaativissa olosuhteissa väsymättä. Malamuutit ovat yksi älykkäimmistä koiraroduista ja ne ovat myös erittäin nokkelia. Erittäin hyvin kirjoitettu alaskanmalamuutin rotukuvaus löytyy [malamuutti comin](http://malamuutti.com/index5.php?page=rotu) sivuilta.
 
 Mikin hellittelynimenä käytetään usein "wulffia". Sutta Mikissä ei ole sen enempää kuin muissakaan koirissa (tarkoitan, että Miki ei todellakaan ole mikään koirasusi; sudet kuuluvat vapaana luontoon), mutta Mikin ulkonäön perusteella sekä sen alkukantaisuuden perusteella se on wulffi. Lapset usein ulkona huomaavat Mikin muiden koirien joukosta. Vähintään kerran viikossa kuulemme niin lasten kuin aikuistenkin kutsuvan sitä sudeksi. Kuvia Mikistä voit käydä katsomassa [täällä](/valokuvaus/kuvia-mikista/).
 
-Kuvailen Mikiä usein näillä sanoilla: elämänhaluinen, sydämellinen, todella ihmisrakas, erittäin älykäs ja aina innokas tekemään ja kokeilemaan uutta. Tuo voimakas elämänhalu ja innokkuus tuovat mukanaan sen kääntöpuolen, että virtaa vaan riittää ja riittää ja riittää. Mutta toisaalta se on juuri se, mikä tekee koirasta "hyvän".
+Kuvailen Mikiä usein näillä sanoilla: elämänhaluinen, sydämellinen, todella ihmisrakas, erittäin älykäs ja aina innokas tekemään ja kokeilemaan uutta. Tuo voimakas elämänhalu ja innokkuus tuovat mukanaan sen kääntöpuolen, että virtaa vaan riittää ja riittää ja riittää. Mutta toisaalta se on juuri se, mikä tekee koirasta hyvän.
 
-Mikiä voi kutsua myös reaktiiviseksi koiraksi, koska sen mitta täyttyy tavallista nopeammin kun näemme muita koiria lenkin aikana. Usein energisillä "ongelmakoirilla" saattaa olla mitä parhain motivaatio omistajan ohjaamaan työskentelyyn ja koiran halukkuus pitäisi vaan pystyä näkemään niiden ongelmien takaa. Miki ei koskaan kieltäydy mistään aktiviteeteista tai harjoituksista kunhan tarjolla on ruokapalkkaa. Onneksi Mikillä on pohjaton vatsa ja loputon ruokahalu :D
+Mikiä voi kutsua myös reaktiiviseksi koiraksi, koska sen mitta täyttyy tavallista nopeammin, kun näemme muita koiria lenkin aikana. Usein energisillä "ongelma"koirilla saattaa olla mitä parhain motivaatio omistajan ohjaamaan työskentelyyn ja koiran halukkuus pitäisi vaan pystyä näkemään niiden ongelmien takaa. Miki ei koskaan kieltäydy mistään aktiviteeteista tai harjoituksista kunhan tarjolla on ruokapalkkaa. Onneksi Mikillä on pohjaton vatsa ja loputon ruokahalu.
 
 ### "All brawn and absolutely no brain"
 
 Parhaiten koiran energian saa purettua sillä, mihin käyttötarkoitukseen se on alun perin jalostettu. Olimme ajatelleet Mikistä vetokoiraa, lähinnä vetämään pulkkaa tai potkukelkkaa jäällä tai sitten ihan vaan polkupyörää. Vetämistä jonkun verran Mikin kanssa aloiteltiinkin, mutta pian huomattiin että Mikiä tuntui kiinnostavan melkein kaikki muu enemmän. Toki ollaan käyty talvella järvenjäälle tehdyllä luistinradalla, missä Miki on saanut vetää meitä. Miki on vetänyt polkupyörää niin suurella voimalla, että heti ensimmäisellä kerralla springeri ja sen kiinnityslevyt polkupyörässä menivät mutkalle. Vetäminen kiinnostaa Mikiä noin minuutin kerrallaan, ja siinä se vetoharrastus meillä sitten onkin.
 
-Asuimme ennen kerrostalossa Mikin kanssa, jota moni piti sulana hulluutena. Useimmat tutut ja koiratuttavat aina kysyivät, että uskalsimmeko pitää Mikiä vapaana vai pidämmekö sitä häkissä, kun Miki jäi yksin kotiin. Ja ihmettelevät/arvuuttelevat mitä kaikkea Miki tuhosi meidän poissa ollessamme tai silloin, kun se oli vielä pentu. Vastausta ei kukaan usko: ei mitään. Ei nyt, eikä edes pentuaikana. Häkki myytiin Mikin ollessa noin vuoden ikäinen, sitäkin käytettiin lähinnä sisäsiisteys kasvatukseen.
+Asuimme ennen kerrostalossa Mikin kanssa, jota moni piti sulana hulluutena. Ystävämme sekä koiratuttavat aina kyselivat, että uskalsimmeko pitää Mikiä vapaana vai pidämmekö sitä häkissä, kun Miki jäi yksin kotiin. Ja ihmettelevät/arvuuttelevat mitä kaikkea Miki tuhosi meidän poissa ollessamme tai silloin, kun se oli vielä pentu. Vastausta ei kukaan usko: ei mitään. Miki ei ole koskaan tuhonnut mitään, edes pentuaikana. Mikillä oli kyllä häkki, kun se oli pentu, mutta sitäkin käytettiin lähinnä sisäsiisteys kasvatukseen.
 
-Helppo koira Miki ei todellakaan ole. Kerran eräs marjojenpoimintareissu metsässä kesti neljä tuntia. Kotiin tultuamme Miki lysähti suoraan eteisen matolle nukkumaan ja ehdin jo ajatella, että kerrankin tehtiin sellainen lenkki josta kaveri väsähti. No, kymmenen minuutin makoilun jälkeen Miki tuli ihmettelemään että nyt on nukkumiset nukuttu, mitäs sitten tehtäisiin :D
+Olemme aina pitäneet Mikin kiireisenä pitkien kävelyiden sekä aktivoinnin avulla. Nämä ovat avainelementtejä siinä, että Miki on pysynyt rauhallisena, eikä ole koskaan tuhonnut mitään, huolimatta siitä miten energinen koira Miki on.
+
+Helppo koira Miki ei todellakaan ole. Kerran eräs marjojenpoimintareissu metsässä kesti neljä tuntia. Kotiin tultuamme Miki lysähti suoraan eteisen matolle nukkumaan ja ehdin jo ajatella, että kerrankin tehtiin sellainen lenkki josta kaveri väsähti. No, kymmenen minuutin makoilun jälkeen Miki tuli ihmettelemään että nyt on nukkumiset nukuttu, mitäs sitten tehtäisiin.
 
 Kun Miki tuli meille pentuna, uskoin laumanjohtajuuteen kuten Cesar Millan opettaa. Mutta tutkittuani asioita ja kokeiltuani positiivisia koulutusmenetelmiä sekä naksutinkoulutusta, paluuta vanhaan ei enää ole. Mikäli olet kiinnostunut naksutinkoulutuksesta, niin suosittelen lämpimästi lukemaan kirjan: Naksutinkoulutusta koirallesi, kirjoittajina Morten Egtvedt ja Cecilie Koste.
 
@@ -51,7 +53,7 @@ Mikäli et ole nähnyt elokuvaa Eight Below (suom. Seikkailu Etelänavalla), nii
 
 Eläimet ovat aina olleet lähellä sydäntäni, lajista riippumatta. Tällä hetkellä vapaa-aikani kuluu paljolti Mikin kanssa touhuamiseen. Pidän myös valokuvauksesta erittäin paljon ja kamera onkin melkein aina matkassa. Opiskelen vapaa-ajalla myös koirien kehonkieltä sekä ihmisen kehonkielen ja eleiden vaikutusta koiraan.
 
-Olen erityisherkkä ja olen huomannut sen olevan aivan valtava etu reaktiivisen koiran kanssa elämisessä. Minulla on erittäin vahva intuitio, joka tarkoittaa sitä että usein *tiedän* miten joku asia on tai miten se kannattaa tehdä, vaikka kukaan ei ole sitä minulle opettanut. Olen mm. usein koulutus- tai ohitustilanteissa käyttäytynyt Mikin kanssa jollain tietyllä tavalla ja sitten tulen myöhemmin lukeneeksi vaikkapa jonkun ammattikouluttajan kirjoituksen tai jonkin yliopiston tutkimuksen asiasta, jonka mukaan juuri se minun käyttämäni tapa on ollut se kaikista paras tai tehokkain. Huomaan myös ympäristössä sekä Mikissä tapahtuvat pienimmätkin muutokset, josta on  ollut valtavasti apua Mikin kouluttamisessa.
+Olen erityisherkkä ja olen huomannut sen olevan aivan valtava etu reaktiivisen koiran kanssa elämisessä. Minulla on erittäin vahva intuitio, joka tarkoittaa sitä, että usein *tiedän* miten joku asia on tai miten se kannattaa tehdä, vaikka kukaan ei ole sitä minulle opettanut. Olen mm. usein koulutus- tai ohitustilanteissa käyttäytynyt Mikin kanssa jollain tietyllä tavalla ja sitten tulen myöhemmin lukeneeksi vaikkapa jonkun ammattikouluttajan kirjoituksen tai jonkin yliopiston tutkimuksen asiasta, jonka mukaan juuri se minun käyttämäni tapa on ollut se kaikista paras tai tehokkain. Huomaan myös ympäristössä sekä Mikissä tapahtuvat pienimmätkin muutokset, josta on  ollut valtavasti apua Mikin kouluttamisessa.
 
 Uskon, (*tiedän*) että erityisherkkyyttä esiintyy myös eläimillä, vaikka tätä kuvausta on käytetty tietääkseni vain ihmisistä. Näen Mikin erittäin herkkänä olentona, jonka vuoksi Miki reagoi asioihin hyvin voimakkaasti. Oman kokemukseni perusteella reaktiivisen koiran (huonon) käytöksen syyt löytyvät – samoin kuin minulla itselläni – liian kuormittavasta ympäristöstä. Todellisuudessa koiralla on vaan erittäin kova tarve päästä pois tilanteesta - keinolla millä hyvänsä.
 
