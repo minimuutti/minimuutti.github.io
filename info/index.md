@@ -35,8 +35,8 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 23.9.2020 Lisätty uusia valokuvia kategoriaan; [Syksy](/valokuvaus/luontokuvat/syksy/)
-* 23.9.2020 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
+* 10.10.2020 Lisätty uusia valokuvia kategoriaan; [Syksy](/valokuvaus/luontokuvat/syksy/)
+* 10.10.2020 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
 * 23.9.2020 Lisätty uusia valokuvia kategoriaan; [Abstraktit ja muut](/valokuvaus/abstraktit-muut/)
 * 29.7.2020 Lisätty uusi aktivointivinkki; [Pesupallot](/aktivointi/pesupallot/)
 * 29.7.2020 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)

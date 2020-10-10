@@ -59,11 +59,11 @@ When a dog misbehaves, we humans find it VERY hard not to pay any attention. It'
 
 Another thing you should pay attention to is reward exactly the behaviour you want from a dog and not reward behaviour that is less bad than usual. For example if your dog always barks and runs back and forth along the fence when people pass by the less bad behaviour could be that he stays in the porch but keeps barking.
 
-Dogs are masters at back chaining and therefore that method is commonly used in dog training. But beware because it works excellently with bad behaviour too. If you reward a dog too soon after bad behaviour (as soon as he stops barking) the dog chains the two things together "barking+hushing done in a row equals a reward" instead of what owner wants "being quiet equals a reward".
+Dogs are masters at back chaining and therefore that method is commonly used in dog training. But beware because it works excellently with bad behaviour too. If you reward a dog too soon after bad behaviour (immediately as he stops barking) the dog chains the two things together "barking+hushing done in a row equals a reward" instead of what owner wants "being quiet equals a reward".
 
 #### Is your dog getting enough attention?
 
-Does your dog get enough attention when he behaves or is he misbehaving just to get more attention?
+Does your dog get enough attention when he behaves correctly or is he misbehaving just to get more attention?
 
 Here is one example of a fictional dog that always have zoomies and rampage in the house. His owner is always scolding the dog when he misbehaves (literally all the time). When the dog gets tired and lays down the owner thinks that "I'm so relieved that he finally got tired and I hope he falls asleep so it'll be peaceful for a while". That dog has got so much attention by misbehaving and when he settles down he gets no attention at all. The worst case is if his owner gives him food/treats/toys when he misbehaves "because he stops misbehaving after he gets what he wants". You see how this dog has full motivation to misbehave, because it has been unintentionally taught to him.
 

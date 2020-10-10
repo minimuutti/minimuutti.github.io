@@ -34,8 +34,8 @@ If you live in Finland, please use the link below next time you buy something fr
 
 New and recently updated posts:
 
-* 2020-09-23 New photos added in category; [Autumn](/en/photography/finnish-nature/autumn/)
-* 2020-09-23 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
+* 2020-10-10 New photos added in category; [Autumn](/en/photography/finnish-nature/autumn/)
+* 2020-10-10 New photos added in category; [Pictures of Miki](/en/photography/pictures-of-miki/)
 * 2020-09-23 New photos added in category; [Abstract & other](/en/photography/abstract-other/)
 * 2020-07-29 New brain game post; [Laundry balls](/en/brain-games/laundry-balls)
 * 2020-07-29 New photos added in category; [Summer](/en/photography/finnish-nature/summer/)

@@ -19,7 +19,7 @@ Suomalainen luonto eri vuodenaikoina. Lisää valokuvia löydät klikkaamalla pi
 		<p class="post-excerpt" itemprop="description"></p>
 	</article>
 	<article class="tile" itemscope="" itemtype="http://schema.org/Article">
-		<a href="/valokuvaus/luontokuvat/syksy/" title="Syksy" class="post-teaser"><img src="https://b2.minimuutti.com/file/minimuutti-com/luontokuvat/syksy/2/DS31888-245px.jpg" alt="teaser" itemprop="image"></a>
+		<a href="/valokuvaus/luontokuvat/syksy/" title="Syksy" class="post-teaser"><img src="https://b2.minimuutti.com/file/minimuutti-com/luontokuvat/syksy/5/DS69926-245px.jpg" alt="teaser" itemprop="image"></a>
 		<h2 class="post-title" itemprop="name"><a href="/valokuvaus/luontokuvat/syksy/">Syksy</a></h2>
 		<p class="post-excerpt" itemprop="description"></p>
 	</article>
