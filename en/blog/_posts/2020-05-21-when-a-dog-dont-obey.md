@@ -37,9 +37,9 @@ Dogs however understand best single words or gestures. You shouldn't swap storie
 
 ### Human energy and trust
 
-We all have bad days, but the fact is that dogs obey best a human that is neutral and in a good mood.
+We all have bad days, but the fact is that dogs obey best a human who is neutral and in a good mood.
 
-If a dog's owner is in a bad mod, angry, ill, tired or stressed, the dog might even decide not to obey because he thinks that the owner isn't capable of making good decisions at this moment.
+If a dog's owner is in a bad mod, angry, ill, tired or stressed, the dog might even decide not to obey because he thinks that the owner isn't capable of making good decisions at that moment.
 
 We also need to pay close attention to our own body language. Most dogs don't like people getting too close or to lean over them. I bet you wouldn't like either if a total stranger hugged you for no reason and wouldn't let go.
 
@@ -68,7 +68,7 @@ The dog isn't disobedient on purpose, but he has learned a different meaning for
 
 In addition we can't assume that dogs automatically know what it means it we add *no* or *don't* with the original cue.
 
-If this dogs owner want his dog to stand, he should teach him to "*stand*" instead of "*don't sit*".
+If this dog's owner want his dog to stand, he should teach him to "*stand*" instead of "*don't sit*".
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/stand-sit.jpg)
 
@@ -95,12 +95,12 @@ One reason for the seeming disobedience might be that a verbal cue and body lang
 
 Let's say a dog owner is teaching his dog a recall and he uses a word *come*. The owner hasn't paid attention that his left hand has been in his pocket during the training. Dogs are masters at reading gestures so the dog might learn that the cue to the recall is: left hand in the pocket.
 
-The owner thinks he has taught the recall with cue: come, but the dog has learned that the cue is left hand in the pocket. Then when the owner calls his dog using the word *come*, his dog doesn't come to him because his left hand isn't in his pocket.
+The owner thinks he has taught the recall with a verbal cue: come, but the dog has learned that the cue is left hand in the pocket. Then when the owner calls his dog using the word *come*, his dog doesn't come to him because his left hand isn't in his pocket.
 
 
 ### Unintentional smell signals
 
-Dogs have an amazing ability to smell compared to people. This subject might be hard to tackle, because dog's live their life through their noses, like we humans live our lives through our eyes. Unfortunately we are not able to smell the things our dogs smell.
+Dogs have an amazing ability to smell compared to people. This subject might be hard to tackle, because dogs live their life through their noses, like we humans live our lives through our eyes. Unfortunately we are not able to smell the things our dogs smell.
 
 If an unusual odour has been floating in the air when you have taught some behaviour to your dog, your dog might have linked this odour as the cue to the behaviour. And later on when the odour is missing the dog seems to be clueless when you ask him to repeat the behaviour.
 
@@ -128,7 +128,7 @@ Humans can't define or decide what things dogs seems as rewards. If you want to 
 
 Different dogs value different things. One likes attention or belly scratches, second one likes food or treats, third one may like toys or just a particular toy like his favourite ball and so on. For example Miki doesn't value toys at all but he loves food and treats, so I only reward him with food. If I would try to reward him with toys, he wouldn't obey for long because why bother?
 
-You wouldn't stay in a job for a long if you had a boss that was an enthusiastic stamp collector and he'd pay your whole salary in postage stamps?
+You wouldn't stay in a job for a long if your boss was an enthusiastic stamp collector and he'd pay your whole salary in postage stamps - would you?
 
 Another key thing is the right timing. Dogs link the rewards to the behaviour only if they are rewarded within one second of the behaviour. Any later, they think they are been rewarded for the thing they are doing at that moment.
 
@@ -162,7 +162,7 @@ Dogs feel punishment similarly as a negative thing. The more a dog is been punis
 
 Try to look at things from a dog's perspective. A dog might not obey if you ask him to do something he's afraid of.
 
-Like if a dog has been taught to jump but he's just too afraid to jump from a pier into a rocking boat. Or a dog  that loves to perform tricks at home but when he is with his family visiting friends the dog freezes and does nothing he's asked to do. The dog might fear something on the friends house like a shiny floor if he has got used to carpet at home. Or he might be afraid of a specific person there, or even your friends dog on whose territory he's at.
+Like if a dog has been taught to jump but he's just too afraid to jump from a pier into a rocking boat. Or a dog  that loves to perform tricks at home but when he is with his family visiting friends the dog freezes and does nothing he's asked to do. The dog might fear something on the friends house like a shiny or slippery floor if he has got used to carpet at home. Or he might be afraid of a specific person there, or even your friends dog on whose territory he's at.
 
 One example is a dog that is lunging and barking on a leash and he's not calming down although he'd been asked. He might be so intimitated by the on comers that he thinks he's been forced to act that way. If this sounds familiar, you should read the blog posts: [Are reactive dogs just highly sensitive?](/en/blog/are-reactive-dogs-just-highly-sensitive/) and [Passing other dogs](/en/blog/passing-other-dogs/).
 
