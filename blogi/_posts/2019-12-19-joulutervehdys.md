@@ -11,6 +11,8 @@ Minimuutti toivottaa kaikille rauhallista joulunaikaa ja muistuttaa hyväntekev�
 
 ##### Auta omalla tavallasi
 
+Huono-osaiset ihmiset, kodittomat lemmikit sekä villieläimet tarvitsevat apua.
+
 Hyväntekeväisyys ei aina tarkoita sitä että kaivat rahaa kukkarostasi, vaan vaihtoehtoja tehdä hyväntekeväisyyttä löytyy lähes rajattomasti.
 
 Itse en ole sellaista tyyppiä, että lahjoittaisin omaa rahaa hyväntekeväisyyteen. Haluan kuitenkin tehdä hyväntekeväisyyttä ja auttaa sekä eläimiä että ihmisiä. Olen aina ollut kova tekemään töitä. Olen luonteeltani työteliäs ja ahkera, melkeinpä voisi sanoa, että en osaa olla tekemättä mitään, aina on joku projekti meneillään.

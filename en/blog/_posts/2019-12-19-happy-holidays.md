@@ -11,9 +11,9 @@ Minimute wishes you happy holidays and reminds you of the importance of charity.
 
 ##### Help in your own way
 
-Charity can be done in many different ways.
+Less fortunate people, homeless pets and wild animals need help urgently. Fortunately charity can be done in many different ways.
 
-I don't just want to donate money from my bank account. I've always been hardworking so donating my spare time by working for a charity suits best for me. (I know extra work isn't everyone's cup of tea.)
+I don't just want to donate money from my bank account. I've always been hard working so donating my spare time by working for a charity suits best for me. (I know extra work isn't everyone's cup of tea.)
 
 ##### Start with something small
 
