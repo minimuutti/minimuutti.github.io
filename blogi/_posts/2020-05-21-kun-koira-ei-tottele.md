@@ -200,7 +200,7 @@ Luoksetulo tulee opettaa koiralle niin, että koirasi olettaa luoksetulon johtav
 
 Koirapuistoesimerkissä palkkio voi olla vaikkapa "vapaa" vihje; luoksetulosta saa palkkioksi mennä jatkamaan leikkiä. Näin koira oppii, ettei hauska leikki lopu luoksetuloon: "kyllähän tässä ehtii käydä moikkaamassa omistajaa, kun se päästää minut kumminkin heti takaisin leikkimään".
 
-Tässä näkyy kun Miki unohti jarruttaa ajoissa ja juoksi minua päin, kun kutsuin sen luokse. Sillä oli niin kova kiire.
+Tässä kuvassa näkyy, kun Miki unohti jarruttaa ajoissa ja juoksi minua päin, kun kutsuin sen luokse. Sillä oli niin kova kiire palkkion toivossa.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/recall.jpg)
 
