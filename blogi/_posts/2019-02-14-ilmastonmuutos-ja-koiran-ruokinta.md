@@ -31,7 +31,7 @@ Tutkijoiden mukaan kalat loppuvat meristä nykyisillä kalastusmäärillä vuonn
 
 Punainen liha (nauta) nopeuttaa ilmastonmuutosta monella tavalla. Nautaeläin itsessään tuottaa kasvihuonekaasuja ja yksi lehmä tuottaa vuodessa enemmän kasvihuonekaasuja, kuin tavallinen bensiinikäyttöinen henkilöauto. Naudat tarvitsevat paljon laidunmaata, jonka vuoksi maailmasta kaadetaan metsää kiihtyvällä vauhdilla. Metsät sitovat itseensä kasvihuonekaasuja, ja kun metsät poltetaan laidunmaan alta pois, niin kaikki metsän sitomat kasvihuonekaasut vapautuvat ilmakehään. Lihankasvatus vie tällä puolet koko maapallon maapinta-alasta ja määrä kasvaa koko ajan. Nautojen lanta rehevöittää myös vesistöjä, joka sekin edesauttaa ilmastonmuutosta.
 
-Suomalainen saattaa helposti ajatella, että kun ostaa kotimaista lihaa, niin ei tuhoa sademetsiä - väärin. Valitettavasti suomalaisia eläimiä ruokitaan paljon ulkomaisella eläin- ja kasvirehulla, jotka ovat peräisin juuri niiltä alueilta, joissa sademetsät on tuhottu ja muutettu laidunmaaksi ja pelloiksi.
+Suomalainen saattaa helposti ajatella, että kun ostaa kotimaista lihaa, niin ei tuhoa sademetsiä - väärin. Valitettavasti noin 85% suomalaisten eläinten rehusta on peräisin juuri niiltä alueilta, joissa sademetsät on tuhottu ja muutettu laidunmaaksi ja pelloiksi.
 
 Maailmalla koetaan nälänhätää sekä pulaa juomavedestä. Lihan ja maidontuotanto käyttää koko maailman käyttökelpoisesta juomavedestä kolmasosan. Yhden naudanlihakilon tuottaminen vaatii yli 15000 litraa vettä ja noin 10-15 kiloa sellaista kasviperäistä ravintoa, jonka ihminenkin voisi syödä (mm. soija ja viljat).
 
@@ -41,13 +41,19 @@ Moni meistä ajattelee luomun olevan puhdasta ja ekologista. Luomutuotteet eivä
 
 ### Mitä jokainen meistä sitten voisi tehdä?
 
-Kuten jo aiemmin totesin, niin koirat tarvitsevat lihaa voidakseen hyvin. Tässä kohdin jokaisen meistä kannattaa kuitenkin miettiä, mitä lihaa koiralleen syöttää. Itse pyrin valitsemaan Mikille kanaa ja kalkkunaa punaisen lihan sijaan. Punaisen lihan (nauta, lammas, sika, vuohi jne.) tuottaminen aiheuttaa moninkertaisen määrän kasvihuonepäästöjä siipikarjaan verrattuna.
+Kuten jo aiemmin totesin, niin koirat tarvitsevat lihaa voidakseen hyvin. Tässä kohdin jokaisen meistä kannattaa kuitenkin miettiä, mitä lihaa koiralleen syöttää. Itse valitsen Mikille lähes aina kanaa ja kalkkunaa punaisen lihan sijaan. Punaisen lihan (nauta, lammas, sika, vuohi jne.) tuottaminen aiheuttaa moninkertaisen määrän kasvihuonepäästöjä siipikarjaan verrattuna.
 
-Useimmilla koiranruokamerkeillä on valikoimassaan sekä punaista lihaa että kanaa sisältävät vaihtoehdot, joten valinnanvaraa on. 
+Useimmilla koiranruokamerkeillä on valikoimassaan sekä punaista lihaa, että kanaa sisältävät vaihtoehdot, joten valinnanvaraa on.
 
-Ennen aina pakastin Mikille Kongit niin, että laitoin noin puolet lihaapateeta ja puolet maustamatonta jugurttia. Nykyään olen vaihtanut tuon jugurtin vihanneksiin ja naudanlihapateen kalkkunan lihaan. Samalla kun tekee ruokaa itselleen, voi loput kasviksista keittää ja soseuttaa lihan kaveriksi Kongiin. Ja koska Mikin ruoka joka tapauksessa tuottaa paljon kasvihuonepäästöjä, niin kompensoimme sitä niin, että syömme itse vegaanista ruokaa.
+Riisin viljely tuottaa myös melkein yhtä paljon kasvihuonepäästöjä, kuin punainen liha, joten riisiä sisältävät koiranruuat kannattaa jättää ostamatta. Koira ei myöskään saa riisistä tarvitsemiaan ravintoaineita, vaan riisi onkin koiran ruuissa vain halpana täyteaineena, jolla ruokavalmistajat saavat laskettua koiranruuan hintaa.
 
-Useimmat koirat pitävät kasviksista ja joistakin hedelmistä. Miki rakastaa keitettyä porkkanaa, keitettyä bataattia, keitettyä parsakaalia, keräkaalia sekä monia muita vihanneksia. Koska koirien ylipaino on myös suuri ongelma, kannattaa koiralle varata herkkupaloiksi keitettyjä kasviksia lihapalojen sijaan ainakin silloin tällöin. Mikillä on usein iltaisin nälkä, vaikka iltaruoka on jo syöty. Sen vuoksi meillä on aina jääkaapissa valmiiksi keitettyjä vihanneksia, joita Mikille voi melko huoletta antaa täydennysravinnoksi, koska ne eivät juurikaan lihota. Kannattaa rohkeasti kokeilla erilaisia kasviksia ja hedelmiä, niistä varmasti löytyy jokin mistä koirasi pitää. Muista kuitenkin aina keittää juurekset ennen kuin annat niitä koirallesi, etteivät ne tuki koiran suolistoa.
+Ennen aina pakastin Mikille Kongit niin, että laitoin noin puolet lihaapateeta ja puolet maustamatonta jugurttia. Nykyään olen vaihtanut tuon jugurtin vihannessoseeseen ja naudanlihapateen kalkkunan lihaan.
+
+Samalla kun tekee ruokaa itselleen, voi loput kasviksista keittää ja soseuttaa lihan kaveriksi Kongiin. Ja koska Mikin ruoka joka tapauksessa tuottaa paljon kasvihuonepäästöjä, niin kompensoimme sitä niin, että syömme itse vegaanista ruokaa.
+
+Useimmat koirat pitävät kasviksista ja joistakin hedelmistä. Miki rakastaa keitettyä porkkanaa, keitettyä bataattia, keitettyä parsakaalia, keräkaalia sekä monia muita vihanneksia. Koska koirien ylipaino on myös suuri ongelma, kannattaa koiralle varata herkkupaloiksi keitettyjä kasviksia lihapalojen sijaan ainakin silloin tällöin.
+
+Mikillä on usein iltaisin nälkä, vaikka iltaruoka on jo syöty. Sen vuoksi meillä on aina jääkaapissa valmiiksi keitettyjä vihanneksia, joita Mikille voi melko huoletta antaa täydennysravinnoksi, koska ne eivät juurikaan lihota. Kannattaa rohkeasti kokeilla erilaisia kasviksia ja hedelmiä, niistä varmasti löytyy jokin, mistä koirasi pitää. Muista kuitenkin aina keittää juurekset ennen kuin annat niitä koirallesi, etteivät ne tuki koiran suolistoa.
 
 Koirille sopivat ja sopimattomat ruoka-aineet voit tsekata [täältä](https://minimuutti.com/blogi/jaateloa-hellepaiviin/).
 

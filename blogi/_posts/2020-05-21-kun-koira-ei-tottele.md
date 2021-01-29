@@ -165,6 +165,10 @@ Yritä nähdä asioita myös koiran silmin. Koira voi jättää tottelematta, jo
 
 Tai jos koira raivoaa kävelyillä vastaantulijoille, eikä ole pyynnöstä huolimatta hiljaa, niin se ei välttämättä ole tottelematta, vaan kokee olevansa pakotettu toimimaan tilanteessa niin kuin se toimii. Koira voi katsoa, ettei omistaja kykene tilanteessa oikeaan ratkaisuun ja tekee mielestään oikein ottaen ohjat omiin käsiinsä. Se voi myös kokea suojelevansa omistajaansa. Jos tämä kuulostaa tutulta, niin kannattaa lukea blogipostaukset: [Onko reaktiiviset koirat vain erityisherkkiä](/blogi/ovatko-reaktiiviset-koirat-vain-erityisherkkia/) sekä [Ohittaminen](/blogi/ohittaminen/).
 
+Moni koiranomistaja sen kummemmin ajattelematta pyytää koiraansa istumaan ja odottamaan, jos koiraa lähestyy jokin asia, mikä pelottaa sitä, esimerkiksi toinen koira tai skeittaava teini. Koira ei näissä tilanteissa useinkaan tottele, vaan tekee jotain ihan muuta.
+
+Kärjistetty esimerkki ihmisten maailmasta voisi olla sellainen, että kuljette pimeällä kujalla puolisosi kanssa. Huomaatte teitä kohti puukko kädessä juoksevan henkilön, joka uhkailee teitä. Jos puolisosi pyytäisi sinua tässä kohtaa istumaan siinä toivossa, että uhkaaja poistuisi paikalta, niin tottelisitko häntä? Veikkaan ennemmin, että haluaisit juosta pois pimeältä kujalta muiden ihmisten pariin.
+
 
 ### Pyyntöjen noudattaminen
 
