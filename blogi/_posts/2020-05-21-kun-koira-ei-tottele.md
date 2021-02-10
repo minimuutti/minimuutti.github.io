@@ -9,7 +9,7 @@ image:
 
 Syitä tottelemattomuuteen voi olla useita. Tässä postauksessa kerron tavallisimpia syitä, sekä vinkkejä, miten tilannetta voi muuttaa.
 
-Tottelevainen koira on ihanne, mutta tottelevaisuus on myös turvallisuutta. Katua ylittäessä koira ei voi jäädä keskelle autotietä haistelemaan tielle heitettyjä roskia, vaan koiran on pyynnöstä poistuttava autotieltä, oli haju kuinka mielenkiintoinen tahansa.
+Tottelevainen koira on ihanne, mutta tottelevaisuus on myös turvallisuutta. Esimerkiksi katua ylittäessä koira ei voi jäädä keskelle autotietä haistelemaan tielle heitettyjä roskia, vaan koiran on pyynnöstä poistuttava autotieltä, oli haju kuinka mielenkiintoinen tahansa.
 
 Koirat eivät ilkeyttään tee mitään väärää tai kiellettyä, vaan (väärän) käytöksen takana on aina jokin syy.
 
