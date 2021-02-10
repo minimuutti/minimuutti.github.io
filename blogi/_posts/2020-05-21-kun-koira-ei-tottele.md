@@ -63,7 +63,7 @@ Jos jokainen vihje alkaakin sanalla *nyt*, niin koira on ihan varmasti sekaisin 
 
 Koira ei tässä tahattomasti tottele, vaan se on oppinut vihjeen tarkoittavan eri asiaa, kuin mitä omistaja tarkoittaa.
 
-Emme voi myöskään olettaa koiran ymmärtävän, jos opetettuun vihjeeseen liitetään kieltosana, esimerkiksi "et istu" Koiralle tulee opettaa esimerkiksi vihje: "seiso" sellaisia tilanteita varten, jossa sen halutaan seisovan. 
+Emme voi myöskään olettaa koiran ymmärtävän, jos opetettuun vihjeeseen liitetään kieltosana, esimerkiksi "et istu". Koiralle tulee opettaa esimerkiksi vihje: "seiso" sellaisia tilanteita varten, jossa sen halutaan seisovan. 
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/seiso-istu.jpg)
 
