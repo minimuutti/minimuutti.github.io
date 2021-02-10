@@ -161,7 +161,9 @@ kokea, että rangaistus tulee joka tapauksessa, miksi edes yrittää?
 
 ### Pelko
 
-Yritä nähdä asioita myös koiran silmin. Koira voi jättää tottelematta, jos siltä pyydetään asiaa, joka pelottaa sitä. Normaalisti koira tekee mielellään temppuja pyynnöstä kotona olohuoneen matolla, mutta jäätyy täysin, kun sitä pyydetään näyttämään samat temput sen ollessa kylässä. Syynä voi olla pelko jotain ihmistä tai heidän koiraansa kohtaan, jonka reviirillä koira nyt on. Koira voi myös vierastaa liukasta ja kiiltävää lattiaa, jos se on kotona tottunut mattoihin.
+Yritä nähdä asioita myös koiran silmin. Koira voi jättää tottelematta, jos siltä pyydetään asiaa, joka pelottaa sitä.
+
+Esimerkkinä koira, joka tekee mielellään temppuja kotona olohuoneen matolla, mutta jäätyy täysin, kun sitä pyydetään näyttämään samat temput sen ollessa kylässä. Syynä voi olla pelko jotain ihmistä tai heidän koiraansa kohtaan, jonka reviirillä koira nyt on. Koira voi myös pelätä vaikkapa liukasta ja kiiltävää lattiaa, jos se on kotona tottunut mattoihin.
 
 Tai jos koira raivoaa kävelyillä vastaantulijoille, eikä ole pyynnöstä huolimatta hiljaa, niin se ei välttämättä ole tottelematta, vaan kokee olevansa pakotettu toimimaan tilanteessa niin kuin se toimii. Koira voi katsoa, ettei omistaja kykene tilanteessa oikeaan ratkaisuun ja tekee mielestään oikein ottaen ohjat omiin käsiinsä. Se voi myös kokea suojelevansa omistajaansa. Jos tämä kuulostaa tutulta, niin kannattaa lukea blogipostaukset: [Onko reaktiiviset koirat vain erityisherkkiä](/blogi/ovatko-reaktiiviset-koirat-vain-erityisherkkia/) sekä [Ohittaminen](/blogi/ohittaminen/).
 
@@ -178,7 +180,7 @@ Esimerkki: koira on omistajansa kanssa kävelyllä ja koira pysähtyy haistelema
 
 Mitä enemmän koiralle antaa periksi, sitä vähemmän se tottelee. Jos koiran omistaja ei koskaan velvoita koiralta pyytämäänsä käytöstä, niin miksi hän vaivautuisi edes pyytämään mitään? Katsoakseen onko koiralla sillä hetkellä parempaa tekemistä vai ei?
 
-Kun esimerkin koira vihdoin lähtee liikkeelle, ei sitä enää tule kehua tai palkita, koska tällöin koira palkitaan myös tuosta tottelemattomuudesta, eli siitä että koira antoi odottaa itseään.
+Kun esimerkin koira vihdoin lähtee liikkeelle, ei sitä enää tule kehua tai palkita, koska tällöin koira palkittaisiin myös tuosta tottelemattomuudesta, eli siitä että koira antoi odottaa itseään.
 
 Tällaisesta käytöksestä voi opetella pois niin, että pyytää koiralta jotain silloin, kun tietää sen olevan kuulolla (sillä ei ole parempaakaan tekemistä) ja palkitsee koiran, kun se reagoi pyyntöön välittömästi. Koiraa kannattaa palkita myös silloin, kun se (satunnaisesti) noudattaa pyyntöä välittömästi. Koira oppii pikkuhiljaa, että omistajalta saa jotain kivaa, kun tottelee pyyntöjä ja vastaavasti tottelemattomuus (tai "tottelevaisuus" viiveellä) ei johda palkkioihin.
 
