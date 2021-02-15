@@ -25,7 +25,7 @@ Muista, että lahjoituksen ei tarvise olla suuri ja pienikin apu auttaa. Suomen 
 
 ##### Käytä omia vahvuuksiasi
 
-Jos et ole rahanlahjoittaja kuten en minäkään, niin hyväntekeväisyys tapaa tai kohdetta miettiessä kannattaa ensin miettiä omia vahvuuksiaan ja järjestöiltä kannattaa kysyä minkälaista apua he tarvitsevat. Kaikilla (kuten itselläni) ei kuitenkaan ole mahdollisuutta mennä "paikanpäälle" auttamaan tai tekemään tiettyä työtä tiettyyn aikaan. Kokosin alle jotain vinkkejä, jos silti haluat lahjoittaa työtä, ennemmin kuin rahaa.
+Jos et ole rahanlahjoittaja kuten en minäkään, niin hyväntekeväisyystapaa tai -kohdetta miettiessä kannattaa ensin miettiä omia vahvuuksiaan. Kaikilla ei ole mahdollisuutta mennä "paikanpäälle" auttamaan tai tekemään tiettyä työtä tiettyyn aikaan ja sen vuoksi järjestöiltä kannattaa kysyä minkälaista apua he tarvitsevat.
 
 Jos olet hyvä leipomaan tai tekemään jotain muuta myytäväksi kelpaavaa, niin sitä kannattaa ehdottomasti hyödyntää. Jotkut järjestöt tarvitsevat myytävää tavaraa ja leivonnaisia esim. messuille ja muihin tapahtumiin. Vaihtoehtoisesti voit myydä itsetekemiäsi käsitöitä tuttavillesi tai vaikkapa työpaikallasi ja lahjoittaa saamasi myyntituotot. Vinkki: ennen joulua käsin tehdyt neuletyöt, leivonnaiset, joulukortit jne. menevät kuumille kiville (varsinkin jos ilmoitat lahjoittavasi tuotot hyväntekeväisyyteen).
 
@@ -35,7 +35,7 @@ Pese naapurin ikkunat, leikkaa nurmikko tai tee lumityöt pientä korvausta vast
 
 Ilmoittaudu lipaskerääjäksi. Keräyspaikan saa jossakin määrin valita itse tai ainakin saa valita vaihtoehdoista parhaiten itsellesi sopivan.
 
-Vastaa netissä kuluttajille suunnattuihin kyselytutkimuksiin ja lahjoita niistä saadut rahat. Palkkiot ovat pieniä, mutta sekin on enemmän kuin ei mitään. Suomen eläinsuojeluyhdistyksellä on myös oma kyselypaneeli, SEY paneeli. Siellä vastataan ihan tavallisiin kuluttajakyselyihin, mutta palkkiot menevät suoraan eläinsuojelutyöhön. Kyselyihin vastataan nettilomakkeella ja voit vastata juuri silloin kun sinulle sopii. Palkkiot vaihtelevat kymmenestä sentistä muutamiin euroihin per kysely.
+Vastaa netissä kuluttajille suunnattuihin kyselytutkimuksiin ja lahjoita niistä saadut rahat. Palkkiot ovat pieniä, mutta sekin on enemmän kuin ei mitään. Suomen eläinsuojeluyhdistyksellä on myös oma kyselypaneeli, SEY paneeli. Siellä vastataan ihan tavallisiin kuluttajakyselyihin, mutta palkkiot menevät suoraan eläinsuojelutyöhön. Kyselyihin vastataan nettilomakkeella ja voit vastata juuri silloin kun sinulle sopii. Palkkiot vaihtelevat kymmenestä sentistä muutamaan euroon per kysely.
 
 Anna aineeton lahja. Jos et keksi kaverille sopivaa (joulu)lahjaa, niin tee lahjarahalla lahjoitus hyväntekeväisyyteen.
 
