@@ -11,11 +11,11 @@ Pelon voi siedättää pois helposti, kunhan on kärsivällinen. Siedättämises
 
 Ajatellaan nyt sellaista, että koirasi pelkää kynsien leikkaamista. Se on tottunut yhdistämään kynsienleikkuun kynsisaksiin sekä esimerkiksi kylpyhuoneeseen – se pelkää heti, kun haet kynsisakset ja menet kylpyhuoneeseen niiden kanssa. Jos koirasi TODELLA pelkää kynsisaksia  (esimerkiksi piiloutuu sängyn alle nähdessään ne) ­osta tilalle joku toinen väline, vaikkapa kynsipihdit. Jos koirasi pelko on lievää, niin voit ihan hyvin jatkaa samoilla välineillä kuin ennenkin.
 
-Sitten kun koirasi on rauhallinen, ala totuttamaan sitä näihin uusiin pihteihin. Huomaa, ettei koirasi vielä tiedä mitä pihdeillä tehdään, joten sen asenne niihin on todennäköisesti neutraali tai kiinnostunut. Älä ruoki koirasi pelkoa, vaan muista itsekin suhtautua uusiin kynsipihteihin sekä opetustilanteeseen rauhallisesti ja neutraalisti.
+Kun koirasi on rauhallinen, ala totuttamaan sitä näihin uusiin pihteihin. Huomaa, ettei koirasi vielä tiedä mitä pihdeillä tehdään, joten sen asenne niihin on todennäköisesti neutraali tai kiinnostunut. Älä ruoki koirasi pelkoa, vaan muista itsekin suhtautua uusiin kynsipihteihin sekä opetustilanteeseen rauhallisesti ja neutraalisti.
 
 Tämän vanhan mörön pois kouluttaminen kannattaa aloittaa ajoissa, eli vähintään paria viikkoa ennen, kun koirasi kynnet pitää leikata. Jos ennen leikkasit koirasi kynnet kylpyhuoneessa, niin aloittakaa harjoitukset vaikka olohuoneessa. Lattiaan kannattaa tässä vaiheessa kiinnittää huomiota; valitse sellainen paikka harjoituksiin, jossa koiran tassut ei luista.
 
-Tiesithän myös sen, ettei koiraa saa koskaan kutsua luokse, kun aiot tehdä sille jotain mistä se ei pidä. Jos kutsut koiran luoksesi vaikka vain muutamiakin kertoja ennen ikävää toimenpidettä, niin koira oppii todella äkkiä ettei luoksetulovihjettä kannata noudattaa missään tilanteessa, koska luoksetulosta voi seurata "rangaistus".
+Tiesithän myös sen, ettei koiraa saa koskaan kutsua luokse, kun aiot tehdä sille jotain mistä se ei pidä. Jos kutsut koiran luoksesi vaikka vain muutamiakin kertoja ennen ikävää toimenpidettä, niin koira oppii todella nopeasti, ettei luoksetulokutsua kannata noudattaa missään tilanteessa, koska luoksetulosta voi seurata "rangaistus".
 
 Otin nämä valokuvat yhdellä kerralla, koska Mikillä ei ole mitään ongelmia kynsien leikkaamisessa. Todellisuudessa tässä kannattaa varautua ainakin 20 harjoituskertaan.
 
