@@ -112,31 +112,40 @@ On tärkeää ymmärtää, että ohitustilanne pitäisi saada muutettua koiran m
 
 Nykyinen tilanne on se, että koira näkee vastaantulevan koiran ja ajattelee: *apua, pelottaa, räyhään niin se menee pois*.
 
-Uusi tilanne voi olla vaikka tällainen: *jee ohitettava koira, tiedän että seuraamalla omistajaa vastaantulija menee pois ja seuraamisesta saan vielä herkullisen namipalkkion*.
+Uusi tilanne voi olla vaikka tällainen: *jee ohitettava koira, tiedän että seuraamalla omistajan ohjeita vastaantulija menee pois ja saan vielä herkullisen namipalkkion*.
 
 ##### Positiivinen mielleyhtymä
 
-Koiran ajattelutapaa voi muokata positiivisemmaksi niin, että pelottava asia yhdistetään johonkin kivaan. Jos koirasi pelkää muita koiria, niin aina kun näette toisen koiran lenkillä ja koirasi pysyy rauhallisena, niin anna koirallesi namipalkka. Näin koirasi mielikuva muuttuu > näen koiran ja saan herkkuja. Muista kuitenkin, että tällainen mielikuvan muuttaminen onnistuu vain, kun olette muista koirista tarpeeksi kaukana. Niin, että koirasi näkee toisen koiran, mutta se on niin kaukana, ettei koiraasi pelota.
+Koiran ajattelutapaa voi muokata positiivisemmaksi niin, että pelottava asia yhdistetään johonkin kivaan. Jos koirasi pelkää muita koiria, niin aina kun näette toisen koiran lenkillä ja koirasi pysyy rauhallisena, niin anna koirallesi namipalkka. Koira käytännössä palkitaan siitä, kun se huomaa toisen koiran.
+
+Koirasi pysyy rauhallisempana, mitä kauempana näkemänne koira on. Tätä voi mennä harjoittelemaan vaikkapa puiston reunaan, eli ihan vain katselemaan kauempana liikkuvia koiria. Koirasi mielikuva muista koirista muuttuu pikkuhiljaa > näen koiran ja saan herkkuja.
+
+Miki opetettiin ohittamaan muita koiria juuri näin, eli se palkittiin aina, kun se näki toisen koiran. Pikkuhiljaa Mikin tunnetila muita koiria kohtaan muuttui. Vastaan tuleva koira ei yhtäkkiä enää ollutkaan niin pelottava, vaan se olikin vihje katsekontaktiin, jota seurasi namipalkkio.
+
+Muista kuitenkin, että tällainen mielikuvan muuttaminen onnistuu vain, kun olette muista koirista tarpeeksi kaukana. Niin, että koirasi näkee toisen koiran, mutta se on niin kaukana, ettei koiraasi pelota.
 
 Ole tarkkana myös siinä, ettet vahingossa vahvista huonoa käytöstä. Joskus asiat vain menevät pieleen, mutta älä kuitenkaan rankaise koiraasi. Älä myöskään palkitse sitä. Parasta on vain jatkaa matkaa.
 
-Positiivista suhtautumista vastaantulijoihin lisää myös se, että omistaja huomioi koiransa kehonkielen. Jos koira näyttää mitään epävarmuuden merkkejä, niin kuuntele koiraasi ja päästä se pois tukalasta tilanteesta väistämällä sivuun niin, että toinen koira voi ohittaa teidät kauempaa. Koirasi alkaa pikkuhiljaa ymmärtämään, että omistaja ymmärtää sen ahdinkoa ja koira alkaa näin luottaa omistajaansa enemmän, kun se tietää tukalista tilanteista pääsee pois muutenkin kuin räyhäämällä.
+Positiivista suhtautumista vastaantulijoihin lisää myös se, että omistaja huomioi koiransa kehonkielen. Jos koira näyttää mitään epävarmuuden merkkejä, niin kuuntele koiraasi ja päästä se pois tukalasta tilanteesta väistämällä sivuun niin, että ohitatte toisen koiran kauempaa. Koirasi alkaa pikkuhiljaa ymmärtämään, että omistaja ymmärtää sen ahdinkoa ja koira alkaa näin luottaa omistajaansa enemmän, kun se tietää tukalista tilanteista pääsee pois muutenkin kuin räyhäämällä.
 
 ##### Korvaava, toivottu käytös
 
-Positiivisen mielleyhtymän lisäksi koiralle kannattaa opettaa jokin toivottu käytös ei-toivotun tilalle, kuten vaikka seuraaminen. Näin sen katse pysyy sinussa, eikä se tuijota vastaantulevaa koiraa. Seuraamisen opettelu aloitetaan ilman häiriöitä, vaikkapa kotona. Kun koira osaa toivotun käytöksen kotona, voit lisätä harjoitteluun jotain häiriöitä, mutta jos koirasi on remmiräyhääjä niin ei kannata heti aloittaa ohittamaan muita koiria kapealla jalkakäytävällä. Jos et tiedä miten seuraaminen opetetaan, voit etsiä You Tubesta "teach dog to heel".
+Positiivisen mielleyhtymän lisäksi koiralle kannattaa opettaa jokin toivottu käytös ei-toivotun tilalle, kuten vaikka katsekontakti ja seuraaminen. Näin sen katse pysyy sinussa, eikä se tuijota vastaantulevaa koiraa. 
+
+Seuraamisen opettelu aloitetaan ilman häiriöitä, vaikkapa kotona. Kun koira osaa toivotun käytöksen kotona, voit lisätä harjoitteluun jotain häiriöitä. Jos koirasi on remmiräyhääjä niin ei kannata heti aloittaa ohittamaan muita koiria kapealla jalkakäytävällä.
+
+Jos et tiedä miten seuraaminen opetetaan, voit etsiä You Tubesta "teach dog to heel".
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC25924_-800px.jpg)
 
 Kun koirasi osaa seurata, niin muiden koirien ohittamisen harjoittelu kannattaa ensin aloittaa sellaisessa paikassa, jossa on enemmän tilaa, vaikkapa puistossa. Koirasi kehonkieltä tulee seurata koko ajan ja jos koirasi vaikuttaa ahdistuneelta, niin älä pakota sitä ohittamaan vaan vaihtakaa suuntaa.
 
-Kannattaa myös harjoitella U-käännös sellaisia tilanteita varten, jotka tulevat nopeasti eikä niihin ehdi kunnolla varautumaan. Sellainen voi olla vaikka talon kulmalta yllättäen eteen kääntyvä koira. Jos ette ehdi alta pois ja koirasi räyhää, niin älä suutu sille, koska ethän halua vahvistaa tapahtuman negatiivisuutta. Siinä tilanteessa on parempi koittaa itse pysyä rauhallisena ja yrittää vain poistua paikalta. Älä toru koiraasi, mutta älä myöskään palkitse sitä säälistä.
+Kannattaa myös harjoitella U-käännös sellaisia tilanteita varten, jotka tulevat nopeasti eikä niihin ehdi kunnolla varautumaan. Sellainen voi olla vaikka talon kulman takaa yllättäen eteen kääntyvä koira. Jos ette ehdi alta pois ja koirasi räyhää, niin älä suutu sille, koska ethän halua vahvistaa tapahtuman negatiivisuutta. Siinä tilanteessa on parempi koittaa itse pysyä rauhallisena ja yrittää vain poistua paikalta. Älä toru koiraasi, mutta älä myöskään palkitse sitä säälistä.
 
-Uuden toimintamallin opettelu vaatii aikaa ja paljon toistoja. Tässä kohdin omistajan on seurattava tarkkaan sekä oman koiran, että vastaantulevan koiran kehonkieltä. Mikäli oma koira tai vastaantulija ei ole "ohituskelpoisessa" mielentilassa, niin vaihtakaa ennemmin toiselle puolelle tietä, ettei koirasi palaa samaan vanhaan räyhäämiseen.
+Uuden toimintamallin opettelu vaatii aikaa ja paljon toistoja. Tässä kohtaa koiranomistajan on seurattava tarkkaan sekä oman koiran, että vastaantulevan koiran kehonkieltä. Mikäli oma koira tai vastaantulija ei ole "ohituskelpoisessa" mielentilassa, niin vaihtakaa ennemmin toiselle puolelle tietä, ettei koirasi palaa samaan vanhaan räyhäämiseen.
 
-Ohitustilanteet sujuvat oman kokemukseni mukaan aina parhaiten silloin, kun minä huomaan vastaantulevan koiran ennen Mikiä ja osaan pyytää Mikiltä ohituskäytöstä jo ennen kuin Miki on toista koiraa edes huomannut. Näin Miki tietää mitä sen pitää tehdä ennen kuin pelkoreaktiota vastaantulijaan ehtii syntyä.
+Ohitustilanteet sujuvat oman kokemukseni mukaan aina parhaiten silloin, kun minä huomaan vastaantulevan koiran ennen Mikiä ja ehdin jo valmiiksi miettiä sopivan toimintatavan kulloinseenkin tilanteeseen. Näin myös Miki tietää mitä sen pitää tehdä, ennen kuin pelkoreaktiota vastaantulijaan ehtii syntyä.
 
-Jos Miki ehtii nähdä toisen koiran ennen minua, sen pelkoreaktio ehtii syntyä ja silloin on yleensä parasta vaan vaihtaa toiselle puolelle tietä kävelemään.
 
 ### Vaikka sinun koirasi osaisikin ohittaa
 
