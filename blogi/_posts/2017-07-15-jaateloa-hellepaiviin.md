@@ -86,7 +86,7 @@ Koirat eivät ole kasvissyöjiä, vaikka ne mielellään kasviksia syövätkin. 
 
 Koiralle tehtävän jäätelön ei tarvitse olla monimutkaista. Itse suosin nimenomaan yksinkertaisuutta, eli laitan lihan lisäksi vaikkapa vain yhtä vihannesta, mitä milloinkin sattuu olemaan. Miki arvostaa kaikkea ruokaa niin paljon, että se kyllä söisi vaikka kilon kurkkua tai salaattia kerralla, jos joku vaan antaisi :D Lisää koiran ruokamotivaatiosta voit lukea [täältä](/blogi/kun-koira-ei-motivoidu-ruokapalkasta/).
 
-Mikin ruuille on varattu oma kattila ja kattilaksi on valittu sellainen, jossa voi käyttää sauvasekoitinta. Helpoiten jäätelösoseen valmistaa niin, että kypsentää lihan sekä kasvikset tai riisin samassa kattilassa, jossa ne voi sitten myös soseuttaa.
+Mikin ruuille on varattu oma kattila ja kattilaksi on valittu sellainen, jossa voi käyttää sauvasekoitinta. Helpoiten jäätelösoseen valmistaa niin, että kypsentää lihan sekä kasvikset samassa kattilassa, jossa ne voi sitten myös soseuttaa.
 
 Liha voi yhtä hyvin olla joko tuoretta tai pakastettua. Lemmikkiliikkeissä myytävät pakastetut lihapötköt ovat tässä käteviä, koska ainakin meillä on pakastimessa niitä varalla aina muutamia:
 
