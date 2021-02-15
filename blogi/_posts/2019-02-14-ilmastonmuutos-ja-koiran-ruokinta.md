@@ -33,15 +33,21 @@ Punainen liha (mm. nauta, sika, lammas, vuohi) ja juusto kiihdyttävät ilmaston
 
 Tutkijoiden mukaan kalat loppuvat meristä nykyisillä kalastusmäärillä vuonna 2048, joten kalan syöminen pitäisi lopettaa kokonaan. Moni ei tule myöskään ajatelleeksi sitä, että kalat syövät toisia kaloja ravinnokseen. Kala on (koostaan riippumatta) syönyt elämänsä aikana noin viisi kertaa oman painonsa verran kalaa, joten syömällä yhden kalan, merestä käytännössä häviää kaloja kuusinkertainen määrä. Jos kalat loppuvat, niin merien ekosysteemit todennäköisesti kuolevat.
 
-Punainen liha (nauta) nopeuttaa ilmastonmuutosta monella tavalla. Nautaeläin itsessään tuottaa kasvihuonekaasuja ja yksi lehmä tuottaa vuodessa enemmän kasvihuonekaasuja, kuin tavallinen bensiinikäyttöinen henkilöauto. Naudat tarvitsevat paljon laidunmaata, jonka vuoksi maailmasta kaadetaan metsää kiihtyvällä vauhdilla. Metsät sitovat itseensä kasvihuonekaasuja, ja kun metsät poltetaan laidunmaan alta pois, niin kaikki metsän sitomat kasvihuonekaasut vapautuvat ilmakehään. Lihankasvatus vie tällä puolet koko maapallon maapinta-alasta ja määrä kasvaa koko ajan. Nautojen lanta rehevöittää myös vesistöjä, joka sekin edesauttaa ilmastonmuutosta.
+Punainen liha (nauta) nopeuttaa ilmastonmuutosta monella tavalla. Nautaeläin itsessään tuottaa kasvihuonekaasuja ja yksi lehmä tuottaa vuodessa enemmän kasvihuonekaasuja, kuin tavallinen bensiinikäyttöinen henkilöauto. Naudat tarvitsevat paljon laidunmaata, jonka vuoksi maailmasta kaadetaan metsää kiihtyvällä vauhdilla. Metsät sitovat itseensä kasvihuonekaasuja, ja kun metsät poltetaan laidunmaan tieltä pois, niin kaikki metsän sitomat kasvihuonekaasut vapautuvat ilmakehään. Lihankasvatus vie tällä puolet koko maapallon maapinta-alasta ja määrä kasvaa koko ajan. Nautojen lanta rehevöittää myös vesistöjä, joka sekin edesauttaa ilmastonmuutosta.
 
-Suomalainen saattaa helposti ajatella, että kun ostaa kotimaista lihaa, niin ei tuhoa sademetsiä - väärin. Valitettavasti noin 85% suomalaisten eläinten rehusta on peräisin juuri niiltä alueilta, joissa sademetsät on tuhottu ja muutettu laidunmaaksi ja pelloiksi.
+Suomalainen saattaa helposti ajatella, että kun ostaa kotimaista lihaa, niin ei tuhoa sademetsiä - väärin. Valitettavasti noin 85% suomalaisten eläinten rehusta on peräisin juuri niiltä alueilta, joissa sademetsät on tuhottu ja muutettu laidunmaaksi ja pelloiksi eläinrehun kasvatusta varten.
 
 Maailmalla koetaan nälänhätää sekä pulaa juomavedestä. Lihan ja maidontuotanto käyttää koko maailman käyttökelpoisesta juomavedestä kolmasosan. Yhden naudanlihakilon tuottaminen vaatii yli 15000 litraa vettä ja noin 10-15 kiloa sellaista kasviperäistä ravintoa, jonka ihminenkin voisi syödä (mm. soija ja viljat).
 
+Jos kasviravintoa ei kierrätettäisi eläinten kautta, muuttamalla sitä lihaksi, niin samalla määrällä kasviperäistä ravintoa ruokkisi 10-15 kertaisen määrän ihmisiä.
+
 ### Älä anna luomu merkinnän hämätä
 
-Moni meistä ajattelee luomun olevan puhdasta ja ekologista. Luomutuotteet eivät ole sen terveellisempiä, koska  mm. luomu merkityt tuholaistorjunta-aineet ovat myrkyllisempiä kuin keinotekoiset. Ja vaikka luomuruuan valmistukseen ei ole käytetty antibiootteja voi se käytännössä tarkoittaa sitä, että eläimiä pidetään ja teurastetaan sairaina. Valitettavasti tällaisia tapauksia on tullut ilmi useita, koska luomukarjaa ei saa lääkitä mm. antibiooteilla. Tosiasia on myös se, että luomulehmä tuottaa täsmälleen saman verran kasvihuonekaasuja, kuin "tavallinen" lehmä.
+Moni meistä ajattelee luomun olevan puhdasta ja ekologista. Luomutuotteet eivät ole sen terveellisempiä, koska  mm. luomu merkityt tuholaistorjunta-aineet ovat myrkyllisempiä kuin keinotekoiset.
+
+Koska luomukarjan kasvatukseen ei ole käytetty antibiootteja, voi se käytännössä tarkoittaa sitä, että eläimiä pidetään ja teurastetaan sairaina. Valitettavasti tällaisia tapauksia on tullut ilmi useita, koska luomukarjaa ei saa lääkitä mm. antibiooteilla.
+
+Tosiasia on myös se, että luomulehmä tuottaa täsmälleen saman verran kasvihuonekaasuja, kuin "tavallinen" lehmä.
 
 ### Mitä jokainen meistä sitten voisi tehdä?
 
@@ -53,7 +59,7 @@ Riisin viljely tuottaa myös melkein yhtä paljon kasvihuonepäästöjä, kuin p
 
 Ennen aina pakastin Mikille Kongit niin, että laitoin noin puolet lihaapateeta ja puolet maustamatonta jugurttia. Nykyään olen vaihtanut tuon jugurtin vihannessoseeseen ja naudanlihapateen kalkkunan lihaan.
 
-Samalla kun tekee ruokaa itselleen, voi loput kasviksista keittää ja soseuttaa lihan kaveriksi Kongiin. Ja koska Mikin ruoka joka tapauksessa tuottaa paljon kasvihuonepäästöjä, niin kompensoimme sitä niin, että syömme itse vegaanista ruokaa.
+Samalla kun tekee ruokaa itselleen, voi loput kasviksista keittää ja soseuttaa kanan tai kalkkunan kaveriksi Kongiin. Ja koska Mikin ruoka joka tapauksessa tuottaa paljon kasvihuonepäästöjä, niin kompensoimme sitä niin, että syömme itse vegaanista ruokaa.
 
 Useimmat koirat pitävät kasviksista ja joistakin hedelmistä. Miki rakastaa keitettyä porkkanaa, keitettyä bataattia, keitettyä parsakaalia, keräkaalia sekä monia muita vihanneksia. Koska koirien ylipaino on myös suuri ongelma, kannattaa koiralle varata herkkupaloiksi keitettyjä kasviksia lihapalojen sijaan ainakin silloin tällöin.
 
