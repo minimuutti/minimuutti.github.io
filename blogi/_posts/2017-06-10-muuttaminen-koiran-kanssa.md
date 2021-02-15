@@ -19,11 +19,11 @@ Koiran stressiä voi helpottaa pienillä asioilla ja niiden suunnittelu kannatta
 
 Tämä oli Mikin ensimmäinen muutto. Tai jos rehellisiä ollaan, niin tämä oli sen toinen muutto – asuihan se elämänsä 8 ensimmäistä viikkoa kasvattajan luona.
 
-Tiesin, että pennulle on hyväksi, jos se saa synnyinkodistaan jotain tuttua ja turvallista mukaansa. Keskustelimme asiasta etukäteen kasvattajan kanssa ja hän kertoi antavansa jokaiselle pennulle mukaan palan peittoa, jonka päällä pennut yleensä nukkuivat ja jossa on sille tuttu ja turvallinen haju.
+Kun Miki muutti pentuna meille, niin tiesin, että pennulle on hyväksi, jos se saa synnyinkodistaan jotain tuttua ja turvallista mukaansa. Keskustelimme asiasta etukäteen kasvattajan kanssa ja hän kertoi antavansa jokaiselle pennulle mukaan palan peittoa, jonka päällä pennut yleensä nukkuivat ja jossa on sille tuttu ja turvallinen haju.
 
 Yllätyin suuresti, kun kasvattaja antoi palan peittoa mukaamme, mutta kertoi juuri pesseensä sen ennen leikkaamista, koska peitto oli ollut likainen. Voi ei. Kaikki se tuttu ja turvallinen haju oli nyt pesty peitosta pois, eikä se antanut Mikille yhtään lohtua, kun se kaipasi sisariaan ja vanhempiaan ensimmäisenä yönä uudessa kodissa.
 
-Päätin, että tällä kertaa yritän lievittää muuton aiheuttamaa stressiä mahdollisimman paljon ja yritän tehdä tämän kokemuksen Mikille mahdollisimman helpoksi. Myös siksi, että meillä on tiedossa jo uusi muutto puolen vuoden kuluttua.
+Päätin, että tällä kertaa kun muutamme, niin yritän lievittää Mikin stressiä mahdollisimman paljon ja yritän tehdä tämän kokemuksen Mikille mahdollisimman helpoksi. Myös siksi, että meillä on tiedossa jo uusi muutto puolen vuoden kuluttua.
 
 ### Stressiä, stressiä ja vielä lisää stressiä..
 
@@ -33,7 +33,7 @@ Kaiken tämän siivouksen keskellä pidimme kuitenkin vanhasta rutiinista kiinni
 
 ### Harjoittelu muuttoa varten
 
-Parasta olisi viedä koira muuttopäiviksi hoitoon tuttuun hoitopaikkaan. Meillä ei ole koskaan ollut mahdollista viedä Mikiä hoitoon, koska Miki on reaktiivinen ja myös erittäin voimakas, joten sen käytöksestä voisi aiheutua vaarallisia tilanteita kaikille osapuolille. Aloitimme harjoittelemaan kahta erilaista vaihtoehtoa muuttopäiväksi, koska en aluksi tiennyt kumpaan vaihtoehtoon päädyn.
+Parasta olisi viedä koira muuttopäiviksi hoitoon tuttuun hoitopaikkaan. Meillä ei ole koskaan ollut mahdollista viedä Mikiä hoitoon, koska Miki on reaktiivinen ja myös erittäin voimakas, joten sen käytöksestä voisi aiheutua vaarallisia tilanteita kaikille osapuolille osaamattomissa käsissä. Aloitimme harjoittelemaan kahta erilaista vaihtoehtoa muuttopäiväksi, koska en aluksi tiennyt kumpaan vaihtoehtoon päädyn.
 
 ##### Vaihtoehto 1: Miki on muuttopäivänä kokoajan mukana ja se on kytkettynä hihnaan, joka on kiinnitetty vyötärölleni
 
@@ -57,7 +57,7 @@ Harjoittelimme myös sitä, että toinen kanteli tavaroita ulos asunnosta ja pal
 
 ##### Vaihtoehto 2: Viemme Mikin muuttopäivänä päivähoitoon ja hoidamme muuton nopeasti, jotta saamme Mikin haettua pois ennen, kuin sen tarvitsee päästä ulos
 
-Aloimme harjoittelemaan päivää kylässä, ilman että olen itse paikalla. Miki vietti todella lyhyitä pätkiä hoitopaikassa, jossa annoin Mikille jäisen Kongin nuoltavaksi ja tulin takaisin, kun se oli ehtinyt vähän rauhoittua ja Kongissa oli vielä nuoltavaa jäljellä. Kylässäoloaikaa pidennettiin vähän kerrallaan.
+Aloimme harjoittelemaan päivää kylässä, ilman että olen itse paikalla. Miki vietti todella lyhyitä pätkiä hoitopaikassa, jossa annoin Mikille jäisen Kongin nuoltavaksi. Poistuin itse paikalta ja tulin takaisin, kun se oli ehtinyt rauhoittua ja Kongissa oli vielä nuoltavaa jäljellä. Kylässäoloaikaa pidennettiin vähän kerrallaan.
 
 Muista, ettei koiran jättäminen kuumaan autoon muuttopäiväksi ole vaihtoehto. Koira saa helposti lämpöhalvauksen ja se voi jopa kuolla siihen.
 
@@ -83,7 +83,7 @@ Uudet huonekalut voivat myös stressata koiraa, koska ne haisevat vieraalta. Jos
 
 Koiraa auttaa myös se, jos pystyt pitämään kiinni vanhasta rutiinista, eli se saa ruuan ja pääsee lenkeilleen aina samaan aikaan päivästä, paikasta riippumatta.
 
-Jos muutat työn vuoksi ja työaikasi muuttuvat muuton yhdeydessä, niin mieti olisiko mahdollista vaihtaa tähän uuteen rutiiniin jo vanhassa kodissa. Tällä tavalla muutos uuteen ei tulisi koiralle niin suurena yllätyksenä ja sen olisi helpompi mukautua tilanteeseen.
+Jos muutat työn vuoksi ja työaikasi muuttuvat muuton yhteydessä, niin mieti olisiko mahdollista vaihtaa tähän uuteen rutiiniin jo vanhassa kodissa. Tällä tavalla muutos uuteen ei tulisi koiralle niin suurena yllätyksenä ja sen olisi helpompi mukautua tilanteeseen.
 
 ### Uusia alkuja
 
@@ -91,13 +91,13 @@ Muutto on erinomainen mahdollisuus kouluttaa pois vanhoja mörköjä, koska uude
 
 Onneksi Mikin kanssa ei koskaan ole ollut mitään suurempia ongelmia. Meillä on satunnaisia ongelmia turkin kuivaamisen kanssa, muttei onneksi mitään vakavaa. Miki antaa kyllä kuivata eikä pyri karkuun, mutta sen vinkumisesta kyllä huomaa, ettei se pidä siitä. Itse päätin puuttua tähän kuivausmörköön nyt muuton yhteydessä, vaikka ongelma ei meillä ole mitenkään paha.
 
-Koska kylpyhuone on ainoa paikka missä läpimärkää koiraa voi kuivata, niin päädyin esittelemään uuden kylpyhuoneen Mikille uudessa valossa. Kun olin hakenut Mikin hoidosta, niin levitin Mikin ilta-aterian kylpyhuoneen lattialle, jotta Mikin ajatteli tämän uuden kylpyhuoneen olevan maailman paras paikka :)
+Koska kylpyhuone on ainoa paikka missä läpimärkää koiraa voi kuivata, niin päädyin esittelemään uuden kylpyhuoneen Mikille uudessa valossa. Kun Miki tuotiin uuteen asuntoon ensimmäistä kertaa, niin levitin Mikin ilta-aterian kylpyhuoneen lattialle, jotta Mikin ajatteli tämän uuden kylpyhuoneen olevan maailman paras paikka :)
 
 ### Eroahdistusta
 
 Mikillä on aina ollut jonkin verran eroahdistusta, mutta nyt muutettuamme huomasin sen taas voimistuvan.
 
-Vaikka yritin tehdä kaikkeni, että uusi koti olisi tuntunut Mikistä tutulta ja kivalta, niin valitettavasti on asioita, joihin en vaan voi vaikuttaa. Talossa, johon muutimme, asuu paljon muitakin koiria ja ensimmäisenä päivänä kuulimme useamman koiran haukkuvan, jopa keskellä yötä, ja Mikiä alkoi pelottamaan. Koska uusi ympäristö pelotti Mikiä, niin se reagoi erittäin voimakkaasti siihen, kun vain toinenkin meistä poistui asunnosta.
+Vaikka yritin tehdä kaikkeni, että uusi koti olisi tuntunut Mikistä tutulta ja kivalta, niin valitettavasti on asioita, joihin en vaan voi vaikuttaa. Talossa, johon muutimme, asui paljon muitakin koiria ja ensimmäisenä päivänä kuulimme useamman koiran haukkuvan, jopa keskellä yötä, ja Mikiä alkoi pelottamaan. Koska uusi ympäristö pelotti Mikiä, niin se reagoi erittäin voimakkaasti siihen, kun vain toinenkin meistä poistui asunnosta.
 
 Onneksi sekä minulla, että puolisollani on mahdollisuus tehdä töitä kotona. Jos sinulla on eroahdistuksesta kärsivä koira ja mahdollisuus etätyöskentelyyn, niin käytä sitä hyväksesi. Jos sinulla ei ole mahdollisuutta etätyöskentelyyn, niin mieti olisiko mahdollista ottaa muutama päivä vapaata.
 
