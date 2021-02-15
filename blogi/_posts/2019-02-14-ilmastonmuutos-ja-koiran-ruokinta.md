@@ -13,7 +13,7 @@ Maapallon ilmasto muuttuu nopeasti ja se on asia joka meidän tulisi huomioida m
 
 Vaikka useimmat koirat pitävät kasviksista, niin niiden elimistö on aikojen saatossa kuitenkin kehittynyt siten, että lyhyt ruuansulatusjärjestelmä auttaa pilkkomaan eläinproteiineja ja kasvikset sulavat niiden mahassa huonommin.
 
-Koirat tarvitsevat lihaa saadakseen kaikki tarpeelliset ravintoaineet ruuasta. Tänä päivänä myydään koirille tarkoitettuja vegaanisia ruokia, siis sellaisia, jotka sisältävät vain kasviperäisiä ainesosia. En usko, että koiran ruuansulatus kykenee ottamaan kasvisruuasta kaikki tarvitsemansa ravintoaineet, koska niiden ruuansulatusjärjestelmä on niin lyhyt.
+Koirat tarvitsevat lihaa saadakseen kaikki tarpeelliset ravintoaineet ruuasta. Tänä päivänä myydään koirille tarkoitettuja vegaanisia ruokia, siis sellaisia, jotka sisältävät vain kasviperäisiä ainesosia. En kuitenkaan usko, että koiran ruuansulatus kykenee ottamaan kasvisruuasta kaikki tarvitsemansa ravintoaineet, koska niiden ruuansulatusjärjestelmä on niin lyhyt.
 
 Toisin kuin koirilla ihmisillä ruuansulatusjärjestelmä on huomattavasti pidempi ja elimistömme saa siten kaikki tarvitsemamme ravintoaineet talteen myös täysin kasviperäisestä ruuasta.
 
@@ -21,13 +21,17 @@ Toisin kuin koirilla ihmisillä ruuansulatusjärjestelmä on huomattavasti pidem
 
 Maapallon ilmasto muuttuu kovaa vauhtia. Ilmastonmuutos aiheuttaa kaikkia ilmaston ääriolosuhteita, kuten kuumuutta, kylmyyttä, kuivuutta, rankkasateita, hirmumyrskyjä ja tulvia. Eläinlajien monimuotoisuus vähenee kun lajeja kuolee sukupuuttoon. Ihmisillä alkaa olla viime hetket vaikuttaa ilmastonmuutoksen etenemiseen niin, että se saataisiin vielä kääntymään takaisinpäin, ennen kuin on liian myöhäistä.
 
+Moni ei tiedä, että noin 70% maapallon hapesta on peräisin merestä, tarkemmin sanottuna meressä elävästä kasviplanktonista. Tutkijat ovat selvittäneet, että mikäli maapallon keskilämpötila nousisi vain 6 celsiusastetta, niin kasviplankton ei enää pystyisi tuottamaan happea. Vain noin 30% maapallon hapesta on peräisin maalla elävistä kasveista ja puista ja valitettavasti myös metsää kaadetaan kiihtyvällä vauhdilla.
+
+Mikäli ilmastonmuutosta ei saada pysäytettyä ajoissa, niin maapalloa kohtaa happikato. Sen seurauksena suurin osa eliöistä menehtyy, mukaanlukien ihmiset. Tutkijat ovat selvittäneet, jos ilmastonmuutosta ei saada pysäytettyä niin meren hapen tuotanto voi loppua kokonaan jo vuoteen 2100 mennessä.
+
 ### Valitsemamme ravinnon vaikutus ilmastonmuutokseen
 
 Lihan ja maitotuotteiden syöminen tuottaa yli viidenneksen kaikista maailman kasvihuonepäästöistä. Tämä on enemmän, kuin koko maailman liikenne (henkilöautot, kuorma-autot, rekat, lentokoneet, laivat, junat ym.) yhteensä.
 
 Punainen liha (mm. nauta, sika, lammas, vuohi) ja juusto kiihdyttävät ilmastonmuutosta nopeimmin. Siipikarjan liha (mm. kana ja kalkkuna) kiihdyttävät nekin ilmastonmuutosta, mutta vain noin neljänneksen siitä, mitä punainen liha ja juusto. Kala ei myöskään kiihdytä ilmastonmuutosta punaisen lihan lailla, mutta kalat ovat nykyään täynnä mikromuovia, joten en suosittele kalan syöttämistä koiralle (enkä myöskään ihmisille).
 
-Tutkijoiden mukaan kalat loppuvat meristä nykyisillä kalastusmäärillä vuonna 2048, joten kalan syöminen pitäisi lopettaa kokonaan. Moni ei tule myöskään ajatelleeksi sitä, että kalat syövät toisia kaloja ravinnokseen. Kala on (koostaan riippumatta) syönyt elämänsä aikana noin viisi kertaa oman painonsa verran kalaa, joten syömällä yhden kalan merestä käytännössä häviää kaloja kuusinkertainen määrä. Jos kalat loppuvat, niin merien ekosysteemit todennäköisesti kuolevat.
+Tutkijoiden mukaan kalat loppuvat meristä nykyisillä kalastusmäärillä vuonna 2048, joten kalan syöminen pitäisi lopettaa kokonaan. Moni ei tule myöskään ajatelleeksi sitä, että kalat syövät toisia kaloja ravinnokseen. Kala on (koostaan riippumatta) syönyt elämänsä aikana noin viisi kertaa oman painonsa verran kalaa, joten syömällä yhden kalan, merestä käytännössä häviää kaloja kuusinkertainen määrä. Jos kalat loppuvat, niin merien ekosysteemit todennäköisesti kuolevat.
 
 Punainen liha (nauta) nopeuttaa ilmastonmuutosta monella tavalla. Nautaeläin itsessään tuottaa kasvihuonekaasuja ja yksi lehmä tuottaa vuodessa enemmän kasvihuonekaasuja, kuin tavallinen bensiinikäyttöinen henkilöauto. Naudat tarvitsevat paljon laidunmaata, jonka vuoksi maailmasta kaadetaan metsää kiihtyvällä vauhdilla. Metsät sitovat itseensä kasvihuonekaasuja, ja kun metsät poltetaan laidunmaan alta pois, niin kaikki metsän sitomat kasvihuonekaasut vapautuvat ilmakehään. Lihankasvatus vie tällä puolet koko maapallon maapinta-alasta ja määrä kasvaa koko ajan. Nautojen lanta rehevöittää myös vesistöjä, joka sekin edesauttaa ilmastonmuutosta.
 
