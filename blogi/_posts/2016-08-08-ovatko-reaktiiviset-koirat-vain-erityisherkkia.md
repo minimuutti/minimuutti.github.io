@@ -29,7 +29,7 @@ Kun kävelytät reaktiivista koiraasi, niin koira on todennäköisesti talutushi
 
 Jos sinä et ymmärrä koirasi tarvetta päästä pois, niin ainoa asia mitä koiraraukka voi enää tehdä on yrittää karkottaa vastaantulijat keinolla millä hyvänsä - haukkumalla, näyttämällä hampaita, murisemalla, näykkimällä ilmaa ja hyökkäilemällä hihnassa. Tämä käytös on koiralle erittäin palkitsevaa, koska lopulta vastaantulijat ohittavat teidät ja menevät pois - juuri sitä mitä koirasi alunperin halusikin.
 
-Kun ymmärrät koiraasi, niin pystyt välttämään tilanteita, jotka ovat sille liian kuormittavia. Kannattaa myös etukäteen harjoitella tilanteesta poistumista koirasi kanssa. Kun tilanteesta poistuminen on harjoiteltua ja koiralle mieluisaa, niin vähitellen se alkaa stressaamaan vähemmän vastaantulevista koirista, koska se tietää että sinä ymmärrät sitä ja että sillä on näin ollen mahdollisuus päästä tilanteesta pois. Vähitellen koirasi alkaa katsoa sinua aina kun se huomaa toisen koiran, koska se jo odottaa kivaa poistumisleikkiä sekä palkitsemista :)
+Kun ymmärrät koiraasi, niin pystyt välttämään tilanteita, jotka ovat sille liian kuormittavia. Kannattaa myös etukäteen harjoitella tilanteesta poistumista koirasi kanssa. Kun tilanteesta poistuminen on harjoiteltua ja koiralle mieluisaa, niin vähitellen se alkaa stressaamaan vähemmän vastaantulijoita, koska se tietää että sinä ymmärrät sitä ja että sillä on näin ollen mahdollisuus päästä tilanteesta pois.
 
 Oman kokemukseni pohjalta voin kertoa, että syyt reaktiivisen koiran (huonoon) käytökseen - ihan kuin itsellänikin - löytyvät liian kuormittavasta ja liian paljon ärsykkeitä sisältävästä ympäristöstä.
 
