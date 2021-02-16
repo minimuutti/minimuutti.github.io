@@ -9,7 +9,7 @@ image:
 
 ##### Koirat kommunikoivat kehollaan ja energialla
 
-Koirat eivät kommunikoi ympäristönsä kanssa äänellä, kuten ihmiset vaan ne kommunikoivat pääasiassa kehonkielellä ja energialla. Sen lisäksi, että koirat kommunikoivat näin keskenään, niin ne käyttävät samaa kieltä myös ihmisten sekä muiden eläinten kanssa.
+Koirat eivät kommunikoi ympäristönsä kanssa äänellä samanlailla kuin ihmiset, vaan ne kommunikoivat pääasiassa kehonkielellä ja energialla. Sen lisäksi, että koirat kommunikoivat näin keskenään, niin ne käyttävät samaa kieltä myös ihmisten sekä muiden eläinten kanssa.
 
 Koirien kehonkieli on periaatteessa yksinkertainen, koska erilaisia eleitä ja liikkeitä on rajoitettu määrä. Siitä huolimatta se on ihmisille kuitenkin yleensä vaikeaa ymmärtää. Vaikka tietyt eleen, ilmeet ja liikkeet pääsääntöisesti tarkoittavatkin jotain tiettyä asiaa, niin koira voi käyttää niitä myös toisen osapuolen rauhoitteluun ns. sijaistoimintona tai siirtymäkäytöksenä. Koiraa lukiessa on aina katsottava kokonaisuutta sekä kontekstia, ei vain yksittäistä elettä.
 
@@ -17,13 +17,19 @@ Jotkin eleet jokaisen koiranomistajan on syytä tietää ja oppia huomaamaan sek
 
 ##### Rauhoittavat signaalit
 
-Tällaisia tärkeitä eleitä ovat ns. rauhoittavat signaalit. Koirat käyttävät rauhoittavia eleitä luodakseen välimatkaa. Ne käyttävät niitä silloin, kun ne kokevat jonkin tilanteen epämukavana, stressaavana tai haluavat estää jotakin tilannetta eskaloitumasta pahemmaksi. Näissä tilanteissa koira käyttää rauhoittavia eleitä rauhoitellakseen vastapuolta ja joskus myös rauhoitellakseen itseään.
+Tällaisia tärkeitä eleitä ovat ns. rauhoittavat signaalit. Koirat käyttävät rauhoittavia eleitä luodakseen välimatkaa toisiin. Ne käyttävät niitä silloin, kun ne kokevat jonkin tilanteen epämukavana, stressaavana tai haluavat estää jotakin tilannetta eskaloitumasta pahemmaksi. Näissä tilanteissa koira käyttää rauhoittavia eleitä rauhoitellakseen vastapuolta ja joskus myös rauhoitellakseen itseään.
 
-Koirat syntyvät rauhaa rakastavina ja nämä rauhoittavat eleet tulevat niille jo perimän mukana. Koirat pyrkivät aina ensisijaisesti rauhoittamaan tilanteen ja välttämään mahdollisen konfliktin. Tämän vuoksi on erittäin tärkeää osata lukea nämä eleet sekä omasta koirasta että toisesta koirasta. Jos jompi kumpi koirista näyttää tällaisia eleitä, eikä vastapuoli reagoi niihin, niin ihmisen on tällöin puututtava tilanteeseen ennen tilanteen eskaloitumista. Vaikka kaikki koirat osaavat näyttää näitä rauhottavia eleitä niin valitettavasti kaikki koirat eivät osaa lukea niitä. Tai sitten voi olla että koiraa on kasvatettu kovalla kädellä ja se on saanut koiran ymmärtämään näitä eleitä väärin tai se on saanut koiran passivoitumaan. Lisäksi esim. reaktiivisilla koirilla tuo ylireagointi menee yleensä loogisen ratkaisun edelle aivoihin tulevan adrenaliinipiikin vuoksi, eikä koira tällöin yksinkertaisesti enää kykene huomioimaan vastapuolen rauhoittavia eleitä.
+Koirat syntyvät rauhaa rakastavina ja nämä rauhoittavat eleet tulevat niille jo perimän mukana. Koirat pyrkivät aina ensisijaisesti rauhoittamaan tilanteen ja välttämään mahdollisen konfliktin. Tämän vuoksi on erittäin tärkeää osata lukea nämä eleet sekä omasta koirasta että toisesta koirasta. Jos jompi kumpi koirista näyttää tällaisia eleitä, eikä vastapuoli reagoi niihin, niin ihmisen on tällöin puututtava tilanteeseen ennen tilanteen eskaloitumista.
+
+Vaikka kaikki koirat osaavat näyttää näitä rauhottavia eleitä niin valitettavasti kaikki koirat eivät osaa lukea niitä. Tai sitten voi olla että koiraa on kasvatettu kovalla kädellä ja se on saanut koiran ymmärtämään näitä eleitä väärin tai se on saanut koiran passivoitumaan. Lisäksi esim. reaktiivisilla koirilla ylireagointi menee yleensä loogisen ratkaisun edelle aivoihin tulevan adrenaliinipiikin vuoksi, eikä koira tällöin yksinkertaisesti enää kykene huomioimaan vastapuolen rauhoittavia eleitä.
 
 ##### Koira ei pure varoittamatta
 
-Koirien kehonkielen perusasiat kannattaa opetella oman perheen ja koiran sekä muiden turvallisuuden vuoksi. Koira ei koskaan pure ketään varoittamatta. Ennen kuin koira puree niin se on todennäköisesti tarjonnut useita rauhottavia signaaleita ja todennut ettei vastapuoli ymmärrä niitä, jolloin sen on ollut pakko puolustaa itseään. Kun koirasi leikkii toisen koiran kanssa niin katsele tilannetta – jos jompikumpi näyttää näitä eleitä eikä toinen koira ymmärrä niin leikkiin on puututtava ennen kuin tilanne eskaloituu ja koira joutuu puolustamaan itseään. Sama asia jos lapsi leikkii koiran kanssa, silloin tulee olla erittäin valppaana, koska lapset tykkäävät koskettaa ja halata koiria.
+Koirien kehonkielen perusasiat kannattaa opetella oman perheen ja koiran, sekä muiden turvallisuuden vuoksi. Koira ei koskaan pure ketään varoittamatta. Ennen kuin koira puree niin se on todennäköisesti tarjonnut useita rauhottavia signaaleita ja todennut ettei vastapuoli ymmärrä niitä, jolloin sen on ollut pakko puolustaa itseään.
+
+Kun koirasi leikkii toisen koiran kanssa niin katsele tilannetta. Jos jompikumpi näyttää näitä eleitä, eikä toinen koira ymmärrä niitä, niin leikkiin on puututtava ennen kuin tilanne eskaloituu ja koira joutuu puolustamaan itseään.
+
+Myös silloin, kun lapsi leikkii koiran kanssa, niin tulee olla erittäin valppaana. Lapset tykkäävät koskettaa ja halata koiria ja kaikki koirat eivät pidä siitä.
 
 ##### Perusteiden oppiminen
 
@@ -32,7 +38,7 @@ Itse aloitin koirien kehonkielen opiskelun juuri näistä rauhoittavista eleist�
 Alla on koottuna joitain kuvia Mikin näyttämistä rauhottavista eleistä. Koirien eleet vaihtelevat aina jonkin verran riippuen koiran rodusta ja koiran ulkonäöstä (esim. pystykorva vs. luppakorva), mutta rauhoittelevat signaalit ovat melko yhdenmukaisia.
 
 ##### Nenän tai huulen nopea nuolaiseminen, kielen vilautus
-Koirat nuolevat huuliaan silloinkin, kun niille tarjotaan ruokaa tai ne ovat juuri syöneet. Ruuan yhteydessä huulten nuoleminen on kuitenkin isoeleistä ja liike on hitaanlainen ja koiran suu on usein auki.
+Koirat nuolevat huuliaan silloinkin, kun niille tarjotaan ruokaa tai ne ovat juuri syöneet. Ruuan yhteydessä huulten nuoleminen on isoeleistä, liike on hitaanlainen ja koiran suu on auki.
 
 Näissä kuvissa Miki odottaa, että annan namin sille.
 
@@ -40,7 +46,7 @@ Näissä kuvissa Miki odottaa, että annan namin sille.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC26703-800px.jpg)
 
-Silloin taas kun kyse on rauhoittavasta eleestä, koiran suu on useimmiten kiinni ja kieli vilahtaa nopeasti nenään tai huuleen. Yleensä myös koiran koko keho näyttää jännittyneeltä.
+Kun kyse on rauhoittavasta eleestä, koiran suu on kiinni ja kieli vilahtaa nopeasti nenään tai huuleen. Yleensä myös koiran koko keho näyttää jännittyneeltä.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_2092_-800px.jpg)
 
@@ -56,7 +62,7 @@ Tässä kuvassa ihminen on tullut Mikin henkilökohtaiseen tilaan, eli liian lä
 ##### Turkin ravistelu
 Koira ravistaa turkkiaan kuin se yrittäisi kuivata sitä. Jos koira on kuiva ja se ravistelee, niin kyse on rauhoittavasta eleestä.
 
-Tässä kuvassa Miki ei pitänyt ollenkaan siitä, että sitä yritettiin halata rapsuttelun aikana, joten se ravisteli turkkiaan. Kuvassa näkyy myös kun Miki nostaa toista etutassua.
+Tässä kuvassa Miki ei pitänyt ollenkaan siitä, että sitä yritettiin halata rapsuttelun aikana, joten se ravisteli turkkiaan. Kuvassa näkyy myös kun Miki nostaa hienovaraisesti vasenta etutassua.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG25013-800px.jpg)
 
@@ -103,7 +109,7 @@ Näissä kuvissa Miki haukottelee todennäköisesti väsymyksen vuoksi, koska se
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC26802-800px.jpg)
 
 ##### Pään kääntäminen poispäin ja koirien kohtaaminen
-Tämä on koirien rauhoittavista eleistä varmaan yleisin ja koirat tekevät tätä koko ajan. Kohteliaat koirat eivät koskaan katso toisiaan suoraan silmiin eivätkä samasta syystä koskaan kävele suoraan toisiaan vastaan. Jos koira katsoo toista koiraa suoraan silmiin tai kävelee suoraan kohti, niin kyse on vartioinnista, varoituksesta tai haastamisesta. Koska koirat kokevat pelkän suoran katseenkin toiselta koiralta haasteena tappeluun, niin kuvittele miltä koirista tuntuu, kun olette koirasi kanssa juoksulenkillä ja juoksette suoraan toista koiraa vastaan. Juoksevalla koiralla energia on korkealla muutenkin tuon aktiviteetin vuoksi ja katse toiseen koiraan tässä tilassa on suora haaste tappeluun. Koiran omistajien pitäisi erityisesti huomioida tämä, kun käyvät juoksulenkeillä koiransa kanssa. Miltä sinusta itsestäsi tuntuisi, jos joku juoksisi puukko kädessä sinua kohti? Koirat eivät lähtökohtaisesti halua haastaa ketään tappelemaan vaan ne pyrkivät rauhaan. Koirat lähestyvät toisiaan vapaana ollessaan aina kaaressa, jolloin katseet eivät suoraan kohtaa.
+Tämä on koirien rauhoittavista eleistä varmaan yleisin ja koirat tekevät tätä koko ajan. Kohteliaat koirat eivät koskaan katso toisiaan suoraan silmiin eivätkä samasta syystä koskaan kävele suoraan toisiaan vastaan. Jos koira katsoo toista koiraa suoraan silmiin tai kävelee suoraan kohti, niin kyse on vartioinnista, varoituksesta tai haastamisesta. Koska koirat kokevat pelkän suoran katseenkin toiselta koiralta haasteena tappeluun, niin kuvittele miltä koirista tuntuu, kun olette koirasi kanssa juoksulenkillä ja juoksette suoraan toista koiraa vastaan. Juoksevalla koiralla energia on korkealla muutenkin tuon aktiviteetin vuoksi ja katse toiseen koiraan tässä tilassa on suora haaste tappeluun. Koiran omistajien pitäisi erityisesti huomioida tämä, kun käyvät juoksulenkeillä koiransa kanssa. Miltä sinusta itsestäsi tuntuisi, jos joku juoksisi puukko kädessä sinua kohti? Koirat eivät lähtökohtaisesti halua haastaa ketään tappelemaan vaan ne pyrkivät rauhaan. Koirat lähestyvät toisiaan vapaana ollessaan aina kaaraen, jolloin katseet eivät suoraan kohtaa.
 
 ##### Alla on useampi kuvasarja, jossa Miki näyttää useita rauhoittavia signaaleita.
 
@@ -139,7 +145,7 @@ Ensin Miki käänsi katseensa/päänsä poispäin
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG25932-800px.jpg)
 
-Miki vilkaisee minua kääntämättä päätään.
+Miki vilkaisee minua kääntämättä päätään takaisin minua kohti.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG25933-800px.jpg)
 

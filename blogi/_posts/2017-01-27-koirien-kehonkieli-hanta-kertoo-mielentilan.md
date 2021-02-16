@@ -19,7 +19,7 @@ Tässä postissa tarkastellaan kolmea asiaa: hännän suhteellista korkeutta sek
 
 ## Hännän korkeus
 
-Hännän korkeutta katsottaessa eri rotuisia koiria ei voi verrata keskenään, koska eri rotuisilla koirilla hännän luonnollinen asento vaihtelee. Sen sijaan on aina katsottava onko koiran häntä rodun luonnollista hännänasentoa pystymmässä tai alempana.
+Hännän korkeutta katsottaessa eri rotuisia koiria ei voi verrata keskenään, koska eri rotuisilla koirilla hännän luonnollinen korkeus vaihtelee. Sen sijaan on aina katsottava onko koiran häntä rodulle ominaista hännänasentoa pystymmässä tai alempana.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/hannat1-800px.jpg)
 
@@ -27,7 +27,7 @@ Hännän korkeutta katsottaessa eri rotuisia koiria ei voi verrata keskenään, 
 
 Jokaisella koiralla on neutraali, luonnollinen hännän asento. Esimerkiksi kippurahäntäisillä koirilla häntä lepää selän päällä kippurassa ja vastakohtana vinttikoirien häntä on luonnollisessa asennossa, kun se roikkuu jalkojen välissä. Kun koiran häntä on sen luonnollisessa asennossa, niin koira on ystävällinen/iloinen ja sitä voi lähestyä.
 
-Ystävällinen ja rento häntä näyttää suunnilleen tältä, eli sen tyvi on enintään koiran selkälinjan korkeudella tai hieman alempana:
+Ystävällinen ja rento häntä näyttää suunnilleen tältä, eli hännän tyvi on enintään koiran selkälinjan korkeudella tai hieman alempana:
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/hannat3.jpg)
 
@@ -53,7 +53,7 @@ Tässä kuvassa Miki on vielä pentu. Mikillä on selvästikin kivaa, mutta se o
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG12790-800px.jpg)
 
-Tässä kuvassa Mikillä on häntä samalla lailla täysin pystyssä. Kuvasta kuitenkin selvästi erottaa Mikin huolestuneisuuden, sen suu on kiinni. Miki myös tuijottaa mahdollista uhkaa ja korvatkin on suunnattu samaan suuntaan. Miki on vieläpä noussut pystyyn, jotta se näkisi uhkan paremmin (ja ehkä myös tehdäkseen itsestään entistäkin isomman näköisen).
+Alla olevassa kuvassa Mikillä on häntä samalla lailla täysin pystyssä. Kuvasta kuitenkin selvästi erottaa Mikin huolestuneisuuden, sen suu on kiinni. Miki myös tuijottaa mahdollista uhkaa ja korvatkin on suunnattu samaan suuntaan. Miki on vieläpä noussut pystyyn, jotta se näkisi uhkan paremmin (ja ehkä myös tehdäkseen itsestään entistäkin isomman näköisen).
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG19092-800px.jpg)
 
@@ -159,7 +159,7 @@ Tässä Miki on vielä pentu ja se on erittäin iloinen lelusta, joka ei näy ku
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_2342-800px.jpg)
 
-Jos häntä heiluu hitaasti ja se (ja koko koira) näyttää jäykältä, niin koira käytännössä tällöin heiluttaa punaista lippua sanoen: älä tule lähemmäksi. Jos kuitenkin lähestyt sitä se saattaa näykkäistä korostaakseen asiaansa. Sama juttu, kun olet koirasi kanssa lenkillä, jos vastaantuleva koira heiluttaa punaista lippua niin sen lähelle ei kannata mennä, se saattaa näykkäistä koiraasi.
+Jos häntä heiluu hitaasti ja se (ja koko koira) näyttää jäykältä, niin koira käytännössä tällöin heiluttaa punaista lippua sanoen: älä tule lähemmäksi. Jos kuitenkin lähestyt sitä se saattaa näykkäistä korostaakseen asiaansa. Sama juttu, kun olet koirasi kanssa lenkillä, jos vastaantuleva koira heiluttaa punaista lippua niin sen lähelle ei kannata mennä, se saattaa näykkäistä sinua tai koiraasi.
 
 ### Älä osta hännätöntä koiraa
 
