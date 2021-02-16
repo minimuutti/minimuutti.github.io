@@ -51,8 +51,6 @@ It's the same thing with dog treats. Those small and soft bones that are so conv
 
 When Miki was a puppy we fed him the food his breeder had selected, which was Nutra Nuggets dry kibble. Miki was born hungry but he didn't eat this food. I looked at the ingredients list, and it begins like this: Chicken meal, corn... so the product contains a high percentage of corn, although the manufacturer advertises this food as premium. After we changed this food to other brand (Orijen) there hasn't been a single time that Miki haven't eaten every single kibble provided to him. At the time I'm writing this, Miki has been fed Orijen for almost four years continuously and he's ever so eager and grateful when he gets to have it.
 
-If you are interested to read more about the quality of dog foods, you should then read this study where they tested over 2200 brands of dog food: [www.reviews.com/dog-food](http://www.reviews.com/dog-food/) This study is very comprehensive and detailed. The study specifies all the good things about the foods and the things to avoid as well. They also explain why majority of the foods are ruled out. If you don't want to read the whole study the dog food top 10 is at the very beginning so you can easily check if you can find your dog's food there.
-
 I really do appreciate if you go and pick up your dog's food package and check out the ingredients.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS49076-800px.jpg)
