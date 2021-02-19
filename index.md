@@ -7,7 +7,7 @@ layout: default
 
 The site is also available in [**English**](/en/).
 
-Sivusto sisältää vinkkejä vilkkaiden koirien energian kuluttamiseksi. Kaikki sivustolta löytyvät ideat on testattu eläinkokein ;) ja testaajana on toiminut oma vilkas koirani Miki.
+Sivusto sisältää vinkkejä vilkkaiden koirien energian kuluttamiseksi. Kaikki sivustolta löytyvät ideat on testattu eläinkokein ;) ja testaajana on toiminut oma vilkas koirani Miki. Sivuston blogi osiosta löytyy myös koirien kouluttamiseen liittyviä artikkeleita.
 
 [**Aktivointi**](/aktivointi/) –kategoriasta löytyy paljon haistelu- ja älytehtäviä sekä erilaisia itsetehtyjä pelejä kuvallisine ohjeineen.
 
@@ -15,7 +15,7 @@ Sivusto sisältää vinkkejä vilkkaiden koirien energian kuluttamiseksi. Kaikki
 
 [**Temput**](/temput/) –kategoriassa on listattuna Mikin osaamat sekä opetteluvaiheessa olevat temput, jotta sinä saisit ideoita omalle koirallesi opetettavista tempuista.
 
-[**Blogista**](/blogi/) löytyy ajankohtaisia kirjoituksia sekä muita asioita, jotka haluan jakaa kanssanne.
+[**Blogista**](/blogi/) löytyy koirien kouluttamiseen liittyviä kirjoituksia sekä muita ajankohtaisia asioita, jotka haluan jakaa kanssanne.
 
 [**Info**](/info/) –linkin takaa löydät listan viimeksi lisätyistä posteista, yhteistyökumppaneiden linkit sekä yhteystiedot.
 
