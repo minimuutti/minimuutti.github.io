@@ -71,4 +71,4 @@ If you like to watch beautiful pictures of Finnish nature, check out the [Pictur
 
 The journey with Minimute has just begun!
 
-![](https://b2.minimuutti.com/file/minimuutti-com/muut/237-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/muut/2371-800px.jpg)
