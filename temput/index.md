@@ -6,9 +6,9 @@ layout: category
 
 Uusien temppujen opettelu vaatii koiralta aivotyötä ja se on yksi parhaimmista aktivointikeinoista. Temppuja on myös kiva esitellä vieraille. Itse koulutan mahdollisimman usein sheippaamalla, jotta Miki joutuu pähkäilemään, että mitäs tässä oikein on tarkoitus tehdä.
 
-Jos sinulla sattuu olemaan erityisherkkä ja energinen koira kuten Miki on, niin olet saattanut huomata että koirasi kierrokset nousevat taivaisiin heti, kun haet koulutusnameja tai otan klikkerin käteesi. Itse yritän aina aloittaa Mikin koulutustuokiot kun Miki on rauhallinen ja pyrin myös lopettamaan kouluttamisen ennen kuin sen kierrokset nousevat liikaa.
+Jos sinulla sattuu olemaan erityisherkkä ja energinen koira kuten Miki on, niin olet saattanut huomata että koirasi kierrokset nousevat taivaisiin heti, kun haet koulutusnameja tai otan naksuttimen käteesi. Itse yritän aina aloittaa Mikin koulutustuokiot silloin, kun Miki on rauhallinen ja pyrin myös lopettamaan kouluttamisen ennen, kuin sen kierrokset nousevat liikaa.
 
-Olen huomannut, että myös puhuminen nostaa Mikin kierroksia. Vasta viime aikoina olen ymmärtänyt kouluttaa uusia temppuja Mikille pelkällä käsimerkillä sanallisen vihjeen sijaan ja yllättäen Miki oppii uusia temppuja entistä nopeammin koska sen kierrokset eivät nouse läheskään yhtä paljon.
+Olen huomannut, että myös puhuminen nostaa Mikin kierroksia. Vasta viime aikoina olen ymmärtänyt kouluttaa uusia temppuja Mikille pelkällä käsimerkillä sanallisen vihjeen sijaan ja yllättäen Miki oppii uusia temppuja entistä nopeammin, koska sen kierrokset eivät nouse läheskään yhtä paljon.
 
 Tässä on muutamia hyviä linkkejä, mistä saa ideoita ja vinkkejä temppujen kouluttamiseen:
 
@@ -16,15 +16,13 @@ Tässä on muutamia hyviä linkkejä, mistä saa ideoita ja vinkkejä temppujen 
 * [https://www.youtube.com/user/kikopup/videos](https://www.youtube.com/user/kikopup/videos "Youtube/kikopup")
 * [https://www.youtube.com/user/tab289/videos](https://www.youtube.com/user/tab289/videos "Youtube/tab289")
 
-Miki osaa tällä hetkellä tehdä yli 70 toimintoa tai temppua vihjeestä ja joitain uusia on myös työn alla.
+Miki osaa tällä hetkellä tehdä yli 70 toimintoa tai temppua ja joitain uusia on myös työn alla.
 
 Tosin Miki on mestari ymmärtämään ihmisten puhetta, joten kuka tietää paljonko sanoja ja vihjeitä se todellisuudessa ymmärtää.
 
-Viimeksi kun kävimme eläinlääkärissä, meitä palveli uusi lääkäri, joka ei ennen ollut tavannut Mikiä. Olimme viettäneet eläinlääkärissä aikaa viitisen minuuttia, kun eläinlääkäri jo totesi meille, että teidän koira ymmärtää puhetta vähän liian hyvin.
+Viimeksi kun kävimme eläinlääkärissä, meitä palveli uusi lääkäri, joka ei ennen ollut tavannut Mikiä. Olimme viettäneet eläinlääkärissä aikaa viitisen minuuttia, kun eläinlääkäri jo totesi meille, että teidän koira ymmärtää puhetta vähän liian hyvin.Totta. 
 
-Totta. Meiltä meinaa loppua suomen- ja englanninkielenkin sanasto jo kesken, kun yritämme keksiä kiertoilmauksia asioille, jotta Miki ei tietäisi mistä puhumme. Toisaalta on hämmästyttävän hienoa huomata kuinka älykäs Miki on, paitsi silloin, kun olemme lähdössä eläinlääkäriin tai vaikka kylään.
-
-Olen myös laittanut tänne sellaisia temppuja, joiden opettamista Mikille ei vielä ole aloitettu. Laitoin ne tänne siksi, jotta sinä saisit vinkkejä koirallesi opetettavista tempuista.
+Meiltä meinaa loppua suomen- ja englanninkielenkin sanasto jo kesken, kun yritämme keksiä kiertoilmauksia asioille, jotta Miki ei tietäisi mistä puhumme. On hämmästyttävän hienoa huomata, kuinka älykäs Miki on, paitsi silloin, kun olemme lähdössä eläinlääkäriin.
 
 Mikäli kaipaat vielä enemmän haasteita temppujen opettamiseen, niin kannattaa vilkaista [tästä viestiketjusta](http://www.petsie.fi/forums/1371-temppuja-koirille/page/8)
 Röllin osaamat yli 200 temppua. Näistä varmasti löytynee jotain, mitä koirallesi ei vielä ole opetettu.

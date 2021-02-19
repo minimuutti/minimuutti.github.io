@@ -16,8 +16,6 @@ Miki is highly sensitive and he's also very sensitive to all kind of sounds incl
 
 Miki knows over 70 cues and tricks and he is currently learning some new ones as well.
 
-Miki is a master in understanding human language, so who knows how many cues and words he really knows. Last time we visited our vet clinic Miki was treated by new vet. After about five minutes she pointed out that Miki understands verbal language a bit too well.
+Miki is a master in understanding human language, so who knows how many cues and words he really knows. Last time we visited our vet clinic, Miki was treated by a new vet. After about five minutes she pointed out that Miki understands verbal language a bit too well. True.
 
-True. We are literally almost out of words and expressions as we try not to say the words Miki understands in certain situations. On the other hand it's quite amazing how much he can understand, but not when we are at the vet.
-
-Here are also some of the tricks that I will teach to Miki in the future.
+We are literally almost out of words and expressions as we try not to say the words Miki understands in certain situations. It's quite amazing, how much he can understand, but not when we are visiting the vet.
