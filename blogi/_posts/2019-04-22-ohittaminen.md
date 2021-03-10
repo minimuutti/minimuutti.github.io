@@ -124,7 +124,7 @@ Miki opetettiin ohittamaan muita koiria juuri näin, eli se palkittiin aina, kun
 
 Muista kuitenkin, että tällainen mielikuvan muuttaminen onnistuu vain, kun olette muista koirista tarpeeksi kaukana. Niin, että koirasi näkee toisen koiran, mutta se on niin kaukana, ettei koiraasi pelota.
 
-Ole tarkkana myös siinä, ettet vahingossa vahvista huonoa käytöstä. Joskus asiat vain menevät pieleen, mutta älä kuitenkaan rankaise koiraasi. Älä myöskään palkitse sitä. Parasta on vain jatkaa matkaa.
+Ole tarkkana myös siinä, ettet vahingossa vahvista huonoa käytöstä. Joskus asiat vain menevät pieleen, mutta älä kuitenkaan rankaise koiraasi. Älä myöskään palkitse äläkä sääli sitä. Parasta on vain jatkaa matkaa.
 
 Positiivista suhtautumista vastaantulijoihin lisää myös se, että omistaja huomioi koiransa kehonkielen. Jos koira näyttää mitään epävarmuuden merkkejä, niin kuuntele koiraasi ja päästä se pois tukalasta tilanteesta väistämällä sivuun niin, että ohitatte toisen koiran kauempaa. Koirasi alkaa pikkuhiljaa ymmärtämään, että omistaja ymmärtää sen ahdinkoa ja koira alkaa näin luottaa omistajaansa enemmän, kun se tietää tukalista tilanteista pääsee pois muutenkin kuin räyhäämällä.
 

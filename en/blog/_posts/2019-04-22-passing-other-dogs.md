@@ -122,7 +122,7 @@ You can modify your dog's association towards other dogs to be more positive. Yo
 
 Every time you see other dogs on your walks, give your dog some treats or toys or what ever he prefers if he stays calm. The only way to success is to be far enough - your dog is able to see the other dog but he's so far away that he isn't scared at all.
 
-Sometimes things go south, but don't punish your dog. Don't reward him either. Just move on.
+Sometimes things go south, but don't punish your dog. Don't reward or pity him either. Just move on.
 
 Pay attention to your dog's body language. When your dog realizes that you understand when he tell's you he's uncomfortable, he will trust you more. Because now you notice when he's uncomfortable and can lead him out of the situation so your dog doesn't have to attack. Now he learns that there are other ways to get out scary situations.
 
