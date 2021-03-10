@@ -59,9 +59,7 @@ Olen erityisherkkä ihminen. Se tarkoittaa eimerkiksi sitä, että huomaan KAIKE
 
 Minulla on myös erittäin vahva intuitio, joka tarkoittaa sitä, että usein *tiedän* miten joku asia on tai miten se kannattaa tehdä, vaikka kukaan ei ole sitä minulle opettanut. Olen mm. usein koulutus- tai ohitustilanteissa käyttäytynyt Mikin kanssa jollain tietyllä tavalla ja sitten tulen myöhemmin lukeneeksi vaikkapa jonkun ammattikouluttajan kirjoituksen tai jonkin yliopiston tutkimuksen aiheesta, jonka mukaan juuri se minun käyttämäni tapa on ollut se kaikista paras tai tehokkain. 
 
-Uskon, (*tiedän*) että erityisherkkyyttä esiintyy myös eläimillä. Näen Mikin erittäin herkkänä olentona, joka näkyy ulospäin niin, että Miki reagoi asioihin hyvin voimakkaasti. Oman kokemukseni perusteella reaktiivisen koiran (huonon) käytöksen syyt löytyvät – samoin kuin minulla itselläni – liian kuormittavasta ympäristöstä. Esimerkiksi itse voin hyvin keskustella yhden ihmisen kanssa pitkäänkin väsymättä kovinkaan paljoa. Mutta keskustellessani yhtä aikaa useamman ihmisen kanssa, väsyn hetkessä informaatiotulvan vuoksi ja tunnen hukkuvani siihen.
-
-Miki käyttäytyy aivan samalla tavalla. Muutama ensimmäinen lenkillä vastaan tuleva koira ei aiheuta sen kummempia reaktioita. Kun Mikin mitta tulee täyteen, eli lenkillä on tullut vastaan tarpeeksi monta koiraa tai yksi kiihtynyt koira, niin tämän jälkeen yhdenkään koiran ohitus ei enää onnistu kunnialla. Siinä vaiheessa ei ole enää väliä onko vastaantuleva koira ystävällinen vai ei, vaan jokainen vastaantuleva koira saa Mikin ”vihat” niskoilleen. (Näin käy onneksi enää hyvin harvoin.)
+Uskon, (*tiedän*) että erityisherkkyyttä esiintyy myös eläimillä. Näen Mikin erittäin herkkänä olentona, joka näkyy ulospäin niin, että Miki reagoi asioihin hyvin voimakkaasti. Oman kokemukseni perusteella reaktiivisen koiran (huonon) käytöksen syyt löytyvät – samoin kuin minulla itselläni – liian kuormittavasta ympäristöstä.
 
 Nykyään kun huomaan Mikin mitan olevan täyttymässä, otan taskusta keltaisen huivin, jonka kiinnitän Mikin hihnaan tiedoksi vastaantuleville koiranulkoiluttajille. Voit lukea lisää keltaisen huivin käytöstä [täältä](https://minimuutti.com/blogi/annathan-tilaa-keltaista-huivia-kayttavalle-koiralle/).
 
@@ -74,8 +72,6 @@ Kun vaihdoimme viikottaiset juoksulenkit päivittäiseen aktivointiin, niin Miki
 Sain idean tähän sivustoon siitä, kun en netistä löytänyt aktivointivinkkejä koottuna oikeastaan mistään. Monilla sivustoilla on lueteltu vain muutamia aktivointikeinoja tai temppuja mitä koiralle voi opettaa ja lopussa lukee melkeinpä ironisesti: "vain mielikuvitus on rajana". 
 
 Toivottavasti viihdyt Minimuutin matkassa ja tämä sivusto antaa sinulle vinkkejä reaktiivisen ja/tai energisen koirasi suhteen ja helpottaa sinun sekä koirasi arkea.
-
-Mikäli pidät suomalaisista luontokuvista, niin kannattaa käydä katsomassa myös [Luontokuvat](/valokuvaus/luontokuvat/) -osio.
 
 Minimuutin matkassa mennään ja lujaa mennäänkin!
 

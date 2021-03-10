@@ -11,25 +11,45 @@ image:
 
 Koirat eivät kommunikoi ympäristönsä kanssa äänellä samanlailla kuin ihmiset, vaan ne kommunikoivat pääasiassa kehonkielellä ja energialla. Sen lisäksi, että koirat kommunikoivat näin keskenään, niin ne käyttävät samaa kieltä myös ihmisten sekä muiden eläinten kanssa.
 
-Koirien kehonkieli on periaatteessa yksinkertainen, koska erilaisia eleitä ja liikkeitä on rajoitettu määrä. Siitä huolimatta se on ihmisille kuitenkin yleensä vaikeaa ymmärtää. Vaikka tietyt eleen, ilmeet ja liikkeet pääsääntöisesti tarkoittavatkin jotain tiettyä asiaa, niin koira voi käyttää niitä myös toisen osapuolen rauhoitteluun ns. sijaistoimintona tai siirtymäkäytöksenä. Koiraa lukiessa on aina katsottava kokonaisuutta sekä kontekstia, ei vain yksittäistä elettä.
+Koirien kehonkieli on periaatteessa yksinkertainen, koska erilaisia eleitä ja liikkeitä on rajoitettu määrä. Siitä huolimatta se on ihmisille kuitenkin yleensä vaikeaa ymmärtää. Vaikka tietyt eleet, ilmeet ja liikkeet pääsääntöisesti tarkoittavatkin jotain tiettyä asiaa, niin koiraa lukiessa on aina katsottava kokonaisuutta sekä kontekstia, ei vain yksittäistä elettä.
 
-Jotkin eleet jokaisen koiranomistajan on syytä tietää ja oppia huomaamaan sekä omasta koirastaan että niistä koirista, joiden kanssa oma koira on tekemisissä.
+Jotkin eleet jokaisen koiranomistajan on syytä tietää ja oppia huomaamaan sekä omasta koirastaan, että muista koirista, joiden kanssa oma koira on tekemisissä.
 
 ##### Rauhoittavat signaalit
 
-Tällaisia tärkeitä eleitä ovat ns. rauhoittavat signaalit. Koirat käyttävät rauhoittavia eleitä luodakseen välimatkaa toisiin. Ne käyttävät niitä silloin, kun ne kokevat jonkin tilanteen epämukavana, stressaavana tai haluavat estää jotakin tilannetta eskaloitumasta pahemmaksi. Näissä tilanteissa koira käyttää rauhoittavia eleitä rauhoitellakseen vastapuolta ja joskus myös rauhoitellakseen itseään.
+Tällaisia tärkeitä eleitä ovat rauhoittavat signaalit. Koirat näyttävät tällaisia eleitä, kun ne ovat stressaantuneita tai niillä on epämukava olo ja käyttävät niitä luodakseen välimatkaa toisiin. Koirat haluavat  myös estää epämukavia tilanteita eskaloitumasta pahemmaksi ja käyttävät näissä tilanteissa rauhoittavia eleitä rauhoitellakseen vastapuolta ja luodakseen etäisyyttä.
 
-Koirat syntyvät rauhaa rakastavina ja nämä rauhoittavat eleet tulevat niille jo perimän mukana. Koirat pyrkivät aina ensisijaisesti rauhoittamaan tilanteen ja välttämään mahdollisen konfliktin. Tämän vuoksi on erittäin tärkeää osata lukea nämä eleet sekä omasta koirasta että toisesta koirasta. Jos jompi kumpi koirista näyttää tällaisia eleitä, eikä vastapuoli reagoi niihin, niin ihmisen on tällöin puututtava tilanteeseen ennen tilanteen eskaloitumista.
+Koirat syntyvät rauhaa rakastavina ja nämä rauhoittavat eleet tulevat niille jo perimän mukana. Koirat pyrkivät aina ensisijaisesti rauhoittamaan tilanteen ja välttämään mahdollisen konfliktin. Tämän vuoksi on erittäin tärkeää osata lukea nämä eleet sekä omasta koirasta, että muista koirista.
 
-Vaikka kaikki koirat osaavat näyttää näitä rauhottavia eleitä niin valitettavasti kaikki koirat eivät osaa lukea niitä. Tai sitten voi olla että koiraa on kasvatettu kovalla kädellä ja se on saanut koiran ymmärtämään näitä eleitä väärin tai se on saanut koiran passivoitumaan. Lisäksi esim. reaktiivisilla koirilla ylireagointi menee yleensä loogisen ratkaisun edelle aivoihin tulevan adrenaliinipiikin vuoksi, eikä koira tällöin yksinkertaisesti enää kykene huomioimaan vastapuolen rauhoittavia eleitä.
+Vaikka kaikki koirat osaavat näyttää näitä rauhottavia eleitä, niin valitettavasti kaikki koirat eivät osaa lukea niitä. Tai sitten voi olla että koiraa on kasvatettu kovalla kädellä ja se on saanut koiran ymmärtämään näitä eleitä väärin tai koiran rankaiseminen on saanut koiran passivoitumaan. Lisäksi herkillä ja reaktiivisilla koirilla ylireagointi menee yleensä loogisen ratkaisun edelle aivoihin tulevan adrenaliinipiikin vuoksi, eikä koira tällöin yksinkertaisesti enää kykene huomioimaan vastapuolen rauhoittavia eleitä.
+
+Jos koira näyttää tällaisia eleitä, eikä vastapuoli reagoi niihin, niin ihmisen on tällöin puututtava tilanteeseen ennen tilanteen eskaloitumista.
+
+Rauhoittavia sekä stressistä kertovia eleitä ovat esimerkiksi:
+
+- haukottelu
+- kielen vilauttaminen, eli huulen tai nenän nopea nuolaisu, jossa koiran suu pysyy kiinni
+- silmien siristäminen ja räpyttely
+- koiran silmien reunalta näkyy valkoinen osa, joka näyttää kuunsirpiltä
+- katseen kääntäminen poispäin
+- pään tai koko vartalon kääntäminen poispäin
+- etutassun nostaminen
+- yhtäkkinen maan haisteleminen
+- turkin ravistelu
+- yhtäkkinen turkin rapsuttelu esim. kesken leikin
+- läähättäminen, jos koiralla ei ole kuuma
+- hidastaminen tai pysähtyminen
+
 
 ##### Koira ei pure varoittamatta
 
-Koirien kehonkielen perusasiat kannattaa opetella oman perheen ja koiran, sekä muiden turvallisuuden vuoksi. Koira ei koskaan pure ketään varoittamatta. Ennen kuin koira puree niin se on todennäköisesti tarjonnut useita rauhottavia signaaleita ja todennut ettei vastapuoli ymmärrä niitä, jolloin sen on ollut pakko puolustaa itseään.
+Koirien kehonkielen perusasiat kannattaa opetella oman perheen ja koiran, sekä muiden turvallisuuden vuoksi. Koira ei koskaan pure varoittamatta.
 
-Kun koirasi leikkii toisen koiran kanssa niin katsele tilannetta. Jos jompikumpi näyttää näitä eleitä, eikä toinen koira ymmärrä niitä, niin leikkiin on puututtava ennen kuin tilanne eskaloituu ja koira joutuu puolustamaan itseään.
+Ennen kuin koira puree, niin se on todennäköisesti tarjonnut useita rauhottavia signaaleita kertoakseen, että sen olo on epämukava. Jos vastapuoli ei lue näitä signaaleita ja koira on todennut, ettei vastapuoli reagoi niihin, niin vasta viimeisenä keinona se puolustaa itseään näykkäisemällä.
 
-Myös silloin, kun lapsi leikkii koiran kanssa, niin tulee olla erittäin valppaana. Lapset tykkäävät koskettaa ja halata koiria ja kaikki koirat eivät pidä siitä.
+Kun koirasi leikkii toisen koiran kanssa, niin katsele tilannetta. Jos jompikumpi näyttää näitä eleitä, eikä toinen koira ymmärrä niitä, niin leikkiin on puututtava ennen kuin tilanne eskaloituu ja koira joutuu puolustamaan itseään.
+
+Myös silloin kun lapsi leikkii koiran kanssa, tulee olla erittäin valppaana. Lapset tykkäävät koskettaa ja halata koiria ja kaikki koirat eivät pidä siitä. 
 
 ##### Perusteiden oppiminen
 
@@ -38,19 +58,17 @@ Itse aloitin koirien kehonkielen opiskelun juuri näistä rauhoittavista eleist�
 Alla on koottuna joitain kuvia Mikin näyttämistä rauhottavista eleistä. Koirien eleet vaihtelevat aina jonkin verran riippuen koiran rodusta ja koiran ulkonäöstä (esim. pystykorva vs. luppakorva), mutta rauhoittelevat signaalit ovat melko yhdenmukaisia.
 
 ##### Nenän tai huulen nopea nuolaiseminen, kielen vilautus
-Koirat nuolevat huuliaan silloinkin, kun niille tarjotaan ruokaa tai ne ovat juuri syöneet. Ruuan yhteydessä huulten nuoleminen on isoeleistä, liike on hitaanlainen ja koiran suu on auki.
 
-Näissä kuvissa Miki odottaa, että annan namin sille.
+Kun koiran suu on kiinni ja kieli vilahtaa nopeasti nenään tai huuleen, niin kyse on rauhoittavasta elestä. Yleensä myös koiran koko keho näyttää jännittyneeltä:
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC26705-800px.jpg)
-
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC26703-800px.jpg)
-
-Kun kyse on rauhoittavasta eleestä, koiran suu on kiinni ja kieli vilahtaa nopeasti nenään tai huuleen. Yleensä myös koiran koko keho näyttää jännittyneeltä.
-
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_2092_-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_2092_1003.jpg)
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG22632-800px.jpg)
+
+Koirat nuolevat huuliaan silloinkin, kun niille tarjotaan ruokaa tai ne ovat juuri syöneet ja ne puhdistavat kuonoaan. Se EI OLE rauhoittava ele. Ruuan yhteydessä huulten nuoleminen on isoeleistä, liike on hitaanlainen ja koiran suu on auki: 
+
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC26705_1003.jpg)
+
 
 ##### Toisen etutassun nostaminen
 Koira saattaa nostaa etutassuaan näyttävästi lähes roikottamalla sitä ilmassa tai sitten koira saattaa nostaa tassuaan myös vähäeleisesti, mutta kuitenkin niin että se on koholla toiseen tassuun verrattuna vaikka varpaat saattavat vielä osua maahan.
@@ -81,7 +99,7 @@ Tässä kuvassa valokuvasin Mikiä ja ilmeisesti palkkiota istumisesta ei tullut
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG24304-800px.jpg)
 
 ##### Läähättäminen
-Jos koiralla ei tiettävästi ole kuuma, niin se todennäköisesti läähättää stressin vuoksi. Koiran olemuksesta voi usein päätellä kummasta on kyse – jos koira näyttää mitään muita rauhoittavia signaaleita tai stressin oireita, tai sen kieli on jäykkä, niin kyse on todennäköisesti stressistä.
+Jos koiralla ei tiettävästi ole kuuma, niin se todennäköisesti läähättää stressin vuoksi. Koiran olemuksesta voi usein päätellä kummasta on kyse – jos koira näyttää mitään muita rauhoittavia signaaleita tai stressin oireita, tai sen keho tai kieli on jäykkä, niin kyse on todennäköisesti stressistä.
 
 Näissä kuvissa Miki on jahdannut jänistä ja sitten se on stressaantunut, koska se on hihnassa eikä saa jänistä kiinni. Myös kireä hihna aiheuttaa stressiä.
 
@@ -89,11 +107,9 @@ Näissä kuvissa Miki on jahdannut jänistä ja sitten se on stressaantunut, kos
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS28274-800px.jpg)
 
-Kuumaa läähättävan koiran olemus on usein rauhallinen/iloinen ja kieli on rento.
+Kuumaa läähättävan koiran olemus on rento ja iloinen ja myös kieli on rento.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC09535-800px.jpg)
-
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG23733-800px.jpg)
 
 ##### Haukottelu
 Koirat haukottelevat hyvin harvoin siksi, että ne olisivat väsyneitä. Yleensä kyse on stressin lievittämisestä.

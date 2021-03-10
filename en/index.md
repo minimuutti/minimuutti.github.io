@@ -55,9 +55,9 @@ I also have very strong intuition and I *know* things no one has ever told me. F
 
 I think (*know*) that animals can be highly sensitive as well, although I’ve only heard people been described as HSP. I see Miki as a very sensitive creature and that’s why he reacts so strongly. In my experience the reasons for the (bad) behaviour on reactive dogs – and for me as well – comes from too overwhelming and taxing environment. The poor thing just needs to get the heck out of the situation and fast. As Pet Professional Guild wrote "A reactive dog is not *giving* you a hard time - he's *having* a hard time".
 
-For example I can have a conversation with one person without getting too tired. But if I have to be in a situation that involves two or more people, it’s just too overwhelming for me and it drains all my energy in minutes. After a situation like that, anybody that comes to me might feel my “anger” in their skins.
+For example I can have a conversation with one person without getting too tired. But if I have to be in a situation that involves two or more people, it’s just too overwhelming for me and it drains all my energy in minutes.
 
-It’s just the same thing for Miki. First couple of dogs that passes us on our walks triggers usually no big reactions in Miki, unless one of them is overexcited. Once we encounter one overexcited dog walking towards us or if there just has been too many dogs altogether, it’s like game over. After that we can’t walk past any dog – regardless of how calm or friendly they are. Everything becomes suddenly just too much and the poor dogs that pass us gets to feel Miki’s anger on their skin. Not literally, but you can clearly see and hear Miki is not happy about them. (Fortunately these scenarios are rare these days.)
+It’s just the same thing for Miki. First couple of dogs that passes us on our walks triggers usually no big reactions in Miki. Once we encounter one overexcited dog walking towards us or if there just has been too many dogs altogether, it’s like game over. After that we can’t walk past any dog – regardless of how calm or friendly they are. Everything becomes suddenly just too much and the poor dogs that pass us gets to feel Miki’s anger on their skin. Not literally, but you can clearly see and hear Miki is not happy about them. (Fortunately these scenarios are rare these days.)
 
 Nowadays when I notice that Miki’s temper is about to fill, I tie a yellow bandana on Miki’s leash. You can read more about the usage of yellow bandanas [here](https://minimuutti.com/en/blog/please-give-space-to-dogs-wearing-yellow-bandanas/). Then we make a fun and quick exit before his temper flows over.
 
@@ -66,8 +66,6 @@ We have practised different exit strategies that I use depending on the situatio
 I got the idea for this site, because I couldn’t find enough tips form the Internet how to drain dog's mental energy in positive ways. Most of the pages I found, listed only a few tips, but I didn’t find any pages that would’ve had multiple tips in the same place.
 
 I hope you enjoy the journey with Minimute and I hope that these pages can help your daily life with your own energetic and/or reactive dog.
-
-If you like to watch beautiful pictures of Finnish nature, check out the [Pictures of Finnish Nature](/en/photography/finnish-nature/).
 
 The journey with Minimute has just begun!
 

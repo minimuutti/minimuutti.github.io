@@ -11,9 +11,9 @@ image:
 
 They communicate like this with other dogs, but also with humans and other animals.
 
-The body language is quite a simple language because there are only limited variations what a dog can do with his body. Despite that it can be relatively hard for humans to read. Although some signs or gestures mean one thing, a dog can use it combined with other signs to tell something else like tell other dog to calm down, or as a displacement behaviour. This is why you should always look at the whole picture and the context – not just individual signs.
+The body language is quite a simple language because there are only limited variations what a dog can do with his body. Despite that it can be relatively hard for humans to read. Although some signs or gestures mean one thing, a dog can use it combined with other signs to tell something else like tell other dog to calm down. This is why you should always look at the whole picture and the context – not just individual signs.
 
-It’s very important for dog owners and to learn some of the basic signs and gestures dogs are using daily.
+It’s very important for dog owners and to learn some of the basic signs and gestures.
 
 ##### Calming signals
 
@@ -21,9 +21,25 @@ One important group is the calming signals. Dogs use these signals to create dis
 
 Dogs are born with a desire for peace and they inherit the knowledge for calming signals in their genes. Dogs always try to avoid conflicts by calming things down. This is why it’s so important to learn to look for these signals from your dog but also from other dogs. Although every dog knows how to show these signals sadly every dog doesn’t know how to read them. Or if your dog has been raised with aversive methods it might have affected your dog in a way he has become oblivious to those signals or he might have become passive. In addition, reactive dogs usually react so fast without thinking because of the adrenaline spike and then they become unable to notice these signs from other dogs.
 
+Examples of calming and stress-related signals are:
+
+- yawning
+- tongue flick; a quick lick of nose or lip
+- squinting of eyes or blinking
+- whale eye (or half-moon eye); whites of dog's eyes are visible
+- looking away
+- turning the head or whole body away 
+- lifting a front paw
+- sudden sniffing of the ground
+- shaking off
+- sudden scratching
+- panting, if the dog is not hot
+- slowing down or stopping
+
+
 ##### Dog bites
 
-You should learn the basics of dog body language for your family's and dog's sake but also for the safety of other dogs and humans. No dog bites without a warning. Before a bite occurs the dog is likely to give several calming signals and/or warnings. If the other dog or person doesn't get the message the dog has no choice but take the matter to his own paws and bite for defence. When your dog interacts with other dogs keep an eye out - if one of them shows these signs and the other doesn't get the message you need to intervene before the situation escalates and the dog needs to defend himself. The same goes when a kid is playing with a dog - then you should be extra careful because kids like to touch and hug dogs, which most of the dogs don't like.
+You should learn the basics of dog body language for your family's and dog's sake but also for the safety of other dogs and humans. No dog bites without a warning. Before a bite occurs the dog is likely to give several calming signals and/or warnings. If the other dog or person doesn't get the message the dog has no choice but take the matter to his own paws and bite for defence. When your dog interacts with other dogs keep an eye out - if one of them shows these signs and the other doesn't get the message you need to intervene before the situation escalates and the dog needs to defend himself. The same goes when kids are playing with a dog - then you should be extra careful because kids like to touch and hug dogs, which most of the dogs don't like.
 
 ##### Learning the basics
 
@@ -34,17 +50,15 @@ Here are some pictures of Miki using calming signals. Dogs' body language varies
 ##### Nose/lip lick
 Dogs usually lick their lips when you offer them some food or a tasty treat. They also lick their lips after they have finished their meal to clean up. When dogs lick their lips when it comes to food their mouth is usually open and the licking gestures are hard to miss. The licks are quite imposing and slow.
 
-In these two pictures you can see Miki waiting for a tasty treat.
-
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC26705-800px.jpg)
-
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC26703-800px.jpg)
-
 When a dog licks as a calming signal, dog's mouth is usually closed and the tongue just briefly flicks a lip or a nose. You can also look at the dog's body which is quite tense.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_2092_-800px.jpg)
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_2092_1003.jpg)
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG22632-800px.jpg)
+
+In these two pictures you can see Miki waiting for a tasty treat. This is not a calming signal:
+
+![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC26705_1003.jpg)
 
 ##### Paw lift
 This gesture might be imposing as a dog might hang his paw in the air. It can also be very subtle gesture when one paw is slightly lifted but the toes may still touch the ground.
@@ -89,11 +103,9 @@ In these pictures below Miki has chased a rabbit and he's stressed out because h
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS28274-800px.jpg)
 
-If your dog is just hot he's more calm and happy and his tongue is relaxed.
+If your dog is just hot he's more calm and happy and his tongue is also relaxed.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC09535-800px.jpg)
-
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG23733-800px.jpg)
 
 ##### Yawning
 Dogs seldom yawn because they are tired. More often they yawn to relieve some stress.
@@ -159,7 +171,7 @@ When I clearly didn't get the first clue that I was too close, Miki played a sec
 
 Dogs in general don't like when someone leans over them. And they REALLY don't like to be hugged. Miki is no exception.
 
-In this picture you can see Miki got nervous when he was being leaned over. He flicked his tongue and you can clearly see the whites in his eyes.
+In this picture you can see Miki got nervous when he was being leaned over. He flicked his tongue and you can clearly see the whale eye.
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS47331-800px.jpg)
 
