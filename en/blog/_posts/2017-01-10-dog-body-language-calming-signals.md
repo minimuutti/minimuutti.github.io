@@ -41,6 +41,10 @@ Examples of calming and stress-related signals are:
 
 You should learn the basics of dog body language for your family's and dog's sake but also for the safety of other dogs and humans. No dog bites without a warning. Before a bite occurs the dog is likely to give several calming signals and/or warnings. If the other dog or person doesn't get the message the dog has no choice but take the matter to his own paws and bite for defence. When your dog interacts with other dogs keep an eye out - if one of them shows these signs and the other doesn't get the message you need to intervene before the situation escalates and the dog needs to defend himself. The same goes when kids are playing with a dog - then you should be extra careful because kids like to touch and hug dogs, which most of the dogs don't like.
 
+Growling is not a calming signal, but dogs often growl before they bite, so I must mention it when I'm writing about dog bites.
+
+When a dog growls, that is actually warning before biting: "stay away and you won't get hurt". People sometimes misunderstand growling to be a bad thing and might command their dog to stop growling and to be silent. I can tell you from my experience that you should never teach your dog not to growl, because then your dog becomes unpredictable, if he is not allowed to warn. Growling is actually a good thing, because then your dog can warn you and other dogs before things escalate.
+
 ##### Learning the basics
 
 When I started learning dog body language the calming signals were first on my agenda. When Miki yawned or flicked his tongue I always thought it over why he did it and what happened just before he did it. 
@@ -48,15 +52,15 @@ When I started learning dog body language the calming signals were first on my a
 Here are some pictures of Miki using calming signals. Dogs' body language varies a bit between different breeds and different type of dogs (for example spitz type dogs vs. those that have floppy ears) but the calming signals are quite uniform.
 
 ##### Nose/lip lick
-Dogs usually lick their lips when you offer them some food or a tasty treat. They also lick their lips after they have finished their meal to clean up. When dogs lick their lips when it comes to food their mouth is usually open and the licking gestures are hard to miss. The licks are quite imposing and slow.
-
-When a dog licks as a calming signal, dog's mouth is usually closed and the tongue just briefly flicks a lip or a nose. You can also look at the dog's body which is quite tense.
+When a dog licks his lips or nose as a calming signal, dog's mouth is closed and the tongue just briefly flicks a lip or a nose. You can also notice the dog's face and body being tense:
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_2092_1003.jpg)
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG22632-800px.jpg)
 
-In these two pictures you can see Miki waiting for a tasty treat. This is not a calming signal:
+Dogs also lick their lips when you offer them food or a tasty treat and after they have finished their meal to clean up. That is not a calming signal. When dogs lick their lips when it comes to food, their mouth is usually open and the licking gestures are quite imposing and slow.
+
+In these two pictures below you can see Miki waiting for a tasty treat and you can clearly see the difference between this food-related licking and the calming signal. He also looks happy and relaxed:
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC26705_1003.jpg)
 

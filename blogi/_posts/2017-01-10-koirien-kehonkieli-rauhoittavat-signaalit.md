@@ -47,9 +47,12 @@ Koirien kehonkielen perusasiat kannattaa opetella oman perheen ja koiran, sekä 
 
 Ennen kuin koira puree, niin se on todennäköisesti tarjonnut useita rauhottavia signaaleita kertoakseen, että sen olo on epämukava. Jos vastapuoli ei lue näitä signaaleita ja koira on todennut, ettei vastapuoli reagoi niihin, niin vasta viimeisenä keinona se puolustaa itseään näykkäisemällä.
 
-Kun koirasi leikkii toisen koiran kanssa, niin katsele tilannetta. Jos jompikumpi näyttää näitä eleitä, eikä toinen koira ymmärrä niitä, niin leikkiin on puututtava ennen kuin tilanne eskaloituu ja koira joutuu puolustamaan itseään.
+Kun koirasi leikkii toisen koiran kanssa, niin katsele tilannetta. Jos jompikumpi näyttää näitä eleitä, eikä toinen koira ymmärrä niitä, niin leikkiin on puututtava ennen kuin tilanne eskaloituu ja koira joutuu puolustamaan itseään. Myös silloin kun lapsi leikkii koiran kanssa, tulee olla erittäin valppaana. Lapset tykkäävät koskettaa ja halata koiria ja kaikki koirat eivät pidä siitä. 
 
-Myös silloin kun lapsi leikkii koiran kanssa, tulee olla erittäin valppaana. Lapset tykkäävät koskettaa ja halata koiria ja kaikki koirat eivät pidä siitä. 
+Murina ei ole rauhoittava ele, mutta täytyy mainita se tässä samalla, kun kirjoitan puremisesta.
+
+Koiran murina on oikeasti varoitus: "pysy kaukana, niin sinun ei käy kuinkaan". Ihmiset usein ymmärtävät koiran murinan väärin ja pitävät sitä huonona asiana. Ihmiset usein käskevät koiran lopettaa murisemisen ja olemaan hiljaa. Voin kertoa kokemuksesta, ettei koiraa saa koskaan opettaa olemaan murisematta, koska näin koirasta tulee ennalta-arvaamaton, jos sen ei ole sallittua varoittaa etukäteen. Murina on oikeasti hyvä asia, koska näin koira voi varoittaa ihmisiä sekä muita koiria pysymään kauempana, jotta tilanne ei kärjisty.
+
 
 ##### Perusteiden oppiminen
 
@@ -65,10 +68,9 @@ Kun koiran suu on kiinni ja kieli vilahtaa nopeasti nenään tai huuleen, niin k
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG22632-800px.jpg)
 
-Koirat nuolevat huuliaan silloinkin, kun niille tarjotaan ruokaa tai ne ovat juuri syöneet ja ne puhdistavat kuonoaan. Se EI OLE rauhoittava ele. Ruuan yhteydessä huulten nuoleminen on isoeleistä, liike on hitaanlainen ja koiran suu on auki: 
+Koirat nuolevat huuliaan silloinkin, kun niille tarjotaan ruokaa tai ne ovat juuri syöneet ja ne puhdistavat huuliaan. Se ei ole rauhoittava ele. Ruuan yhteydessä huulten nuoleminen on isoeleistä, liike on hitaanlainen ja koiran suu on auki:
 
 ![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC26705_1003.jpg)
-
 
 ##### Toisen etutassun nostaminen
 Koira saattaa nostaa etutassuaan näyttävästi lähes roikottamalla sitä ilmassa tai sitten koira saattaa nostaa tassuaan myös vähäeleisesti, mutta kuitenkin niin että se on koholla toiseen tassuun verrattuna vaikka varpaat saattavat vielä osua maahan.
