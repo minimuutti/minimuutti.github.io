@@ -15,7 +15,7 @@ People usually think a dog is always friendly when he wags his tail. This miscon
 
 Dogs do wag their tails when they are happy, but they wag for multiple other reasons as well. Dogs wag also when they give a warning: Do not come any closer! And if you get closer you might get nipped.
 
-Different wags are quite easy to learn. For the safety of your family and for others it's best to learn the meanings. When you can read the different wags you can then read your dog like an open book - and be able to avoid things going south. In this post we examine three different aspects, the height of the tail and orientation and speed of the wag.
+Different wags are quite easy to learn. For the safety of your family and for others it's best to learn the meanings. When you can read the different wags you can then read your dog like an open book - and be able to avoid things going south. In this post we examine three different aspects, height of the tail, orientation and speed of the wag.
 
 ## Height of the tail
 

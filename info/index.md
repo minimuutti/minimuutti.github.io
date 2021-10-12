@@ -35,11 +35,11 @@ Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 
 Uudet ja viimeksi päivitetyt osiot:
 
-* 10.10.2020 Lisätty uusia valokuvia kategoriaan; [Syksy](/valokuvaus/luontokuvat/syksy/)
-* 10.10.2020 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
-* 23.9.2020 Lisätty uusia valokuvia kategoriaan; [Abstraktit ja muut](/valokuvaus/abstraktit-muut/)
+* 11.10.2021 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
+* 11.10.2021 Lisätty uusia valokuvia kategoriaan; [Syksy](/valokuvaus/luontokuvat/syksy/)
+* 11.10.2021 Lisätty uusia valokuvia kategoriaan; [Kuvia Mikistä](/valokuvaus/kuvia-mikista/)
+* 10.10.2020 Lisätty uusia valokuvia kategoriaan; [Abstraktit ja muut](/valokuvaus/abstraktit-muut/)
 * 29.7.2020 Lisätty uusi aktivointivinkki; [Pesupallot](/aktivointi/pesupallot/)
-* 29.7.2020 Lisätty uusia valokuvia kategoriaan; [Kesä](/valokuvaus/luontokuvat/kesa/)
 * 25.6.2020 Lisätty uusi aktivointilelu; [Trixie Roly Poly](/aktivointilelut/trixie-roly-poly/)
 * 3.6.2020 Lisätty uusia valokuvia kategoriaan; [Kevät](/valokuvaus/luontokuvat/kevat/)
 * 21.5.2020 Lisätty uusi postaus Blogiin; [Kun koira ei tottele](/blogi/kun-koira-ei-tottele/)
