@@ -3,7 +3,7 @@ title: "Papertube"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DSC29173-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/paperituubi/DSC29173-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/papertube/
@@ -21,22 +21,22 @@ It took Miki about 10 minutes to get all the kibble out.
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DSC29139_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperituubi/DSC29139_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DSC29140_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperituubi/DSC29140_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DSC29142_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperituubi/DSC29142_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DSC29144_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperituubi/DSC29144_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DSC29173_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperituubi/DSC29173_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DS01685-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperituubi/DS01685-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DS01693-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperituubi/DS01693-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DS01711-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperituubi/DS01711-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DS01780-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperituubi/DS01780-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperituubi/DS01781-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperituubi/DS01781-800px.jpg)

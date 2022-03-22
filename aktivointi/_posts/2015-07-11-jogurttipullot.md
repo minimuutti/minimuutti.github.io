@@ -3,7 +3,7 @@ title: "Jogurttipullot"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jogurttipullot/DSC52520-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/jogurttipullot/DSC52520-245px.jpg
   thumb:
 ---
 
@@ -21,24 +21,24 @@ Kokeilin tätä myös teippaamalla viisi pulloa vierekkäin, mutta tehtävä oli
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jogurttipullot/DSC52450-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jogurttipullot/DSC52450-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jogurttipullot/DSC52454-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jogurttipullot/DSC52454-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jogurttipullot/DSC52486-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jogurttipullot/DSC52486-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jogurttipullot/DSC52520-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jogurttipullot/DSC52520-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jogurttipullot/DSC52535-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jogurttipullot/DSC52535-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jogurttipullot/DSC55139-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jogurttipullot/DSC55139-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jogurttipullot/DSC55149-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jogurttipullot/DSC55149-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jogurttipullot/DSC55209-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jogurttipullot/DSC55209-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jogurttipullot/DSC55273-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jogurttipullot/DSC55273-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jogurttipullot/DSC55321-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jogurttipullot/DSC55321-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jogurttipullot/DSC55368-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jogurttipullot/DSC55368-800px.jpg)

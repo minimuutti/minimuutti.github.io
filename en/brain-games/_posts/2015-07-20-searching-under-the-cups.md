@@ -3,7 +3,7 @@ title: "Searching under the cups"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-etsinta-kippojen-alta/DSC42562-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/namien-etsinta-kippojen-alta/DSC42562-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/searching-under-the-cups/
@@ -19,14 +19,14 @@ If you put over 10 cups you may want to put more treats than just one.
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-etsinta-kippojen-alta/DSC30657_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-etsinta-kippojen-alta/DSC30657_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-etsinta-kippojen-alta/DSC30665_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-etsinta-kippojen-alta/DSC30665_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-etsinta-kippojen-alta/DSC30666_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-etsinta-kippojen-alta/DSC30666_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-etsinta-kippojen-alta/DSC42557-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-etsinta-kippojen-alta/DSC42557-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-etsinta-kippojen-alta/DSC42562-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-etsinta-kippojen-alta/DSC42562-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-etsinta-kippojen-alta/DSC42614-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-etsinta-kippojen-alta/DSC42614-800px.jpg)

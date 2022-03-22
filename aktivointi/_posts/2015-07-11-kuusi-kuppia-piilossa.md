@@ -3,7 +3,7 @@ title: "Kuusi kuppia piilossa"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuusi-kuppia-piilossa/DS39554-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39554-245px.jpg
   thumb:
 ---
 
@@ -17,34 +17,34 @@ Jokaisen sinisen fetapurkin sisälle on tungettu paperinen kertakäyttömuki pii
 
 Kahdella ensimmäisellä pelikerralla annoin Mikille vain kaksi irrallista tuplakuppipakettia avattavaksi ja vasta kolmannella kerralla työnsin purkit tuohon pahviseen alustaan kiinni.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuusi-kuppia-piilossa/DS39478-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39478-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuusi-kuppia-piilossa/DS39511-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39511-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuusi-kuppia-piilossa/DS39514-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39514-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuusi-kuppia-piilossa/DS39537-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39537-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuusi-kuppia-piilossa/DS39554-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39554-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuusi-kuppia-piilossa/DS39577-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39577-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuusi-kuppia-piilossa/DS39602-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39602-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuusi-kuppia-piilossa/DS39604-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39604-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuusi-kuppia-piilossa/DS39623-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39623-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuusi-kuppia-piilossa/DS39625-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39625-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuusi-kuppia-piilossa/DS39675-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39675-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuusi-kuppia-piilossa/DS39722-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39722-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuusi-kuppia-piilossa/DS39751-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39751-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuusi-kuppia-piilossa/DS39770-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39770-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuusi-kuppia-piilossa/DS39803-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39803-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuusi-kuppia-piilossa/DS39839-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39839-800px.jpg)

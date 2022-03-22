@@ -3,7 +3,7 @@ title: "Lava lamps"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laavalamput/DSC44309-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/laavalamput/DSC44309-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/lava-lamps/
@@ -17,14 +17,14 @@ It took Miki about three minutes to get all the kibble from these six lava lamps
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laavalamput/DSC44315-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laavalamput/DSC44315-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laavalamput/DSC44320-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laavalamput/DSC44320-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laavalamput/DSC43225-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laavalamput/DSC43225-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laavalamput/DSC43293-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laavalamput/DSC43293-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laavalamput/DSC43309-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laavalamput/DSC43309-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laavalamput/DSC44309-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laavalamput/DSC44309-800px.jpg)

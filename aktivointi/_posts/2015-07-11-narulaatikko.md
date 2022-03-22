@@ -3,7 +3,7 @@ title: "Narulaatikko"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/narulaatikko/DSC38281-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/narulaatikko/DSC38281-245px.jpg
   thumb:
 ---
 
@@ -23,20 +23,20 @@ Tätä samaa muovikoriin tehtyä tehtävää vaikeutin vielä laittamalla jääp
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/narulaatikko/DSC38289-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/narulaatikko/DSC38289-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/narulaatikko/DSC38369-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/narulaatikko/DSC38369-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/narulaatikko/DSC38605-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/narulaatikko/DSC38605-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/narulaatikko/DSC38663-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/narulaatikko/DSC38663-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/narulaatikko/DSC38281-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/narulaatikko/DSC38281-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/narulaatikko/DSC41459-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/narulaatikko/DSC41459-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/narulaatikko/DSC41461-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/narulaatikko/DSC41461-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/narulaatikko/DSC41478-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/narulaatikko/DSC41478-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/narulaatikko/DSC48263-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/narulaatikko/DSC48263-800px.jpg)

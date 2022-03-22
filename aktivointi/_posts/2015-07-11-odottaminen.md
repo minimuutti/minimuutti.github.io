@@ -3,7 +3,7 @@ title: "Odottaminen"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/odottaminen/DSC32591-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/odottaminen/DSC32591-245px.jpg
   thumb:
 ---
 
@@ -15,6 +15,6 @@ Myöhemmin on tarkoitus saada Miki odottamaan lupaa ottaa sen nenän päälle as
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/odottaminen/DSC29359-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/odottaminen/DSC29359-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/odottaminen/DSC32591-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/odottaminen/DSC32591-800px.jpg)

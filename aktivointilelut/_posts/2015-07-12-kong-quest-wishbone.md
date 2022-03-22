@@ -3,7 +3,7 @@ title: "Kong Quest Wishbone"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC35072-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointilelut/kongit/DSC35072-245px.jpg
   thumb:
 ---
 
@@ -17,18 +17,18 @@ Ensimmäisellä kerralla laitoin tähän leluun pieniä kivipiiran paloja, kun n
 
 Lelun urissa on lipat, joiden alle herkut saa tungettua piiloon. Lelun vaikeustasoa voi muuttaa vaihtamalla siihen laitettavien herkkujen kokoa ja suuremmat herkut ovat yleensä antaneet Mikille eniten haastetta.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34912-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC34912-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34977-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC34977-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC35072-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC35072-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC35101-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC35101-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC25949_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC25949_2-800px.jpg)
 
 Tätä lelua on käytetty myös tehtävässä:
 
 [Fleece kiepit:](/aktivointi/fleecekiepit/)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecekiepit/DS06895-800px.jpg)](/aktivointi/fleecekiepit/)
+[![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06895-800px.jpg)](/aktivointi/fleecekiepit/)

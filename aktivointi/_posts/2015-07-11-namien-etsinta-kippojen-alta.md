@@ -3,7 +3,7 @@ title: "Namien etsintä kippojen alta"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-etsinta-kippojen-alta/DSC42562-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/namien-etsinta-kippojen-alta/DSC42562-245px.jpg
   thumb:
 ---
 
@@ -17,14 +17,14 @@ Mikäli purkkeja laittaa lattialle enemmän kuin kymmenen, niin namejakin ehkä 
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-etsinta-kippojen-alta/DSC30657_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-etsinta-kippojen-alta/DSC30657_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-etsinta-kippojen-alta/DSC30665_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-etsinta-kippojen-alta/DSC30665_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-etsinta-kippojen-alta/DSC30666_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-etsinta-kippojen-alta/DSC30666_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-etsinta-kippojen-alta/DSC42557-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-etsinta-kippojen-alta/DSC42557-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-etsinta-kippojen-alta/DSC42562-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-etsinta-kippojen-alta/DSC42562-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-etsinta-kippojen-alta/DSC42614-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-etsinta-kippojen-alta/DSC42614-800px.jpg)

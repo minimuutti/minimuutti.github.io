@@ -3,7 +3,7 @@ title: "Joulutervehdys"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/blogi/joulumiki-245px.jpg
+  teaser: https://b2.minimuutti.com/blogi/joulumiki-245px.jpg
   thumb:
 ---
 
@@ -53,11 +53,11 @@ Mikäli haluat tukea minimuutti.comin toimintaa niin lahjoitusvaihtoehdot löyty
 
 Tänä vuonna onnistuin neulomaan 48 paria lasten villasukkia. Tarjosin sukkia SEY:lle myytäväksi, mutta minun paikkakunnalla ei ollut mitään sellaista tapahtumaa tulossa, johon olisivat halunneet sukat myyntiin. Lahjoitin sukat Pelastusarmeijan joulupataan vähävaraisten iloksi. Langat sukkiin olin saanut osittain lahjoituksena, kiitos lahjoittajalle :)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC02790-800px.jpg)
+![](https://b2.minimuutti.com/blogi/DSC02790-800px.jpg)
 
 Valmistin 29 kpl [fleecemattoja](https://minimuutti.com/aktivointi/fleecematto/), jotka myin työpaikallani. Mattojen tekemiseen kului noin 290 tuntia ja lahjoitettavaa kertyi 275 euroa materiaalikulujen jälkeen. Lahjoitin rahat SEY:lle.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/fleecematot-800px.jpg)
+![](https://b2.minimuutti.com/blogi/fleecematot-800px.jpg)
 
 Keräsin koiralenkeillä pulloja ja tölkkejä, joiden pantit lahjoitin myös SEY:lle - tarkkaa summaa en tiedä, joitain kymppejä.
 
@@ -73,6 +73,6 @@ Uudenvuodenaatto on jo nurkan takana, joten jos koirasi pelkää ilotulitusta ni
 
 Minimuutti toivottaa kaikille oikein antoisaa vuotta 2020 ja muistakaa tehdä hyvää!
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/joulumiki-800px.jpg)
+![](https://b2.minimuutti.com/blogi/joulumiki-800px.jpg)
 
 21.12.2019

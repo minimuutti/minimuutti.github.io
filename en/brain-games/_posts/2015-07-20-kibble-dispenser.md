@@ -3,7 +3,7 @@ title: "Kibble dispenser"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/purkin-pyoritys/DSC55886%20-%20Copy-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/purkin-pyoritys/DSC55886%20-%20Copy-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/kibble-dispenser/
@@ -27,28 +27,28 @@ Here are also some pictures with the larger Pringles tube with four holes.
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/purkin-pyoritys/DSC55878-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/purkin-pyoritys/DSC55878-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/purkin-pyoritys/DSC55886%20-%20Copy-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/purkin-pyoritys/DSC55886%20-%20Copy-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/purkin-pyoritys/DSC55887-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/purkin-pyoritys/DSC55887-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/purkin-pyoritys/DSC55948-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/purkin-pyoritys/DSC55948-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/purkin-pyoritys/DSC55950-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/purkin-pyoritys/DSC55950-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/purkin-pyoritys/DSC55953-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/purkin-pyoritys/DSC55953-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/purkin-pyoritys/DSC55875-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/purkin-pyoritys/DSC55875-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/purkin-pyoritys/DSC57567_-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/purkin-pyoritys/DSC57567_-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/purkin-pyoritys/DSC57603-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/purkin-pyoritys/DSC57603-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/purkin-pyoritys/DSC57612-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/purkin-pyoritys/DSC57612-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/purkin-pyoritys/DS03785-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/purkin-pyoritys/DS03785-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/purkin-pyoritys/DS03809-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/purkin-pyoritys/DS03809-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/purkin-pyoritys/DS03811-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/purkin-pyoritys/DS03811-800px.jpg)

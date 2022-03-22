@@ -3,7 +3,7 @@ title: "Soda bottle"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/limupullo/DSC25203-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/limupullo/DSC25203-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/soda-bottle/
@@ -17,20 +17,20 @@ I also tried to put pieces of a wiener in the bottle, but they didn’t come out
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/limupullo/DSC25198_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/limupullo/DSC25198_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/limupullo/DSC25199_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/limupullo/DSC25199_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/limupullo/DSC25203_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/limupullo/DSC25203_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/limupullo/IMG_20150502_153748_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/limupullo/IMG_20150502_153748_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/limupullo/DSC29321_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/limupullo/DSC29321_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/limupullo/DSC45377-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/limupullo/DSC45377-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/limupullo/DSC45440-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/limupullo/DSC45440-800px.jpg)
 
 You can also make sort of [Tug a fleece](/en/brain-games/tug-a-fleece/) game with a soda bottle.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13519-800px.jpg)](/en/brain-games/tug-a-fleece/)
+[![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS13519-800px.jpg)](/en/brain-games/tug-a-fleece/)

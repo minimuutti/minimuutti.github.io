@@ -3,7 +3,7 @@ title: "Umbrellas"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sateenvarjot/DSC38196-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/sateenvarjot/DSC38196-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/umbrellas/
@@ -19,8 +19,8 @@ At second time I used two umbrellas, but you can use as many as you like.
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sateenvarjot/DSC38230-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/sateenvarjot/DSC38230-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sateenvarjot/DSC38196-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/sateenvarjot/DSC38196-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sateenvarjot/DSC38250-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/sateenvarjot/DSC38250-800px.jpg)

@@ -3,7 +3,7 @@ title: "Scent trace"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/muut/Picture coming soon.jpg
+  teaser: https://b2.minimuutti.com/muut/Picture coming soon.jpg
   thumb:
 redirect_from:
   - /en/activation/scent-trace/

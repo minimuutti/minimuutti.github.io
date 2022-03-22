@@ -3,7 +3,7 @@ title: "Denim plait"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS02297-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/farkkuletti/DS02297-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/denim-plait/
@@ -17,19 +17,19 @@ I cut one leg off the jeans and cut the leg into five long strings. Then I tied 
 
 It took Miki about 5 minutes to get all the treats out.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS02273-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS02273-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS02284-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS02284-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS02297-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS02297-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS02326-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS02326-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS02337-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS02337-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS02264-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS02264-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS02261-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS02261-800px.jpg)
 
 #### Fleece plait
 
@@ -39,15 +39,15 @@ I cut 7 long strings of fleece. I tied them from one end and plait them and then
 
 I made 3 of these fleece plaits. Then I plait them too to one giant fleece plait and secured both ends with extra strips of fleece.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS18070-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS18070-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS18079-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS18079-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS18110-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS18110-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS18137-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS18137-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/fleeceletti_kollaasi-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/fleeceletti_kollaasi-800px.jpg)
 
 #### Knots in the jeans
 
@@ -55,18 +55,18 @@ Cut one leg off the jeans. You can put a single treat in the leg and tie one kno
 
 It takes Miki 5 to 20 minutes to get the treats out from the knotted jeans.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS02434-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS02434-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS02443-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS02443-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS02562-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS02562-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS02566-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS02566-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS02579-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS02579-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS02692-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS02692-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS02706-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS02706-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/farkkuletti/DS02428-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/farkkuletti/DS02428-800px.jpg)

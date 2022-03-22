@@ -3,7 +3,7 @@ title: "Towels on rope"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pyyhekoysi/DS02416-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/pyyhekoysi/DS02416-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/towels-on-rope/
@@ -16,16 +16,16 @@ It took Miki about 3 minutes to get all the kibble out.
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pyyhekoysi/DS02147-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pyyhekoysi/DS02147-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pyyhekoysi/DS02416-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pyyhekoysi/DS02416-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pyyhekoysi/DS02421-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pyyhekoysi/DS02421-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pyyhekoysi/DS02403-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pyyhekoysi/DS02403-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pyyhekoysi/DS02156-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pyyhekoysi/DS02156-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pyyhekoysi/DS02160-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pyyhekoysi/DS02160-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pyyhekoysi/DS02168-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pyyhekoysi/DS02168-800px.jpg)

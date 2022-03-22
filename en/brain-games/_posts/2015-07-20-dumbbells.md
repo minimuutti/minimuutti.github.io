@@ -3,7 +3,7 @@ title: "Dumbbells"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/palloputket/DS38807-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/palloputket/DS38807-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/dumbbells/
@@ -21,26 +21,26 @@ I put some kibble into each laundry ball and then I pushed the roll between them
 
 I gave three of these dumbbells to Miki and it took under 10 minutes to get all the kibble out.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/palloputket/DS38692-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/palloputket/DS38692-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/palloputket/DS38695-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/palloputket/DS38695-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/palloputket/DS38709-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/palloputket/DS38709-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/palloputket/DS38738-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/palloputket/DS38738-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/palloputket/DS38777-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/palloputket/DS38777-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/palloputket/DS38807-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/palloputket/DS38807-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/palloputket/DS38825-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/palloputket/DS38825-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/palloputket/DS38855-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/palloputket/DS38855-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/palloputket/DS38936-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/palloputket/DS38936-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/palloputket/DS38948-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/palloputket/DS38948-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/palloputket/DS38670-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/palloputket/DS38670-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/palloputket/DS38673-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/palloputket/DS38673-800px.jpg)

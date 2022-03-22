@@ -3,7 +3,7 @@ title: "Kori laatikossa"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kori-laatikossa/DSC45276-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/kori-laatikossa/DSC45276-245px.jpg
   thumb:
 ---
 
@@ -21,24 +21,24 @@ Mikin oli erittäin vaikea tarttua ja siirtää noita laatikoita, joten Mikiltä
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kori-laatikossa/DSC45195-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kori-laatikossa/DSC45195-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kori-laatikossa/DSC45080-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kori-laatikossa/DSC45080-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kori-laatikossa/DSC45152-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kori-laatikossa/DSC45152-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kori-laatikossa/DSC45154-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kori-laatikossa/DSC45154-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kori-laatikossa/DSC45181-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kori-laatikossa/DSC45181-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kori-laatikossa/DSC45228-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kori-laatikossa/DSC45228-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kori-laatikossa/DSC45276-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kori-laatikossa/DSC45276-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kori-laatikossa/DSC48671-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kori-laatikossa/DSC48671-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kori-laatikossa/DSC48676-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kori-laatikossa/DSC48676-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kori-laatikossa/DSC48732-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kori-laatikossa/DSC48732-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kori-laatikossa/DSC48682-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kori-laatikossa/DSC48682-800px.jpg)

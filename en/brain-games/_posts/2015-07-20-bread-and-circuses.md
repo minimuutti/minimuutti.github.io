@@ -3,7 +3,7 @@ title: "Bread and circuses"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/leipaa-ja-sirkushuveja/DS61427_-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/leipaa-ja-sirkushuveja/DS61427_-245px.jpg
   thumb:
 ---
 
@@ -19,18 +19,18 @@ The idea is that the dog (retrieves and) places the ball on the target. If he pu
 
 Miki got the idea of this game super fast, because he already knew how to collect toys into a basket - which I also taught him with tennis balls.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/leipaa-ja-sirkushuveja/DS61391-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/leipaa-ja-sirkushuveja/DS61391-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/leipaa-ja-sirkushuveja/DS61421-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/leipaa-ja-sirkushuveja/DS61421-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/leipaa-ja-sirkushuveja/DS61427-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/leipaa-ja-sirkushuveja/DS61427-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/leipaa-ja-sirkushuveja/DS61428-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/leipaa-ja-sirkushuveja/DS61428-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/leipaa-ja-sirkushuveja/DS61402-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/leipaa-ja-sirkushuveja/DS61402-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/leipaa-ja-sirkushuveja/DS61403-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/leipaa-ja-sirkushuveja/DS61403-800px.jpg)
 
 At times the games got a bit wild :D
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/leipaa-ja-sirkushuveja/DS61530-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/leipaa-ja-sirkushuveja/DS61530-800px.jpg)

@@ -3,7 +3,7 @@ title: "Laatikot sisäkkäin"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikot-sisakkain/DS09520-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/laatikot-sisakkain/DS09520-245px.jpg
   thumb:
 ---
 
@@ -19,36 +19,36 @@ Tehtävässä voi käyttää pelkkiä nappuloita, mutta itse olen laittanut napp
 
 Tämä tuhoamisprosessi vei Mikiltä noin 4 minuuttia :D
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikot-sisakkain/DS09455-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikot-sisakkain/DS09455-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikot-sisakkain/DS09520-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikot-sisakkain/DS09520-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikot-sisakkain/DS09601-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikot-sisakkain/DS09601-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikot-sisakkain/DS09633-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikot-sisakkain/DS09633-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikot-sisakkain/DS09655-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikot-sisakkain/DS09655-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikot-sisakkain/DS09706-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikot-sisakkain/DS09706-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikot-sisakkain/DS09737-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikot-sisakkain/DS09737-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikot-sisakkain/DS09448_-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikot-sisakkain/DS09448_-800px.jpg)
 
 #### 5 laatikkoa sisäkkäin
 
 Viiden laatikon tuhoaminen kesti Mikiltä noin 5 minuuttia.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikot-sisakkain/DS12853-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikot-sisakkain/DS12853-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikot-sisakkain/DS12875-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikot-sisakkain/DS12875-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikot-sisakkain/DS13030-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikot-sisakkain/DS13030-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikot-sisakkain/DS13061-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikot-sisakkain/DS13061-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikot-sisakkain/DS13133-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikot-sisakkain/DS13133-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikot-sisakkain/DS13161-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikot-sisakkain/DS13161-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikot-sisakkain/Laatikot_sisakkain-kollaasi-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikot-sisakkain/Laatikot_sisakkain-kollaasi-800px.jpg)

@@ -3,7 +3,7 @@ title: "Kibble hunt"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulajahti/DS38593-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/nappulajahti/DS38593-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/kibble-hunt/
@@ -23,32 +23,32 @@ Miki has a double coat and he gets hot quite fast. After a game like this it's i
 
 I usually toss only one kibble at a time to make the game last as long as possible. One portion of kibble is hunted in about 10 minutes. 
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulajahti/DS38471-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38471-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulajahti/DS38472-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38472-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulajahti/DS38473-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38473-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulajahti/DS38474-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38474-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulajahti/DS38475-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38475-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulajahti/DS38568-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38568-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulajahti/DS38569-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38569-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulajahti/DS38570-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38570-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulajahti/DS38571-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38571-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulajahti/DS38572-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38572-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulajahti/DS38573-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38573-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulajahti/DS38593-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38593-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulajahti/DS38594-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38594-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulajahti/DS38595-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38595-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulajahti/DS38597-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38597-800px.jpg)

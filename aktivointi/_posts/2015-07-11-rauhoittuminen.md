@@ -3,7 +3,7 @@ title: "Rauhoittuminen"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/rauhoittuminen/DSC14799-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/rauhoittuminen/DSC14799-245px.jpg
   thumb:
 ---
 
@@ -17,6 +17,6 @@ Tätä harjoittelemme Mikin kanssa sitten myöhemmin, kun on sen aika. Nyt ensin
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/rauhoittuminen/DSC14806_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/rauhoittuminen/DSC14806_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/rauhoittuminen/DSC14799_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/rauhoittuminen/DSC14799_2-800px.jpg)

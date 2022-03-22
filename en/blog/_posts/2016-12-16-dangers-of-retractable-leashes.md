@@ -3,7 +3,7 @@ title: Dangers of retractable leashes
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/muut/Image_-245px.jpg
+  teaser: https://b2.minimuutti.com/muut/Image_-245px.jpg
   thumb:
 ---
 
@@ -17,6 +17,6 @@ Every one of us love our dogs and now is finally the time to change those danger
 
 R.I.P.
  
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/Image.jpg)
+![](https://b2.minimuutti.com/blogi/Image.jpg)
 
 2016-12-16

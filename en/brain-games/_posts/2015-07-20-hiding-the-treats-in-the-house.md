@@ -3,7 +3,7 @@ title: "Hiding the treats in the house"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30804-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/namien-piilotus-asuntoon/DSC30804-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/hiding-the-treats-in-the-house/
@@ -17,10 +17,10 @@ You need to hide the kibble only in those areas you are comfortable for your dog
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30802-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-piilotus-asuntoon/DSC30802-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30814-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-piilotus-asuntoon/DSC30814-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30810-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-piilotus-asuntoon/DSC30810-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30804-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-piilotus-asuntoon/DSC30804-800px.jpg)

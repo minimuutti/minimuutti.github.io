@@ -3,7 +3,7 @@ title: "Solmupiilo"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02879-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/solmupiilo/DS02879-245px.jpg
   thumb:
 ---
 
@@ -19,27 +19,27 @@ Kahdella ensimmäisellä kerralla pidin tuosta lelusta kiinni, ettei tehtävä o
 
 Mikiltä kesti ensimmäisellä kerralla noin 20 sekuntia tajuta että fleece pitää vetää lelusta ulos. Namien kaivaminen solmuista kesti noin minuutin.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02729-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02729-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02746-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02746-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02757-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02757-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02775-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02775-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02797-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02797-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02806-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02806-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02849-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02849-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02879-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02879-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02887-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02887-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02719-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02719-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS02720-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02720-800px.jpg)
 
 Samantyylisen tehtävän voit tehdä myös ilman näitä Kong Genius leluja. Käytin tässä toisessa tehtävässä saman kokoista fleecen palasta, mutta Kongin sijaan käytin 0,5l limupulloa.
 
@@ -53,16 +53,16 @@ Mikäli et ole koskaan aiemmin antanut mitään pulloa koirallesi, niin suositte
 
 Mikiltä kesti ensimmäisellä kerralla noin 2 minuuttia saada fleece sekä namit ulos pullosta.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13410-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS13410-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13239-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS13239-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13255-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS13255-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13473-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS13473-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13302-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS13302-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13501-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS13501-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13519-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS13519-800px.jpg)

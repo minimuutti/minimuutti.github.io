@@ -3,7 +3,7 @@ title: "House rules"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC01782_halodevl3-245px.jpg
+  teaser: https://b2.minimuutti.com/blogi/DSC01782_halodevl3-245px.jpg
   thumb:
 ---
 
@@ -21,7 +21,7 @@ This is one example how the word "no" doesn't teach anybody anything. A person g
 
 No! is also problematic, because correct timing is the key if you need to say it. If you say it even a bit afterwards, your dog will be absolutely clueless what you are shouting about. A classical example of that is a dog that has demolished the house when his owner isn't home and when the owner returns to home he shouts NO! to the dog who is calmly greeting his owner.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/20140608_090105_en-800px.jpg)
+![](https://b2.minimuutti.com/blogi/20140608_090105_en-800px.jpg)
 
 #### Creating rules
 
@@ -37,7 +37,7 @@ When I cut the fleece for the [charity snuffle mats](https://minimuutti.com/en/b
 
 Here's a couple of pictures Miki following the rule and watching from the hallway.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/rules1.jpg)
+![](https://b2.minimuutti.com/blogi/rules1.jpg)
 
 #### Set your dog up for success, not for failure
 
@@ -97,10 +97,10 @@ Miki is one of the greediest dogs in the world and he would eat so much his stom
 
 Here's some pictures where Miki is still learning to pass the food. By passing the food on the floor he always got something better.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/Learning-800px.jpg)
+![](https://b2.minimuutti.com/blogi/Learning-800px.jpg)
 
 And later.. 
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/Masterin-800px.jpg)
+![](https://b2.minimuutti.com/blogi/Masterin-800px.jpg)
 
 3.2.2020

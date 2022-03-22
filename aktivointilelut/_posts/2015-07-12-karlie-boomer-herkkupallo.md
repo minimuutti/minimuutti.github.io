@@ -3,7 +3,7 @@ title: "Karlie Boomer herkkupallo"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00904-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointilelut/muut/DSC00904-245px.jpg
   thumb:
 ---
 
@@ -21,14 +21,14 @@ Suosittelen lämpimästi tätä Karlie Boomer herkkupalloa. Siitä kannattaa mak
 
 Näissä kuvissa Miki on reilun vuoden ikäinen ja se ihmettelee palloa ensimmäistä kertaa.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00913_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DSC00913_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00904_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DSC00904_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00991_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DSC00991_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00992_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DSC00992_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC00996-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DSC00996-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS57995-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS57995-800px.jpg)

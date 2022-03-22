@@ -3,7 +3,7 @@ title: "PetProjekt Holobal"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS61898-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointilelut/muut/DS61898-245px.jpg
   thumb:
 ---
 
@@ -19,22 +19,22 @@ Kun Miki oli pyöritellyt lelua lattialla yli 5 minuuttia saamatta sieltä mitä
 
 Lelua valmistetaan kahta eri kokoa. Tämä Mikille ostettu on se isompi, halkaisijaltaan noin 10 cm.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS61848-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS61848-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS61866-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS61866-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS61885-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS61885-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS61898-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS61898-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS61910-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS61910-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS61943-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS61943-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS61961-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS61961-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS61971-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS61971-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS61979-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS61979-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS61842-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS61842-800px.jpg)

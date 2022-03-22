@@ -3,7 +3,7 @@ title: "Esteradan miniversio"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esteradan-miniversio/DS15253-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/esteradan-miniversio/DS15253-245px.jpg
   thumb:
 ---
 
@@ -13,20 +13,20 @@ Tein alunperin [esteradan](/aktivointi/esterata/) isoista esteistä, joiden väl
 
 Tehtävän idea on se, että koira joutuu miettimään mihin tassunsa sijoittaa etsiessään nappuloita tavaroiden keskellä. Miki ainakaan ei astu esineiden päälle, vaan se asettelee tassunsa niiden väleihin. Tässä tehtävässä koira tulee käyttäneeksi myös nenäänsä, kun se etsii nappuloita tavaroiden seasta.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esteradan-miniversio/DS15253-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esteradan-miniversio/DS15253-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esteradan-miniversio/DS15261-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esteradan-miniversio/DS15261-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esteradan-miniversio/DS15265-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esteradan-miniversio/DS15265-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esteradan-miniversio/DS15298-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esteradan-miniversio/DS15298-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esteradan-miniversio/DS15302-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esteradan-miniversio/DS15302-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esteradan-miniversio/DS15324-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esteradan-miniversio/DS15324-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esteradan-miniversio/DS15330-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esteradan-miniversio/DS15330-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esteradan-miniversio/DS15357-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esteradan-miniversio/DS15357-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esteradan-miniversio/DS15397-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esteradan-miniversio/DS15397-800px.jpg)

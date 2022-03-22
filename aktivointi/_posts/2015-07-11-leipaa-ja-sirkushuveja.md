@@ -3,7 +3,7 @@ title: "Leipää ja sirkushuveja"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/leipaa-ja-sirkushuveja/DS61427_-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/leipaa-ja-sirkushuveja/DS61427_-245px.jpg
   thumb:
 ---
 
@@ -19,18 +19,18 @@ Pelin idea on se, että koira (hakee ja) asettaa pallon maalitauluun. Isomman re
 
 Miki ymmärsi tämän pelin nopeasti, koska tuo lelujen kerääminen koriin oli jo tuttua. Senkin harjoittelemisen aloitimme aikoinaan tennispallolla, joka edesauttoi tämän pelin nopeaa omaksumista.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/leipaa-ja-sirkushuveja/DS61391-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/leipaa-ja-sirkushuveja/DS61391-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/leipaa-ja-sirkushuveja/DS61421-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/leipaa-ja-sirkushuveja/DS61421-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/leipaa-ja-sirkushuveja/DS61427-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/leipaa-ja-sirkushuveja/DS61427-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/leipaa-ja-sirkushuveja/DS61428-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/leipaa-ja-sirkushuveja/DS61428-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/leipaa-ja-sirkushuveja/DS61402-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/leipaa-ja-sirkushuveja/DS61402-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/leipaa-ja-sirkushuveja/DS61403-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/leipaa-ja-sirkushuveja/DS61403-800px.jpg)
 
 Välillä meno oli aika villiä :D
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/leipaa-ja-sirkushuveja/DS61530-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/leipaa-ja-sirkushuveja/DS61530-800px.jpg)

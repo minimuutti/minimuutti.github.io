@@ -3,7 +3,7 @@ title: "Kongit mukeissa"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC48000-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC48000-245px.jpg
   thumb:
 ---
 
@@ -19,20 +19,20 @@ Mikiltä kesti noin pari minuuttia saada kaikki nappulat ulos näistä.
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC47966-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC47966-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC47974-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC47974-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC47968-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC47968-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC47977-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC47977-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC48000-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC48000-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC47957-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC47957-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC48168-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC48168-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC48171-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC48171-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC48179-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC48179-800px.jpg)

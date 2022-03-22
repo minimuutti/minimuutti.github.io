@@ -3,7 +3,7 @@ title: "PetProjekt Tretbal"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS445781-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointilelut/muut/DS445781-245px.jpg
   thumb:
 ---
 
@@ -25,14 +25,14 @@ Ensimmäisellä kerralla laitoin leluun vain nappuloita, jotta tehtävä oli tar
 
 Herkkujen muodosta riippuen Mikiltä kestää 2-10 minuuttia saada ne ulos tästä.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44547-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS44547-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44578-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS44578-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44576-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS44576-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44767-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS44767-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44774-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS44774-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS44824-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS44824-800px.jpg)

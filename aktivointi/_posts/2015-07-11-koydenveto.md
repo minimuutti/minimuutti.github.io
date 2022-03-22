@@ -3,7 +3,7 @@ title: "Köydenveto"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55402-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/koydenveto/DSC55402-245px.jpg
   thumb:
 ---
 
@@ -29,24 +29,24 @@ Miki keksi tämän tehtävän todella nopeasti ja sai herkun ulos ensimmäisell�
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55402-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/koydenveto/DSC55402-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55407-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/koydenveto/DSC55407-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55420-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/koydenveto/DSC55420-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55426-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/koydenveto/DSC55426-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55432-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/koydenveto/DSC55432-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55510-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/koydenveto/DSC55510-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55453-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/koydenveto/DSC55453-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55476-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/koydenveto/DSC55476-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55478-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/koydenveto/DSC55478-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55386-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/koydenveto/DSC55386-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55401-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/koydenveto/DSC55401-800px.jpg)

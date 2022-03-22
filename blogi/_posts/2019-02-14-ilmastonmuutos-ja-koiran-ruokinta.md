@@ -3,7 +3,7 @@ title: "Ilmastonmuutos ja koiran ruokinta"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/blogi/DS62463-245px.jpg
+  teaser: https://b2.minimuutti.com/blogi/DS62463-245px.jpg
   thumb:
 ---
 
@@ -75,10 +75,10 @@ Kannattaa kuitenkin muistaa, että vain valitsemalla voit vaikuttaa. Ja vaikka o
 
 Jos yksi ihminen ajattelee, ettei valinnoilla ole vaikutusta, niin entäpä jos otetaankin sata yksittäistä ihmistä tai vaikkapa satatuhatta ihmistä. Tässä mittakaavassa vaikutus alkaa jo olla huomattava. Kuten sananlaskukin sanoo, niin pienistä puroista kasvaa iso joki.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS62463-800px.jpg)
+![](https://b2.minimuutti.com/blogi/DS62463-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS62467-800px.jpg)
+![](https://b2.minimuutti.com/blogi/DS62467-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DS62476-800px.jpg)
+![](https://b2.minimuutti.com/blogi/DS62476-800px.jpg)
 
 14.2.2019

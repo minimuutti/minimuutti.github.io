@@ -3,7 +3,7 @@ title: "Northmate Green"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS37576-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointilelut/muut/DS37576-245px.jpg
   thumb:
 ---
 
@@ -13,14 +13,14 @@ It’s very seldom that we give any food to Miki in a bowl. Miki normally gets h
 
 But this Northmate slow feeding bowl is a good buy. It takes Miki about 5 to 10 minutes to lick the bowl clean.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC02615_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DSC02615_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS37557-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS37557-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS37576-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS37576-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS37568-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS37568-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS37595-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS37595-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS37606-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS37606-800px.jpg)

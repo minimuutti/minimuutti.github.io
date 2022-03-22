@@ -3,7 +3,7 @@ title: "Joulukalenterit"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59121-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59121-245px.jpg
   thumb:
 ---
 
@@ -23,34 +23,34 @@ Laitoin tyhjän muovilevyn koloihin [Tubidog-siipikarjatahnaa](http://clk.traded
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59065-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59065-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59082-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59082-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59121-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59121-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59190-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59190-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59233-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59233-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59250-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59250-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59057-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59057-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59352-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59352-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59357-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59357-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC59408-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59408-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC60440-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC60440-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/joulukalenterit/DSC60457-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC60457-800px.jpg)
 
 Tavarakalenterista peräisin olevaa lokerikkoa on käytetty tehtävässä [Fleecerullat](/aktivointi/fleecerullat/):
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecerullat/DS09098-800px.jpg)](/aktivointi/fleecerullat/)
+[![](https://b2.minimuutti.com/aktivointi/fleecerullat/DS09098-800px.jpg)](/aktivointi/fleecerullat/)
 
 ja myös tehtävässä [Lokerikko](/aktivointi/lokerikko/):
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lokerikko/DS08655-800px.jpg)](/aktivointi/lokerikko/)
+[![](https://b2.minimuutti.com/aktivointi/lokerikko/DS08655-800px.jpg)](/aktivointi/lokerikko/)

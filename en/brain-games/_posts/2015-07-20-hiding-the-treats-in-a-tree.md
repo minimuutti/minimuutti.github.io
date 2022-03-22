@@ -3,7 +3,7 @@ title: "Hiding the treats in a tree"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/2/DSC29249-245px.jpg
+  teaser: https://b2.minimuutti.com/mikin-kuvat/2/DSC29249-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/hiding-the-treats-in-a-tree/
@@ -16,30 +16,30 @@ And try to make sure that your dog doesn’t fall off the tree while he is climb
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/2/DSC29244-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/2/DSC29244-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/2/DSC29242-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/2/DSC29242-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/2/DSC29267-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/2/DSC29267-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/2/DSC29249-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/2/DSC29249-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-puuhun/DSC23854_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-piilotus-puuhun/DSC23854_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-puuhun/DSC25456_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-piilotus-puuhun/DSC25456_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-puuhun/DSC25459_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-piilotus-puuhun/DSC25459_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-puuhun/DSC25421_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-piilotus-puuhun/DSC25421_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-puuhun/DS19647-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-piilotus-puuhun/DS19647-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-puuhun/DS19645-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-piilotus-puuhun/DS19645-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-puuhun/DSC42805-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-piilotus-puuhun/DSC42805-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-puuhun/DSC55047-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-piilotus-puuhun/DSC55047-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-puuhun/DSC29234_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-piilotus-puuhun/DSC29234_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-puuhun/DSC29236_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-piilotus-puuhun/DSC29236_2-800px.jpg)

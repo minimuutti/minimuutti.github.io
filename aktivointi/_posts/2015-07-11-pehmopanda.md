@@ -3,7 +3,7 @@ title: "Pehmopanda"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49366-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/pehmopanda/DSC49366-245px.jpg
   thumb:
 ---
 
@@ -17,14 +17,14 @@ Toisella kerralla laitoin sekä pandan, että lumiukko Kongin sisälle nappuloit
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49366-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pehmopanda/DSC49366-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49402-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pehmopanda/DSC49402-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49437-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pehmopanda/DSC49437-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49513-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pehmopanda/DSC49513-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49564-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pehmopanda/DSC49564-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pehmopanda/DSC49573-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pehmopanda/DSC49573-800px.jpg)

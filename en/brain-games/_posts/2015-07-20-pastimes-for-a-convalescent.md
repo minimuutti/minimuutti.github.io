@@ -3,7 +3,7 @@ title: "Pastimes for a convalescent"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37405-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37405-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/pastimes-for-a-convalescent/
@@ -25,35 +25,35 @@ Vets usually recommend rice water for a diarrhea patients and you can serve it f
 
 When you can give your dog just rice water and some rice and chicken you can put them in a blender before you fill the tray.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/IMG_20151213_183733-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/IMG_20151213_183733-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/IMG_20151213_183756-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/IMG_20151213_183756-800px.jpg)
 
 Later on I didn't put the food in the blender anymore but instead put it straight in the tray. Starshaped tray and other shapes increases the difficulty to lick the trays clean.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS10526-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS10526-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS10540-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS10540-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS10565-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS10565-800px.jpg)
 
 To make the tray last longer, you can put it in the freezer. It takes Miki about 10-15 minutes to lick a frozen tray clean depending on the shapes of the tray.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37158-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37158-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37166-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37166-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37187-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37187-800px.jpg)
 
 ## Advent calendar
 
 I've put the same pureed mixture on the trays taken from an advent calendar and I froze those as well. It takes Miki about 5-10 minutes to lick them clean.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37106-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37106-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37110-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37110-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37140-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37140-800px.jpg)
 
 ## Frozen Kong
 
@@ -65,7 +65,7 @@ When you put puree into a Kong you should put the Kong on a cup before you put i
 
 It takes Miki about 10-15 minutes to lick a frozen Kong clean.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37157-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37157-800px.jpg)
 
 ## Wash balls
 
@@ -79,21 +79,21 @@ Miki spreads some rice all over when he eats this food from wash balls but fortu
 
 It took Miki about 10 minutes to eat all the food.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37385-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37385-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37405-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37405-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37440-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37440-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37475-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37475-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37481-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37481-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37520-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37520-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37536-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37536-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37551-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37551-800px.jpg)
 
 ## Cups in a basket
 
@@ -103,31 +103,31 @@ I divided Miki's portion to 6 plastic cups and 6 paper cups. Then I slightly pus
 
 Surprisingly it took Miki almost 20 minutes to get all the food out from these 12 cups.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37613-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37613-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37623-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37623-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37639-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37639-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37651-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37651-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37630-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37630-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37698-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37698-800px.jpg)
 
 ## Slow feeding food bowls
 
 We don't usually give any food to Miki from a bowl. When Miki is on this rice and chicken diet I sometimes give him his food from this Northmate Green slow food bowl and it takes Miki about 5-10 minutes to eat all the food.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS37557-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS37557-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS37568-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS37568-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS37579-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS37579-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS37600-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS37600-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS37606-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS37606-800px.jpg)
 
 ## Ikea's Drömmar
 
@@ -137,12 +137,12 @@ I washed the set and then assembled it back before I put Miki's food on top.
 
 It took Miki about 10 minutes to eat all the food from this.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37739-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37739-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37744-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37744-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37785-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37785-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37794-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37794-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37826-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37826-800px.jpg)

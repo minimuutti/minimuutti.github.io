@@ -3,7 +3,7 @@ title: "Mystery box"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08867-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/laatikon-arvoitus/DS08867-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/mystery-box/
@@ -25,24 +25,24 @@ The first time I gave this game to Miki, I left the last flap slightly open, as 
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08301-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikon-arvoitus/DS08301-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08398-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikon-arvoitus/DS08398-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08865-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikon-arvoitus/DS08865-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08866-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikon-arvoitus/DS08866-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08867-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikon-arvoitus/DS08867-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08868-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikon-arvoitus/DS08868-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08871-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikon-arvoitus/DS08871-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08873-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikon-arvoitus/DS08873-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS08874-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikon-arvoitus/DS08874-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS09008-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikon-arvoitus/DS09008-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/laatikon-arvoitus/DS09009-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/laatikon-arvoitus/DS09009-800px.jpg)

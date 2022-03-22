@@ -3,7 +3,7 @@ title: "Something else -game"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60100-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/jotain-muuta-leikki/DSC60100-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/something-else-game/
@@ -29,26 +29,26 @@ This game is so fun and it's one of my favourite rainy day activity.
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60408-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jotain-muuta-leikki/DSC60408-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60035-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jotain-muuta-leikki/DSC60035-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60037-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jotain-muuta-leikki/DSC60037-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60075-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jotain-muuta-leikki/DSC60075-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60053-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jotain-muuta-leikki/DSC60053-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60082-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jotain-muuta-leikki/DSC60082-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60089-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jotain-muuta-leikki/DSC60089-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60100-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jotain-muuta-leikki/DSC60100-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DSC60102-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jotain-muuta-leikki/DSC60102-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DS00716-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jotain-muuta-leikki/DS00716-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DS00707-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jotain-muuta-leikki/DS00707-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/jotain-muuta-leikki/DS00761-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/jotain-muuta-leikki/DS00761-800px.jpg)

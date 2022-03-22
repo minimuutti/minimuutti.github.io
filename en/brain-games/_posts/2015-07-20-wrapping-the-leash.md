@@ -3,7 +3,7 @@ title: "Wrapping the leash"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32210-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32210-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/wrapping-the-leash/
@@ -19,10 +19,10 @@ You should start this game in a quiet place without any distractions and in the 
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32210-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32210-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32196-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32196-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32197-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32197-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32198-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32198-800px.jpg)

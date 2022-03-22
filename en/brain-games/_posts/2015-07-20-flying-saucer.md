@@ -3,7 +3,7 @@ title: "Flying saucer"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lentava-lautanen/DS03631%20%282%29-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/lentava-lautanen/DS03631%20%282%29-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/flying-saucer/
@@ -19,12 +19,12 @@ It took Miki about 5 minutes to get the kibble out.
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lentava-lautanen/DS03632-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lentava-lautanen/DS03632-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lentava-lautanen/DS03631-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lentava-lautanen/DS03631-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lentava-lautanen/DS03685-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lentava-lautanen/DS03685-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lentava-lautanen/DS03682-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lentava-lautanen/DS03682-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lentava-lautanen/DS03617-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lentava-lautanen/DS03617-800px.jpg)

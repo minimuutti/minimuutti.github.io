@@ -3,7 +3,7 @@ title: "Lelujen piilotus"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelujen-piilotus/DS30705-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/lelujen-piilotus/DS30705-245px.jpg
   thumb:
 ---
 
@@ -19,20 +19,20 @@ Tätä leikkiä voi leikkiä ainakin kahdella eri tavalla. Olen joko jakanut Mik
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelujen-piilotus/DS30724-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lelujen-piilotus/DS30724-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelujen-piilotus/DS30730-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lelujen-piilotus/DS30730-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelujen-piilotus/DS30733-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lelujen-piilotus/DS30733-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelujen-piilotus/DS30750-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lelujen-piilotus/DS30750-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelujen-piilotus/DS30754-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lelujen-piilotus/DS30754-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelujen-piilotus/DS30694-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lelujen-piilotus/DS30694-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelujen-piilotus/DS30701-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lelujen-piilotus/DS30701-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelujen-piilotus/DS30702-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lelujen-piilotus/DS30702-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lelujen-piilotus/DS30705-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lelujen-piilotus/DS30705-800px.jpg)

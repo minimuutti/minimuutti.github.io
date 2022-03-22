@@ -3,7 +3,7 @@ title: "Limupullo"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/limupullo/DSC25203-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/limupullo/DSC25203-245px.jpg
   thumb:
 ---
 
@@ -15,20 +15,20 @@ Kokeiltiin sitten myöhemmin nappuloilla ja pullo oli tyhjennetty noin 30 sekunn
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/limupullo/DSC25198_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/limupullo/DSC25198_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/limupullo/DSC25199_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/limupullo/DSC25199_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/limupullo/DSC25203_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/limupullo/DSC25203_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/limupullo/IMG_20150502_153748_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/limupullo/IMG_20150502_153748_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/limupullo/DSC29321_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/limupullo/DSC29321_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/limupullo/DSC45377-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/limupullo/DSC45377-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/limupullo/DSC45440-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/limupullo/DSC45440-800px.jpg)
 
 Limupulloa voi vaikeuttaa myös fleecellä, katso [Solmupiilo](/aktivointi/solmupiilo/) tehtävä.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/solmupiilo/DS13255-800px.jpg)](/aktivointi/solmupiilo/)
+[![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS13255-800px.jpg)](/aktivointi/solmupiilo/)

@@ -3,7 +3,7 @@ title: "Space Ball Stellaron"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49658-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/space-ball-stellaron/DSC49658-245px.jpg
   thumb:
 ---
 
@@ -15,22 +15,22 @@ Mikiltä kesti noin 2-3 minuuttia saada nuo herkut syötyä.
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49658-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/space-ball-stellaron/DSC49658-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49601-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/space-ball-stellaron/DSC49601-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49633-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/space-ball-stellaron/DSC49633-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49681-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/space-ball-stellaron/DSC49681-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49692-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/space-ball-stellaron/DSC49692-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/space-ball-stellaron/DSC49583-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/space-ball-stellaron/DSC49583-800px.jpg)
 
 Tätä lelua on käytetty myös tehtävässä [Fleece kiepit](/aktivointi/fleecekiepit/):
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecekiepit/DS08123-800px.jpg)](/aktivointi/fleecekiepit/)
+[![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS08123-800px.jpg)](/aktivointi/fleecekiepit/)
 
 ja lelua on käytetty vaikeutuksena [Kong Wobblerin](/aktivointilelut/kong-wobbler/) kanssa:
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS41310-800px.jpg)](/aktivointilelut/kong-wobbler/)
+[![](https://b2.minimuutti.com/aktivointilelut/kongit/DS41310-800px.jpg)](/aktivointilelut/kong-wobbler/)

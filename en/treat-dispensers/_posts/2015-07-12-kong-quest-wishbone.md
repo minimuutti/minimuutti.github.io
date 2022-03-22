@@ -3,7 +3,7 @@ title: "Kong Quest Wishbone"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC35072-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointilelut/kongit/DSC35072-245px.jpg
   thumb:
 ---
 
@@ -17,18 +17,18 @@ The first time I gave this toy to Miki I put some leftover pieces of meat in it,
 
 You can adjust the difficulty by choosing different size treats and the larger treats have usually been the hardest ones to get out.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34912-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC34912-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34977-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC34977-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC35072-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC35072-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC35101-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC35101-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC25949_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC25949_2-800px.jpg)
 
 I’ve used this toy also in the game:
 
 [Fleece wraps:](/en/brain-games/fleece-wraps/)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecekiepit/DS06895-800px.jpg)](/en/brain-games/fleece-wraps/)
+[![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06895-800px.jpg)](/en/brain-games/fleece-wraps/)

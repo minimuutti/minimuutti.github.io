@@ -3,7 +3,7 @@ title: "Sateenvarjot"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sateenvarjot/DSC38196-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/sateenvarjot/DSC38196-245px.jpg
   thumb:
 ---
 
@@ -15,8 +15,8 @@ Tein tämän ensimmäisellä kerralla niin, että avasin sateenvarjon ja asetin 
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sateenvarjot/DSC38230-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/sateenvarjot/DSC38230-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sateenvarjot/DSC38196-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/sateenvarjot/DSC38196-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sateenvarjot/DSC38250-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/sateenvarjot/DSC38250-800px.jpg)

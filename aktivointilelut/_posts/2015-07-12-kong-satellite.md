@@ -3,7 +3,7 @@ title: "Kong Satellite"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34371-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointilelut/kongit/DSC34371-245px.jpg
   thumb:
 ---
 
@@ -15,10 +15,10 @@ Alkuun tämän lelun tyhjentämiseen saattoi mennä jopa 15 minuuttia, koska lel
 
 Myöhemmin Miki oppi missä järjestyksessä lelua pitää käännellä, jotta nappulat putoavat ulos ja nykyään lelu tyhjenee parissa minuutissa.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34371-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC34371-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC34366-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC34366-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC17128-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC17128-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC17421-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC17421-800px.jpg)

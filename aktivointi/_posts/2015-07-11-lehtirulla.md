@@ -3,7 +3,7 @@ title: "Lehtirulla"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lehtirulla/DSC36316-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36316-245px.jpg
   thumb:
 ---
 
@@ -21,22 +21,22 @@ Tätä samaa voi aluksi kokeilla myös ilman rullaamista ja teippiä. Miki sai n
 
 Rullattu lehti:
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lehtirulla/DSC36316-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36316-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lehtirulla/DSC36330-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36330-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lehtirulla/DSC36415-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36415-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lehtirulla/DSC36428-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36428-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lehtirulla/DSC36439-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36439-800px.jpg)
 
 Rullaamaton lehti:
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lehtirulla/DSC36306-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36306-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lehtirulla/DSC36181-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36181-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lehtirulla/DSC36120-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36120-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/lehtirulla/DSC36290-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36290-800px.jpg)

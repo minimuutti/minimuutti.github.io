@@ -3,7 +3,7 @@ title: "Trixie Roly Poly"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS68000-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointilelut/muut/DS68000-245px.jpg
   thumb:
 ---
 
@@ -23,14 +23,14 @@ In spite of that I still think this is a great toy because it gives some challen
 
 This toy is also relatively quiet when Miki spins it on the floor, so thumbs up for that.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS67958-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS67958-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS68000-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS68000-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS67995-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS67995-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS67976-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS67976-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS68044-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS68044-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS68027-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS68027-800px.jpg)

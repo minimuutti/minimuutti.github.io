@@ -3,7 +3,7 @@ title: "Gone fishin'"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/onginta/DS15029-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/onginta/DS15029-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/gone-fishin/
@@ -25,22 +25,22 @@ First Miki tried to push the jar down :D After that he scrabbled the block a few
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/onginta/DS14851-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/onginta/DS14851-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/onginta/DS14853-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/onginta/DS14853-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/onginta/DS14856-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/onginta/DS14856-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/onginta/DS15029-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/onginta/DS15029-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/onginta/DS14881-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/onginta/DS14881-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/onginta/DS14965-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/onginta/DS14965-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/onginta/DS14972-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/onginta/DS14972-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/onginta/DS14929-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/onginta/DS14929-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/onginta/DS14944-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/onginta/DS14944-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/onginta/DS14945-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/onginta/DS14945-800px.jpg)

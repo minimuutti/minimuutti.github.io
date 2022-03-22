@@ -3,7 +3,7 @@ title: "Busy Buddy Twist'n Treat"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC13183-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointilelut/muut/DSC13183-245px.jpg
   thumb:
 ---
 
@@ -17,14 +17,14 @@ Voin silti lämpimästi suositella tätä lelua. Lelu ei maksa paljoa ja se on e
 
 Lisäksi lelun voi avata pesua varten, joka pidentää sen käyttöikää entisestään.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC13183_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DSC13183_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC13229_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DSC13229_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC13236_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DSC13236_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DSC13226_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DSC13226_2-800px.jpg)
 
 Tätä lelua on käytetty myös yhdistettynä Kong Traxx -renkaaseen, katso: [Yhdistetyt lelut](/aktivointilelut/yhdistetyt-lelut/)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS11052-800px.jpg)](/aktivointilelut/yhdistetyt-lelut/)
+[![](https://b2.minimuutti.com/aktivointilelut/muut/DS11052-800px.jpg)](/aktivointilelut/yhdistetyt-lelut/)

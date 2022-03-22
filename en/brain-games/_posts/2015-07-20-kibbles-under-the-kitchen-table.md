@@ -3,7 +3,7 @@ title: "Kibbles under the kitchen table"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulat-poydan-alla/DSC29490-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/nappulat-poydan-alla/DSC29490-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/kibble-under-the-kitchen-table/
@@ -17,6 +17,6 @@ It takes Miki about two to three minutes to get all the kibble. And his morning 
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulat-poydan-alla/DSC29490_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulat-poydan-alla/DSC29490_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulat-poydan-alla/DSC29489_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulat-poydan-alla/DSC29489_2-800px.jpg)

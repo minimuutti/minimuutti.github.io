@@ -3,7 +3,7 @@ title: "Putkipiilo"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC37492-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/putkipiilo/DSC37492-245px.jpg
   thumb:
 ---
 
@@ -27,38 +27,38 @@ Teimme samanlaisen tehtävän myös 60 cm pitkällä putkella ja 60 cm leveäll�
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC37492-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC37492-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC37386-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC37386-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC37474-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC37474-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC37439-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC37439-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC37484-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC37484-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC37631-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC37631-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC42999-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC42999-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC43028-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC43028-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC43057-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC43057-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC46277-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC46277-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC47917-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC47917-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC47921-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC47921-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC47941-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC47941-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC47952-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC47952-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC51455-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC51455-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC51482-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC51482-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC51541-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC51541-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putkipiilo/DSC51752-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC51752-800px.jpg)

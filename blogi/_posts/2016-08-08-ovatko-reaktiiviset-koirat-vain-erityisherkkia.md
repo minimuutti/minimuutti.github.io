@@ -3,7 +3,7 @@ title: "Ovatko reaktiiviset koirat vain erityisherkkiä?"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_1943-245px.jpg
+  teaser: https://b2.minimuutti.com/blogi/IMG_1943-245px.jpg
   thumb:
 ---
 
@@ -37,12 +37,12 @@ Ovatko reaktiiviset koirat vain erityisherkkiä? Mitä mieltä sinä olet?
 
 Alla olevissa kuvissa miki on noin puolen vuoden ikäinen ja se hyökkäilee hihnassa karkottaakseen vastaantulevan koiran. Tällöin uskoin vielä laumanjohtajuuteen ja kuten kuvista hyvin näkyy, kieltäminen ja toruminen "väärästä" käytöksestä ei ollut kovinkaan tehokasta. Itse asiassa se oli täysin hyödytöntä ja lisäksi teki tilanteesta Mikille vieläkin epämieluisamman.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_1932-800px.jpg)
+![](https://b2.minimuutti.com/blogi/IMG_1932-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_1943-800px.jpg)
+![](https://b2.minimuutti.com/blogi/IMG_1943-800px.jpg)
 
 Nykyään koulutan vain palkitsemalla Mikiä oikeasta käytöksestä ja remmirähjääminen on loppunut lähes kokonaan.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC25924-800px.jpg)
+![](https://b2.minimuutti.com/blogi/DSC25924-800px.jpg)
 
 8.8.2016

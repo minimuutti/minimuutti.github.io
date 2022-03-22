@@ -3,7 +3,7 @@ title: "Ystävänpäivän sydän"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04759-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/ystavanpaivan-sydan/DS04759-245px.jpg
   thumb:
 ---
 
@@ -27,26 +27,26 @@ Leikattuani kaikki pahvisydämet irti, huomasin ilokseni, että yhdestä pahvila
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04772-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ystavanpaivan-sydan/DS04772-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04779-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ystavanpaivan-sydan/DS04779-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04813-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ystavanpaivan-sydan/DS04813-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04904-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ystavanpaivan-sydan/DS04904-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04910-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ystavanpaivan-sydan/DS04910-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS05004-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ystavanpaivan-sydan/DS05004-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS05109-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ystavanpaivan-sydan/DS05109-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS05163-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ystavanpaivan-sydan/DS05163-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS05239-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ystavanpaivan-sydan/DS05239-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/sydankollaasi-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ystavanpaivan-sydan/sydankollaasi-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ystavanpaivan-sydan/DS04759-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ystavanpaivan-sydan/DS04759-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kurkkaa-koloon/DS04011-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kurkkaa-koloon/DS04011-800px.jpg)

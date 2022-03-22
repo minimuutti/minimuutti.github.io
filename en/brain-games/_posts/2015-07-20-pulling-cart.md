@@ -3,7 +3,7 @@ title: "Pulling cart"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42890-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/karryn-vetaminen/DSC42890-245px.jpg
   thumb:
 
 redirect_from:
@@ -24,14 +24,14 @@ As much as we would have liked to get a sled dog when we got Miki, we didn't. Af
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC29067_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/karryn-vetaminen/DSC29067_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC29055_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/karryn-vetaminen/DSC29055_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42862-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/karryn-vetaminen/DSC42862-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42890-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/karryn-vetaminen/DSC42890-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42919-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/karryn-vetaminen/DSC42919-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42929-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/karryn-vetaminen/DSC42929-800px.jpg)

@@ -3,7 +3,7 @@ title: New years eve and the fireworks
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45771-245px.jpg
+  teaser: https://b2.minimuutti.com/mikin-kuvat/3/DS45771-245px.jpg
   thumb:
 ---
 
@@ -31,76 +31,76 @@ As the time approached to midnight I took a bag of Miki's favourite treats and f
 
 **19:45:**
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45547-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45547-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45596-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45596-800px.jpg)
 
 **20:00:**
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45592-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45592-800px.jpg)
 
 **20:30 Miki even wanted to play a bit, fantastic!**
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45666-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45666-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45674-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45674-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45694-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45694-800px.jpg)
 
 **OMG WHAT WAS THAT?!?**
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45714-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45714-800px.jpg)
 
 **Miki even wanted to go out onto the balcony as he queued in front of the door but I thought it would have been too much for him.**
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45726-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45726-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45729-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45729-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45743-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45743-800px.jpg)
 
 **This is how Miki felt about the fireworks :)**
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45736-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45736-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45772-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45772-800px.jpg)
 
 **WHAT WAS THAT?!?**
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45755-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45755-800px.jpg)
 
 **Oh, probably nothing :)**
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45771-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45771-800px.jpg)
 
 **20:50 Susu had some fun with the camera :)**
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45809-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45809-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45812-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45812-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45815-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45815-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45817-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45817-800px.jpg)
 
 **21:20:**
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45833-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45833-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45868-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45868-800px.jpg)
 
 **22:00:**
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45879-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45879-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45889-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45889-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45891-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45891-800px.jpg)
 
 **22:20:**
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45910-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45910-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DS45933-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DS45933-800px.jpg)
 
 2017-01-01

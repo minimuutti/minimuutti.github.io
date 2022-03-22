@@ -3,7 +3,7 @@ title: "Nappulat pöydän alla"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulat-poydan-alla/DSC29490-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/nappulat-poydan-alla/DSC29490-245px.jpg
   thumb:
 ---
 
@@ -17,6 +17,6 @@ Nappuloiden etsiminen pöydän alta kestää noin 2-3 minuuttia. Ja wulffin aamu
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulat-poydan-alla/DSC29490_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulat-poydan-alla/DSC29490_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nappulat-poydan-alla/DSC29489_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nappulat-poydan-alla/DSC29489_2-800px.jpg)

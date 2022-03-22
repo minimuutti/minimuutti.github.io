@@ -3,7 +3,7 @@ title: "Textile ball"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kangaspallo/DSC38537-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/kangaspallo/DSC38537-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/textile-ball/
@@ -19,16 +19,16 @@ It took Miki 12 minutes to get all the treats out.
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kangaspallo/DSC38431-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kangaspallo/DSC38431-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kangaspallo/DSC38449-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kangaspallo/DSC38449-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kangaspallo/DSC38460-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kangaspallo/DSC38460-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kangaspallo/DSC38520-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kangaspallo/DSC38520-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kangaspallo/DSC38537-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kangaspallo/DSC38537-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kangaspallo/DSC38589-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kangaspallo/DSC38589-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kangaspallo/DSC38443-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kangaspallo/DSC38443-800px.jpg)

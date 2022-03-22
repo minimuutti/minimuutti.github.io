@@ -3,7 +3,7 @@ title: "Passing other dogs"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC25924_2-245px.jpg
+  teaser: https://b2.minimuutti.com/blogi/DSC25924_2-245px.jpg
   thumb:
 ---
 
@@ -19,7 +19,7 @@ You may also want to read this related blog post: [Are reactive dogs just highly
 
 When two dogs meet naturally, they don't ever walk straight towards each other. They approach each other curving from the side. Walking straight towards means attacking in dog language.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/kiertaen-800px.jpg)
+![](https://b2.minimuutti.com/blogi/kiertaen-800px.jpg)
 
 When people walk their dogs on narrow sidewalks, many walk their dog straight towards other dogs without realizing that they are indicating to their dog to attack.
 
@@ -33,15 +33,15 @@ Miki has learned to pass normal calm dogs on the same side of the road. Unfortun
 
 Here are drawings that shows the right way to pass other dogs, and two wrong ways that may not end well.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/ohitus_oikein-800px.jpg)
+![](https://b2.minimuutti.com/blogi/ohitus_oikein-800px.jpg)
 
 ********
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/vastakkain-800px.jpg)
+![](https://b2.minimuutti.com/blogi/vastakkain-800px.jpg)
 
 ********
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/suoraan-taakse-800px.jpg)
+![](https://b2.minimuutti.com/blogi/suoraan-taakse-800px.jpg)
 
 
 ### What causes the lunging, barking and growling
@@ -72,11 +72,11 @@ In the past Miki has shown all of these signs, but those situations require quic
 
 In the drawing below, the dog has significantly slowed his pace. He has lowered his posture and he is stalking while still walking. His ears point forward and he has a hard stare. This is the last warning before it's too late. From this point on there's nothing you can do to avoid the lunge. The best thing is to move further away as quickly as possible.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/stalking_and_walking-800px.jpg)
+![](https://b2.minimuutti.com/blogi/stalking_and_walking-800px.jpg)
 
 In the next drawing you can see a dog, that has slowed down his pace so much that he has stopped completely. It may seem that he is just lying on the ground, but actually he is like a coiled spring ready to lunge at any moment. He has a hard stare and his head is way in front of his front paws. At this point the dog is not able to hear his walker anymore. The only thing he's focused in is the attack itself.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/stalking-800px.jpg)
+![](https://b2.minimuutti.com/blogi/stalking-800px.jpg)
 
 Learn to read the smaller gestures so your dog can tell you (you understand when he tells you) he's uncomfortable and you can exit the situation before it escalates.
 
@@ -84,7 +84,7 @@ If you notice this kind of behaviour in the on coming dog, for the sake of your 
 
 For clarification below is a picture of a dog that is play bowing. Play bow is a friendly well meaning gesture and should never be confused with stalking. In play bow only a dog's front is lowered and his rear stays up. His front paws are in front and his head is further back. Also his ears are back.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/playbow-800px.jpg)
+![](https://b2.minimuutti.com/blogi/playbow-800px.jpg)
 
 Another state of mind to watch out for is agitation. On coming dog may be in this state of mind for what ever reason, but your dog only sees the agitation and will probably react to it.
 
@@ -94,7 +94,7 @@ You know a dog is agitated when he's standing tall, his head is up, his ears are
 
 In the photo below you can see Miki is very agitated, because he has seen a dog he can't stand. His head is up, his tail and ears are up (and point forward) and in addition he stands with his rear legs only. Oh boy..
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/190922-800px.jpg)
+![](https://b2.minimuutti.com/blogi/190922-800px.jpg)
 
 ### Your body language
 
@@ -132,7 +132,7 @@ In addiotion to the positive association, you need to teach your dog some new be
 
 It's best not to start passing other dogs immediately on a close range. You can go to a park where there is more space for your dog to practise. And remember to always watch your dog's body language so you can lead him further away if needed.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC25924_-800px.jpg)
+![](https://b2.minimuutti.com/blogi/DSC25924_-800px.jpg)
 
 U-turn is one of my regular tools when situations require fast actions. For example a dog turning right in front of you from behind a fence. U-turn is a bit like heeling, but Miki knows to turn right away when he hears the clue.
 

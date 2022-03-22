@@ -3,7 +3,7 @@ title: "Ikean Mula vaunu"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-mula-vaunu/DSC42292-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/ikean-mula-vaunu/DSC42292-245px.jpg
   thumb:
 
 ---
@@ -26,26 +26,26 @@ Samaa voi kokeilla niin, että namit ovat vaunussa palikoiden väleissä.
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-mula-vaunu/DSC42292-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ikean-mula-vaunu/DSC42292-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-mula-vaunu/DSC42352-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ikean-mula-vaunu/DSC42352-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-mula-vaunu/DSC44287-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ikean-mula-vaunu/DSC44287-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-mula-vaunu/DSC42852-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ikean-mula-vaunu/DSC42852-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42855-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/karryn-vetaminen/DSC42855-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42862-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/karryn-vetaminen/DSC42862-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42890-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/karryn-vetaminen/DSC42890-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42919-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/karryn-vetaminen/DSC42919-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC42929-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/karryn-vetaminen/DSC42929-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/karryn-vetaminen/DSC54173-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/karryn-vetaminen/DSC54173-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ikean-mula-vaunu/DSC42357-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ikean-mula-vaunu/DSC42357-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ritila/DSC42191-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ritila/DSC42191-800px.jpg)

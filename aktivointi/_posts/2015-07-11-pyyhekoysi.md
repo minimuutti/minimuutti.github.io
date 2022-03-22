@@ -3,7 +3,7 @@ title: "Pyyheköysi"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pyyhekoysi/DS02416-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/pyyhekoysi/DS02416-245px.jpg
   thumb:
 ---
 
@@ -17,16 +17,16 @@ Mikiltä kestää noin 3 minuuttia saada kaikki nappulat ulos kolmesta köyteen 
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pyyhekoysi/DS02147-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pyyhekoysi/DS02147-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pyyhekoysi/DS02416-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pyyhekoysi/DS02416-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pyyhekoysi/DS02421-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pyyhekoysi/DS02421-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pyyhekoysi/DS02403-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pyyhekoysi/DS02403-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pyyhekoysi/DS02156-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pyyhekoysi/DS02156-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pyyhekoysi/DS02160-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pyyhekoysi/DS02160-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/pyyhekoysi/DS02168-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/pyyhekoysi/DS02168-800px.jpg)

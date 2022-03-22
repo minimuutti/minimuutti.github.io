@@ -3,7 +3,7 @@ title: "Which hand -game"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kumpi-kasi/DSC29523-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/kumpi-kasi/DSC29523-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/which-hand-trick/
@@ -17,6 +17,6 @@ So the whole point of this is that when you get your dog to sniff and guess 50 t
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kumpi-kasi/DSC29521-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kumpi-kasi/DSC29521-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kumpi-kasi/DSC29523-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kumpi-kasi/DSC29523-800px.jpg)

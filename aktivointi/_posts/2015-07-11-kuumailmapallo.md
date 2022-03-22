@@ -3,7 +3,7 @@ title: "Kuumailmapallo"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40554-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/kuumailmapallo/DSC40554-245px.jpg
   thumb:
 
 ---
@@ -18,12 +18,12 @@ Mikiltä kesti pallon pudottaminen noin minuutin.
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40547-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuumailmapallo/DSC40547-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40575-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuumailmapallo/DSC40575-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40554-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuumailmapallo/DSC40554-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40589-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuumailmapallo/DSC40589-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kuumailmapallo/DSC40545-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kuumailmapallo/DSC40545-800px.jpg)

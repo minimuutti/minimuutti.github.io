@@ -3,7 +3,7 @@ title: "Dermosil pullot"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DSC50022-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/dermosil-pullot/DSC50022-245px.jpg
   thumb:
 ---
 
@@ -17,42 +17,42 @@ Mikäli annat tällaisia pulloja koirallesi, niin käytä vain sellaisia pulloja
 
 Yleensä laitan pulloon vain nappuloita, koska pehmeät tai tahmeat herkut olisivat liian vaikeita saada ulos. Mikiltä kestää noin 2-5 minuuttia saada kourallinen nappuloita ulos tuolta.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DSC50023-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DSC50023-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DSC50029-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DSC50029-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DSC50064-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DSC50064-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DSC50092-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DSC50092-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DSC50188-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DSC50188-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DSC50313-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DSC50313-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DSC50388-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DSC50388-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DSC50345-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DSC50345-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DSC50022-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DSC50022-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DS05853-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DS05853-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DS05890-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DS05890-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DS05892-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DS05892-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DS05962-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DS05962-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DS05963-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DS05963-800px.jpg)
 
 Mikäli haluat lisätä haastetta, voi pulloihin laittaa pitkulaisia nameja, jotka on vaikeampi saada ulos. Kannattaa kuitenkin käyttää jotain kuivia nameja että ne on ylipäätään mahdollista saada ulos. Laitoin kapeaan pulloon noin 6 cm pitkän rouhetikun palasen ja Mikiltä kesti noin 2 minuuttia saada se ulos.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DS16315-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DS16315-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DS16280-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DS16280-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DS16300-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DS16300-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DS16319-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DS16319-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dermosil-pullot/DS16331-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dermosil-pullot/DS16331-800px.jpg)

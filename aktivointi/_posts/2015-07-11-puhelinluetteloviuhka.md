@@ -3,7 +3,7 @@ title: "Puhelinluetteloviuhka"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC25474-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/puhelinluetteloviuhka/DSC25474-245px.jpg
   thumb:
 ---
 
@@ -19,12 +19,12 @@ Tämä on siitä kätevä, että voit tehdä viuhkan valmiiksi vaikka viikonlopp
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC25474_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/puhelinluetteloviuhka/DSC25474_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC25478_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/puhelinluetteloviuhka/DSC25478_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC25659_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/puhelinluetteloviuhka/DSC25659_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC38061-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/puhelinluetteloviuhka/DSC38061-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC38063-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/puhelinluetteloviuhka/DSC38063-800px.jpg)

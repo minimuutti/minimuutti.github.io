@@ -3,7 +3,7 @@ title: "Treat wrap"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55799-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/herkkuwrappi/DSC55799-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/treat-wrap/
@@ -19,14 +19,14 @@ It took Miki about a minute to get the treats out.
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55791-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/herkkuwrappi/DSC55791-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55799-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/herkkuwrappi/DSC55799-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55844-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/herkkuwrappi/DSC55844-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55864-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/herkkuwrappi/DSC55864-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55871-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/herkkuwrappi/DSC55871-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuwrappi/DSC55779-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/herkkuwrappi/DSC55779-800px.jpg)

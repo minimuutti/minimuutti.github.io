@@ -3,7 +3,7 @@ title: "Kongs in cups"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC48000-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC48000-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/kongs-in-cups/
@@ -21,20 +21,20 @@ It took Miki about two of minutes to get all the kibble out.
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC47966-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC47966-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC47974-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC47974-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC47968-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC47968-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC47977-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC47977-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC48000-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC48000-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC47957-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC47957-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC48168-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC48168-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC48171-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC48171-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kongit-mukeissa/DSC48179-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC48179-800px.jpg)

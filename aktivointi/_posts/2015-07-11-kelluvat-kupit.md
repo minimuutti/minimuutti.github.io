@@ -3,7 +3,7 @@ title: "Kelluvat kupit"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kelluvat-kupit/DSC39318-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/kelluvat-kupit/DSC39318-245px.jpg
   thumb:
 ---
 
@@ -19,12 +19,12 @@ Tehtävän suorittamiseen kului Mikiltä noin kaksi minuuttia.
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kelluvat-kupit/DSC39307-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kelluvat-kupit/DSC39307-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kelluvat-kupit/DSC39318-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kelluvat-kupit/DSC39318-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kelluvat-kupit/DSC39312-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kelluvat-kupit/DSC39312-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kelluvat-kupit/DSC39344-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kelluvat-kupit/DSC39344-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kelluvat-kupit/DSC39357-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kelluvat-kupit/DSC39357-800px.jpg)

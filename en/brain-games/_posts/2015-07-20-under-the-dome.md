@@ -3,7 +3,7 @@ title: "Under the dome"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58235-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/under-the-dome/DSC58235-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/under-the-dome/
@@ -21,22 +21,22 @@ You can adjust the level of the game a bit by altering how much the towel is out
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58159-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/under-the-dome/DSC58159-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58161-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/under-the-dome/DSC58161-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58174-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/under-the-dome/DSC58174-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58166-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/under-the-dome/DSC58166-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58228-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/under-the-dome/DSC58228-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58255-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/under-the-dome/DSC58255-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58233-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/under-the-dome/DSC58233-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58295-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/under-the-dome/DSC58295-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58234-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/under-the-dome/DSC58234-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/under-the-dome/DSC58235-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/under-the-dome/DSC58235-800px.jpg)

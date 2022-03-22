@@ -3,7 +3,7 @@ title: Do dogs have a sense of self? - Miki and the mirror
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_20160726_101217-245px.jpg
+  teaser: https://b2.minimuutti.com/blogi/IMG_20160726_101217-245px.jpg
   thumb:
 ---
 
@@ -15,7 +15,7 @@ After about two minutes of him looking at the yawning dog from a mirror he raise
 
 It appeared to me like he was trying to figure out if he was looking at himself.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_20160726_101217-800px.jpg)
+![](https://b2.minimuutti.com/blogi/IMG_20160726_101217-800px.jpg)
 
 This photo doens't relate to that event.
 

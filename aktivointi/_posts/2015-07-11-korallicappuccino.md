@@ -3,7 +3,7 @@ title: "KoralliCappuccino"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nescafe-purkki/DS11538-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11538-245px.jpg
   thumb:
 ---
 
@@ -21,25 +21,25 @@ Muutaman helpon tehtävän jälkeen tein niin, että laitoin edelleen nappulat p
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nescafe-purkki/DS11428-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11428-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nescafe-purkki/DS11422-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11422-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nescafe-purkki/DS11430-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11430-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nescafe-purkki/DS11461-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11461-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nescafe-purkki/DS11521-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11521-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nescafe-purkki/DS11538-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11538-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nescafe-purkki/DS11583-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11583-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nescafe-purkki/DS11601-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11601-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nescafe-purkki/DS11636-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11636-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nescafe-purkki/DS11699-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11699-800px.jpg)
 
 Tehtävää voi muuttaa hieman vaikeammaksi. Laitoin ensin nappulat purkin pohjalle, koralleja siihen päälle suht väljästi ja lopuksi pyöräytin teipin purkin suuaukon yli. Laitoin suuaukon kohdalle kaksi teippiä päällekkäin liimapuolet vastakkain, jotta nappulat ja korallit eivät olisi tarttuneet siihen.
 
@@ -47,13 +47,13 @@ Tehtävä oli Mikille aavistuksen vaikeampi, koska purkkia joutui pyörittelemä
 
 Muistathan vahtia koiraasi sen suorittaessa tehtävää, ettei se vahingossa syö tuota teippiä. Teippi pysyy paremmin kiinni kun sen pyöräyttää koko purkin ympäri.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nescafe-purkki/DS39983-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS39983-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nescafe-purkki/DS40009-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS40009-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nescafe-purkki/DS40010-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS40010-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nescafe-purkki/DS40014-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS40014-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/nescafe-purkki/DS40015-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS40015-800px.jpg)
 

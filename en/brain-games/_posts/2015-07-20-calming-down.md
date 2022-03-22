@@ -3,7 +3,7 @@ title: "Calming down"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/rauhoittuminen/DSC14799-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/rauhoittuminen/DSC14799-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/calming-down/
@@ -19,6 +19,6 @@ You can also capture the calm behaviour when the dog is lying on his mat or in h
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/rauhoittuminen/DSC14806_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/rauhoittuminen/DSC14806_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/rauhoittuminen/DSC14799_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/rauhoittuminen/DSC14799_2-800px.jpg)

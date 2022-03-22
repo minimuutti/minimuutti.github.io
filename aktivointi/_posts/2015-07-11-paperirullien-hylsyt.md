@@ -3,7 +3,7 @@ title: "Paperirullien hylsyt"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03018-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03018-245px.jpg
   thumb:
 ---
 
@@ -19,11 +19,11 @@ Hylsyn sisään laitetaan nami tai pari ja hylsyn päät taitellaan kiinni. Hyls
 
 Mikiltä kestää vain parikymmentä sekuntia saada namit ulos teippaamattomasta hylsystä.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC60209-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC60209-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC60211-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC60211-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC60221-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC60221-800px.jpg)
 
 #### Paperipallot hylsyn sisällä
 
@@ -31,9 +31,9 @@ Laitoin 1-2 nappulaa jokaisen paperipallon sisään ja laitoin 4 kpl paperipallo
 
 Mikiltä kesti noin 2 minuuttia saada kaikki nappulat syötyä.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC52305-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC52305-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC52341-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC52341-800px.jpg)
 
 #### Hylsyt laatikossa
 
@@ -47,35 +47,35 @@ Aikakauslehden sivuista sekä kansista on poistettava mahdolliset niitit ennen k
 
 Mikiltä kesti noin 15-20 minuuttia saada kaikki namit syötyä.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS02988-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS02988-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03005-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03005-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03018-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03018-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03093-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03093-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS02966-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS02966-800px.jpg)
 
 Näissä kuvissa näkyy kun laitoin nappulat hylsyjen alle sekä niiden väleihin ja ladoin hylsyjä laatikkoon kolme kerrosta. Mikiltä kesti nappuloiden löytäminen noin 3 minuuttia.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS21262-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS21262-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS21275-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS21275-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS21317-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS21317-800px.jpg)
 
 Laitoin kahden talouspaperirullan hylsyn sisälle nappuloita ja sitten työnsin hylsyt tähän laatikkoon. Teippasin vielä laatikon päädyt kiinni, jotta tehtävästä tuli hieman vaikeampi.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS41301-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS41301-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS41327-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS41327-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS41341-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS41341-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS41363-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS41363-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS41393-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS41393-800px.jpg)
 
 #### Hylsyt laatikossa II
 
@@ -85,11 +85,11 @@ Käyttämääni kenkälaatikkoon meni noin 40 hylsyä ja Mikiltä kesti noin 7 m
 
 Jos sinulla ei ole tarpeeksi tyhjiä rullia tähän tehtävään, niin kannattaa kokeilla tätä saman kaltaista tehtävää "[Paperiset rullat laatikossa](/aktivointi/paperiset-rullat-laatikossa/)".
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS20931-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS20931-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS20996-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS20996-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS21050-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS21050-800px.jpg)
 
 #### Litistetyt hylsyt laatikossa
 
@@ -99,13 +99,13 @@ Mikiltä kesti alle minuutin käännellä laatikkoa niin että nappulat putosiva
 
 Tehtävästä saa tehtyä vaikeamman jos vaihtaa nappulat tahmeampiin nameihin, kuten pehmeisiin ankka- tai kanafileen paloihin.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS39330-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS39330-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS39345-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS39345-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS39353-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS39353-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS39373-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS39373-800px.jpg)
 
 #### Rullatut pikkupyyhkeet hylsyjen sisällä
 
@@ -113,13 +113,13 @@ Rullasin jokaisen pikkupyyhkeen sisälle muutaman pienen kuivatun kanafileen pal
 
 Mikiltä kesti noin 7 minuuttia saada kaikki namit ulos viidesta tällaisesta rullasta.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC59456-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC59456-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC59769-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC59769-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC59808-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC59808-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC59883-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC59883-800px.jpg)
 
 #### Neljä hylsyä viidennen sisällä
 
@@ -129,13 +129,13 @@ Sitten puristin kaikki neljä taiteltua hylsyä kasaan ja tungin ne viidennen hy
 
 Mikiltä kesti noin 4 minuuttia saada kaikki herkut ulos tästä.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03237-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03237-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03260-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03260-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03275-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03275-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03334-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03334-800px.jpg)
 
 #### Lehtirulla hylsyssä
 
@@ -143,11 +143,11 @@ Rullasin mainoslehden sisälle muutamia pieneksileikattuja puolikostean kanafile
 
 Lehdeksi kannattaa valita sellainen minkä sivut on liimattu (ei nidottu). Tai jos käytät nidottua lehteä niin niitit tulee poistaa ennen kuin sen antaa koiralle.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC59470-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC59470-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC60126-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC60126-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC60162-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC60162-800px.jpg)
 
 #### Rullat isoissa mukeissa
 
@@ -155,13 +155,13 @@ Taitoin 4 talouspaperirullan hylsyä puoliksi ja tungin ne neljään isoon mukii
 
 Mikiltä kesti noin 2 minuuttia saada kaikki nappulat syötyä.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03116-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03116-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03153-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03153-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03193-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03193-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03198-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03198-800px.jpg)
 
 #### Rullat namiämpäreissä
 
@@ -171,17 +171,17 @@ Rullat mahtuvat ämpäriin juuri ja juuri, joten ne pitävät nuo ämpärit hyvi
 
 Mikiltä kesti vajaan minuutin saada namit ulos.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS12318-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS12318-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS12458-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS12458-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS12388-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS12388-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS12399-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS12399-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS12411-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS12411-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS12452-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS12452-800px.jpg)
 
 #### Rullat hyllyn alla
 
@@ -197,17 +197,17 @@ Tässä tehtävässä voit käyttää muitakin huonekaluja, kuten esimerkiksi so
 
 Mikiltä kesti namien saaminen ulos näistä viidestä rullasta noin 9 minuuttia.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/tp_kollaasi-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/tp_kollaasi-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13683-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13683-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13699-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13699-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13704-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13704-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13876-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13876-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13787-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13787-800px.jpg)
 
 #### Kuusikulmio fleecellä
 
@@ -217,17 +217,17 @@ Leikkasin noin 70cm pitkän lahjapaperirullan hylsyn kuuteen osaan ja pujotin vi
 
 Mikiltä kesti noin 6 minuuttia saada kaikki namit ulos.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03338_-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03338_-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03352-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03352-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03389-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03389-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03482-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03482-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03565-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03565-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03609-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03609-800px.jpg)
 
 #### Lahjapaketoidut hylsyt
 
@@ -237,15 +237,15 @@ Laitoin nappuloita sekä muutamia nameja rullien sisälle. Käärin rullat yksit
 
 Mikiltä kesti kahden paketoidun hylsyn tuhoaminen noin 4 minuuttia.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13533-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13533-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13544-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13544-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13571-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13571-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13603-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13603-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13647-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13647-800px.jpg)
 
 #### Rengaspallot
 
@@ -253,15 +253,15 @@ Leikkasin muutaman talouspaperirullan hylsyn kapeiksi renkaiksi. Pujotin 4-5 ren
 
 Mikiltä kesti kuuden pikkupaketin tuhoaminen noin 2-3 minuuttia.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14255-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14255-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14265-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14265-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14342-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14342-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14348-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14348-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14402-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14402-800px.jpg)
 
 #### Renkaat mukissa
 
@@ -269,19 +269,19 @@ Edellisestä tehtävästä jääneet ehjät renkaat voi käyttää uudelleen kun
 
 Laitoin mukien pohjalle muutaman pienen namin ja kasan renkaita siihen päälle esteeksi.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14422-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14422-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14437-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14437-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14463-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14463-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14483-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14483-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14486-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14486-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14535-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14535-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14551-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14551-800px.jpg)
 
 #### Foliorullan hylsy
 
@@ -289,12 +289,12 @@ Leikkasin foliorullan hylsystä noin 15 sentin mittaisen pätkän. Taitoin yhden
 
 Mikiltä kesti noin 5 minuuttia saada ne herkut ulos sieltä.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC41076-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC41076-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC41122-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC41122-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC41270-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC41270-800px.jpg)
 
 Paperirullien hylsyjä on käytetty myös [Palloputket](/aktivointi/palloputket/) tehtävässä.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/palloputket/DS38807-800px.jpg)](/aktivointi/palloputket/)
+[![](https://b2.minimuutti.com/aktivointi/palloputket/DS38807-800px.jpg)](/aktivointi/palloputket/)

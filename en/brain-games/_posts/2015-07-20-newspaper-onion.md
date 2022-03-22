@@ -3,7 +3,7 @@ title: "Newspaper onion"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sanomalehtisipuli/DSC37764-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/sanomalehtisipuli/DSC37764-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/newspaper-onion/
@@ -23,12 +23,12 @@ And for the same reason you might not want to give this to your dog every day be
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sanomalehtisipuli/DSC37686-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/sanomalehtisipuli/DSC37686-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sanomalehtisipuli/DSC37688-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/sanomalehtisipuli/DSC37688-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sanomalehtisipuli/DSC37787-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/sanomalehtisipuli/DSC37787-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sanomalehtisipuli/DSC37764-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/sanomalehtisipuli/DSC37764-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/sanomalehtisipuli/DSC37824-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/sanomalehtisipuli/DSC37824-800px.jpg)

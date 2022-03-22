@@ -3,7 +3,7 @@ title: "Flexitaluttimen vaarallisuus"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/muut/Image_-245px.jpg
+  teaser: https://b2.minimuutti.com/muut/Image_-245px.jpg
   thumb:
 ---
 
@@ -19,6 +19,6 @@ Jokainen meistä rakastaa koiraansa ja viimeistään nyt on aika vaihtaa vaarall
 
 R.I.P.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/Image.jpg)
+![](https://b2.minimuutti.com/blogi/Image.jpg)
 
 16.12.2016

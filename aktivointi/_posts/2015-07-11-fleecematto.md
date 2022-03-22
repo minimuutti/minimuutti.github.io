@@ -3,7 +3,7 @@ title: "Fleecematto"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16409-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/fleecematto/DS16409-245px.jpg
   thumb:
 ---
 
@@ -25,18 +25,18 @@ Kun tehtävän antaa koiralle ensimmäistä kertaa, niin nappulat tai herkkupala
 
 Tehtävässä kannattaa käyttää vain kuivia nameja tai nappuloita. Pyyhkeeseen tehdyn maton etu on se, että maton voi laittaa pesupussissa pyykkikoneeseen, kun taas kumisen maton voi joutua pesemään käsin.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16645-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/fleecematto/DS16645-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16649-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/fleecematto/DS16649-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16370-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/fleecematto/DS16370-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16386-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/fleecematto/DS16386-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16409-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/fleecematto/DS16409-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16401-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/fleecematto/DS16401-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/DS16431-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/fleecematto/DS16431-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/fleecematto/fleecematto_kollaasi-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/fleecematto/fleecematto_kollaasi-800px.jpg)

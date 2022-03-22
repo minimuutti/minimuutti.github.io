@@ -3,7 +3,7 @@ title: "Spin the disk"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57855-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/kiekon-pyoritys/DSC57855-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/spin-the-disk/
@@ -26,18 +26,18 @@ I used small pieces of duck fillet, because they were flat enough to fit in the 
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57798-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kiekon-pyoritys/DSC57798-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57802-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kiekon-pyoritys/DSC57802-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57812-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kiekon-pyoritys/DSC57812-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57866-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kiekon-pyoritys/DSC57866-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57855-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kiekon-pyoritys/DSC57855-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57772-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kiekon-pyoritys/DSC57772-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57789-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kiekon-pyoritys/DSC57789-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57795-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kiekon-pyoritys/DSC57795-800px.jpg)

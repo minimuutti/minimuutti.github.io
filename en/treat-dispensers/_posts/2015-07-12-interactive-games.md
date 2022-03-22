@@ -3,7 +3,7 @@ title: "Interactive games"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04272_-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/paperikuplat/DS04272_-245px.jpg
   thumb:
 ---
 
@@ -19,22 +19,22 @@ Instead of buying those expensive games from a pet store, try one of these games
 
 You can read the full post by clicking the small icons.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/flippailu/DS060441-245px.jpg)](/en/brain-games/flippin-it/)
+[![](https://b2.minimuutti.com/aktivointi/flippailu/DS060441-245px.jpg)](/en/brain-games/flippin-it/)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiekon-pyoritys/DSC57855-245px.jpg)](/en/brain-games/spin-the-disk/)
+[![](https://b2.minimuutti.com/aktivointi/kiekon-pyoritys/DSC57855-245px.jpg)](/en/brain-games/spin-the-disk/)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/koydenveto/DSC55402-245px.jpg)](/en/brain-games/tug-of-war/)
+[![](https://b2.minimuutti.com/aktivointi/koydenveto/DSC55402-245px.jpg)](/en/brain-games/tug-of-war/)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kurkkaa-koloon/DSC34707-245px.jpg)](/en/brain-games/peek-a-hole/)
+[![](https://b2.minimuutti.com/aktivointi/kurkkaa-koloon/DSC34707-245px.jpg)](/en/brain-games/peek-a-hole/)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/levysoittimet/DSC54548-245px.jpg)](/en/brain-games/turntables/)
+[![](https://b2.minimuutti.com/aktivointi/levysoittimet/DSC54548-245px.jpg)](/en/brain-games/turntables/)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muki-tuubissa/DSC56649-245px.jpg)](/en/brain-games/cup-in-the-tube/)
+[![](https://b2.minimuutti.com/aktivointi/muki-tuubissa/DSC56649-245px.jpg)](/en/brain-games/cup-in-the-tube/)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04272_-245px.jpg)](/en/brain-games/reversed-muffin-tray/)
+[![](https://b2.minimuutti.com/aktivointi/paperikuplat/DS04272_-245px.jpg)](/en/brain-games/reversed-muffin-tray/)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/putoilevat-namit/DSC51366-245px.jpg)](/en/brain-games/falling-treats/)
+[![](https://b2.minimuutti.com/aktivointi/putoilevat-namit/DSC51366-245px.jpg)](/en/brain-games/falling-treats/)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/onginta/DS15029-245px.jpg)](/en/brain-games/gone-fishin/)
+[![](https://b2.minimuutti.com/aktivointi/onginta/DS15029-245px.jpg)](/en/brain-games/gone-fishin/)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tuubin-pyoritys/DS23531-245px.jpg)](/en/brain-games/high-roller/)
+[![](https://b2.minimuutti.com/aktivointi/tuubin-pyoritys/DS23531-245px.jpg)](/en/brain-games/high-roller/)

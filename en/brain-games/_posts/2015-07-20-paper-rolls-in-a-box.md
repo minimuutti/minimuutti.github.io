@@ -3,7 +3,7 @@ title: "Paper rolls in a box"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperiset-rullat-laatikossa/DS04457-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/paperiset-rullat-laatikossa/DS04457-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/paper-rolls-in-a-box/
@@ -23,16 +23,16 @@ On the first time it took Miki over 10 minutes to find all the kibble.
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperiset-rullat-laatikossa/DS04462-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperiset-rullat-laatikossa/DS04462-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperiset-rullat-laatikossa/DS04490-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperiset-rullat-laatikossa/DS04490-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperiset-rullat-laatikossa/DS04512-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperiset-rullat-laatikossa/DS04512-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperiset-rullat-laatikossa/DS04614-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperiset-rullat-laatikossa/DS04614-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperiset-rullat-laatikossa/DS04631-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperiset-rullat-laatikossa/DS04631-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperiset-rullat-laatikossa/DS04453-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperiset-rullat-laatikossa/DS04453-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperiset-rullat-laatikossa/DS04457-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperiset-rullat-laatikossa/DS04457-800px.jpg)

@@ -3,7 +3,7 @@ title: "Reversed muffin tray"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04272_-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/paperikuplat/DS04272_-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/reversed-muffin-tray/
@@ -31,24 +31,24 @@ This game was easy for Miki and it took only couple of seconds before the first 
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04270-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperikuplat/DS04270-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04272_-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperikuplat/DS04272_-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04286-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperikuplat/DS04286-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04288-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperikuplat/DS04288-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04295-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperikuplat/DS04295-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04296-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperikuplat/DS04296-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04345-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperikuplat/DS04345-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/Kollaasi_paperikuplat-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperikuplat/Kollaasi_paperikuplat-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04264-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperikuplat/DS04264-800px.jpg)
 
 The result:
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperikuplat/DS04390-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperikuplat/DS04390-800px.jpg)

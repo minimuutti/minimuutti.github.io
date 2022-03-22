@@ -3,7 +3,7 @@ title: "Empty paper rolls"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03018-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03018-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/empty-paper-rolls/
@@ -20,19 +20,19 @@ You should only give rolls made from cardboard to your dog. Never give those whi
 
 I put a treat inside the roll and then pushed both ends shut. It took Miki like 20 seconds to get the treat out. You can make this harder by securing both ends with masking tape.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC60209-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC60209-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC60211-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC60211-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC60221-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC60221-800px.jpg)
 
 #### Roll with paper balls
 
 I put a kibble or two in each paperball and then I put four paperballs in the roll. It took Miki about 2 minutes to get the kibble out.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC52305-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC52305-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC52341-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC52341-800px.jpg)
 
 #### Rolls in a box
 
@@ -44,35 +44,35 @@ If you have lots of empty rolls and a bigger box, you can put several layers of 
 
 It took Miki about 15-20 minutes to get all the kibble out.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS02988-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS02988-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03005-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03005-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03018-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03018-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03093-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03093-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS02966-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS02966-800px.jpg)
 
 This time I put the kibble on the bottom of the box and then laid three layers of rolls on top. It took Miki about three minutes to eat all the kibble.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS21262-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS21262-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS21275-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS21275-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS21317-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS21317-800px.jpg)
 
 You can put as many paper rolls as needed to fill a carton package. I put some kibble in two paper rolls and then I pushed them into a carton package. I secured the ends with a piece of tape to make it more difficult.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS41301-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS41301-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS41327-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS41327-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS41341-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS41341-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS41363-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS41363-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS41393-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS41393-800px.jpg)
 
 #### Rolls in a box II
 
@@ -82,11 +82,11 @@ It took Miki about 7 minutes to eat all the kibble.
 
 If you don't have enough empty rolls for this game, you can try this similar game "[Paper rolls in a box](/en/brain-games/paper-rolls-in-a-box/)".
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS20931-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS20931-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS20996-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS20996-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS21050-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS21050-800px.jpg)
 
 #### Flattened rolls in a box
 
@@ -96,13 +96,13 @@ It took Miki under a minute to roll the box so that all the kibble fell out.
 
 You can make this game harder by replacing the kibble with some sticky treats like pieces of semi-moist chicken fillet.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS39330-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS39330-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS39345-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS39345-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS39353-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS39353-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS39373-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS39373-800px.jpg)
 
 #### Rolls with small towels
 
@@ -110,13 +110,13 @@ I cut small pieces of chicken fillet and rolled a couple of pieces in each towel
 
 It took Miki about 7 minutes to get the treats out from 5 rolls.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC59456-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC59456-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC59769-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC59769-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC59808-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC59808-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC59883-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC59883-800px.jpg)
 
 #### Four rolls inside a fifth one
 
@@ -124,13 +124,13 @@ First I folded four tp rolls. Then I cut strings from semi-moist duck fillet and
 
 It took Miki about 4 minutes to get all the treats out.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03237-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03237-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03260-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03260-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03275-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03275-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03334-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03334-800px.jpg)
 
 #### Roll with rolled magazine
 
@@ -138,11 +138,11 @@ I put small pieces of semi-moist chicket fillet inside a magazine. Then I rolled
 
 You should only use magazines that bind using glue, not stapled. If you only have stapled magazines, then you should remove the staples before you give the magazine to your dog.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC59470-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC59470-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC60126-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC60126-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC60162-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC60162-800px.jpg)
 
 #### Rolls in large cups
 
@@ -150,13 +150,13 @@ I folded four rolls in half and pushed them into four large cups. Then I placed 
 
 It took Miki about 2 minutes to get all the kibble out.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03116-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03116-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03153-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03153-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03193-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03193-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03198-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03198-800px.jpg)
 
 #### Rolls in treat buckets
 
@@ -166,17 +166,17 @@ Three rolls fits just into the bucket, so you don't need to attach the buckets t
 
 It took Miki just under a minute to get the kibble out.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS12318-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS12318-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS12458-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS12458-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS12388-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS12388-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS12399-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS12399-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS12411-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS12411-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS12452-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS12452-800px.jpg)
 
 #### Rolls under a bookshelf
 
@@ -192,17 +192,17 @@ You can use other furniture as well for example a coffee table. The piece of fur
 
 It took Miki about 9 minutes to get all the treats out from five rolls.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/tp_kollaasi-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/tp_kollaasi-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13683-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13683-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13699-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13699-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13704-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13704-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13876-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13876-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13787-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13787-800px.jpg)
 
 #### Fleece hexagon
 
@@ -212,17 +212,17 @@ I cut about a 70cm long gift wrap roll into six short rolls. Then I pushed five 
 
 It took Miki about 6 minutes to get the treats out.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03338_-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03338_-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03352-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03352-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03389-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03389-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03482-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03482-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03565-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03565-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS03609-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS03609-800px.jpg)
 
 #### Gift wrapped rolls
 
@@ -232,15 +232,15 @@ First I put kibble and some treats inside the rolls. Then I gift wrapped them wi
 
 It took Miki about 4 minutes to get all the treats out.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13533-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13533-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13544-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13544-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13571-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13571-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13603-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13603-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS13647-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS13647-800px.jpg)
 
 #### Ring balls
 
@@ -248,33 +248,33 @@ I cut some empty rolls to rings. Then I inserted about 4-5 rings into the others
 
 It took Miki about 2-3 minutes to get the treats out from 6 balls.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14255-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14255-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14265-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14265-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14342-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14342-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14348-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14348-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14402-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14402-800px.jpg)
 
 #### Rings in cups
 
 Any rings left from the previous game can be used in this game. I put some small treats on the bottom of the cups and then pushed the rings on top.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14422-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14422-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14437-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14437-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14463-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14463-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14483-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14483-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14486-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14486-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14535-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14535-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DS14551-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DS14551-800px.jpg)
 
 #### Tin foil roll
 
@@ -282,12 +282,12 @@ I cut about 15 cm (5") long piece of empty tin foil roll. Then I took one sticky
 
 It took Miki about 5 minutes to get the treats out.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC41076-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC41076-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC41122-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC41122-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/paperirullien-hylsyt/DSC41270-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/paperirullien-hylsyt/DSC41270-800px.jpg)
 
 Empty paper rolls are also used in the [Dumbbells](/en/brain-games/dumbbells/) game.
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/palloputket/DS38807-800px.jpg)](/en/brain-games/dumbbells/)
+[![](https://b2.minimuutti.com/aktivointi/palloputket/DS38807-800px.jpg)](/en/brain-games/dumbbells/)

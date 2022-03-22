@@ -3,7 +3,7 @@ title: "Namien piilotus asuntoon"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30804-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/namien-piilotus-asuntoon/DSC30804-245px.jpg
   thumb:
 ---
 
@@ -19,10 +19,10 @@ Vaihtelua tähän leikkiin saa laittamalla namit ensin paperipallojen sisälle, 
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30802-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-piilotus-asuntoon/DSC30802-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30814-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-piilotus-asuntoon/DSC30814-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30810-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-piilotus-asuntoon/DSC30810-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-piilotus-asuntoon/DSC30804-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-piilotus-asuntoon/DSC30804-800px.jpg)

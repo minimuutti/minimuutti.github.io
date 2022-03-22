@@ -3,7 +3,7 @@ title: "Namien poiminta vedestä"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC39375-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC39375-245px.jpg
   thumb:
 ---
 
@@ -20,14 +20,14 @@ Tehtävää voi myös vaikeuttaa laittamalla vatiin tennispalloja tai muita este
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC30685_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC30685_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC30702_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC30702_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC39375-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC39375-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC39414-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC39414-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC39418-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC39418-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/namien-poiminta-vedesta/DSC39402-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC39402-800px.jpg)

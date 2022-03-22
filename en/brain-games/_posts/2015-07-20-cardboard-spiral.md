@@ -3,7 +3,7 @@ title: "Cardboard spiral"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53683-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/aaltopahvispiraali/DSC53683-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/cardboard-spiral/
@@ -19,18 +19,18 @@ It took Miki about 6 minutes to get all the treats out.
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53679-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/aaltopahvispiraali/DSC53679-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53683-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/aaltopahvispiraali/DSC53683-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53727-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/aaltopahvispiraali/DSC53727-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53702-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/aaltopahvispiraali/DSC53702-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53764-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/aaltopahvispiraali/DSC53764-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53866-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/aaltopahvispiraali/DSC53866-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53877-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/aaltopahvispiraali/DSC53877-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahvispiraali/DSC53839-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/aaltopahvispiraali/DSC53839-800px.jpg)

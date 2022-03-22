@@ -3,7 +3,7 @@ title: "Phonebook fan"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC25474-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/puhelinluetteloviuhka/DSC25474-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/phonebook-fan/
@@ -17,12 +17,12 @@ In the first time it took Miki about ten minutes to "read" the book and to find 
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC25474_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/puhelinluetteloviuhka/DSC25474_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC25478_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/puhelinluetteloviuhka/DSC25478_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC25659_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/puhelinluetteloviuhka/DSC25659_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC38061-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/puhelinluetteloviuhka/DSC38061-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/puhelinluetteloviuhka/DSC38063-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/puhelinluetteloviuhka/DSC38063-800px.jpg)

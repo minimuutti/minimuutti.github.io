@@ -3,7 +3,7 @@ title: "Piiloleikki"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/muut/Kuva tulossa pian.jpg
+  teaser: https://b2.minimuutti.com/muut/Kuva tulossa pian.jpg
   thumb:
 ---
 

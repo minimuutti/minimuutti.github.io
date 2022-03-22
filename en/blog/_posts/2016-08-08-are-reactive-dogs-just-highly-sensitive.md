@@ -3,7 +3,7 @@ title: Are reactive dogs just highly sensitive?
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_1943-245px.jpg
+  teaser: https://b2.minimuutti.com/blogi/IMG_1943-245px.jpg
   thumb:
 ---
 
@@ -36,12 +36,12 @@ In my experience the reasons for the (bad) behaviour on reactive dogs – and fo
 
 In the pictures below Miki is about 6 months old and he's lunging on the leash trying to banish an oncoming dog. At that time I still believed in the pack leader method and as you can see the correcting and scolding wasn't efficient. In fact it was useless and made the experience for Miki even worse.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_1932-800px.jpg)
+![](https://b2.minimuutti.com/blogi/IMG_1932-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/IMG_1943-800px.jpg)
+![](https://b2.minimuutti.com/blogi/IMG_1943-800px.jpg)
 
 Nowadays I train only with positive methods such as rewarding right behaviours and the aggressive behaviours have vanished almost completely.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/blogi/DSC25924-800px.jpg)
+![](https://b2.minimuutti.com/blogi/DSC25924-800px.jpg)
 
 2016-08-08

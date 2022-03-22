@@ -3,7 +3,7 @@ title: "Cup doughnut"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/mukidonitsi/DSC38826-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC38826-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/cup-doughnut/
@@ -19,22 +19,22 @@ I made this game as cup tower too. I took 6 of these cups and wired them with a 
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/mukidonitsi/DSC38826-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC38826-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/mukidonitsi/DSC38828-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC38828-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/mukidonitsi/DSC38847-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC38847-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/mukidonitsi/DSC38923-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC38923-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/mukidonitsi/DSC38964-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC38964-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/mukidonitsi/DSC39079-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC39079-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/mukidonitsi/DSC39125-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC39125-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/mukidonitsi/DSC40762-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC40762-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/mukidonitsi/DSC40773-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC40773-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/mukidonitsi/DSC40815-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC40815-800px.jpg)

@@ -3,7 +3,7 @@ title: "Ajanvietettä toipilaalle"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37405-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37405-245px.jpg
   thumb:
 ---
 
@@ -23,35 +23,35 @@ Ripulin tai vatsataudin alkupäivinä koiralle usein kehotetaan juottamaan vain 
 
 Meidän Yrjö "Viidakon Ykä" Laattala (siis Miki) oli alla näkyvissä kuvissa nestepainotteisella kana+riisi ruokavaliolla oksentelun vuoksi, joten soseutin kanat ja riisit ja sekoitin joukkoon riisin keitinvettä ennen kuin täytin muotin.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/IMG_20151213_183733-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/IMG_20151213_183733-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/IMG_20151213_183756-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/IMG_20151213_183756-800px.jpg)
 
 Taudin hellittäessä en enää soseuttanut noita, vaan laitoin suoraan kana+riisi+raejuustoseosta muotteihin. Tähden malliset tai muun malliset muotit antavat koiralle vähän enemmän haastetta kuin nuo pyöreät.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS10526-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS10526-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS10540-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS10540-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS10565-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS10565-800px.jpg)
 
 Kerran ripuliviikon jälkeen kun Mikillä riitti energiaa emmekä voineet kuitenkaan vielä tehdä normaaleja lenkkejä, niin päätin pakastaa jääpalamuotit, joihin olin soseuttanut tuon kana+riisi+raejuustosekoituksen. Pakastin sitä vaikeasti nuoltavaan muottiin, jonka kolot ovat suht pienet ja mansikan malliset ja Mikillä riitti tekemistä sen kanssa noin 10-15 minuutiksi.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37158-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37158-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37166-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37166-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37187-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37187-800px.jpg)
 
 ## Joulukalenteri
 
 Olen pakastanut tuota sosetta myös suklaakalenterista otettuun muottiin, joka on myös aika vaikea nuolla puhtaaksi. Mikillä kuluu sen kanssa aikaa noin 5-10 minuuttia, riippuen siitä olenko laittanut sosetta jokaiseen koloon vai esimerkiksi vaan joka toiseen.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37106-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37106-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37110-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37110-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37140-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37140-800px.jpg)
 
 ## Pakastettu Kongi
 
@@ -61,7 +61,7 @@ Kongeihinkin voi pakastaa tuota riisi+kana+raejuustomössöä sellaisenaan tai s
 
 Mikille yleensä annetaan jotain pitkään pureskeltavaa herkkua kun poistumme kotoa, jotta se ei stressaannu lähdöstämme. Toipilasaikana nämä pakastetut Kongit ovat aivan korvaamattomia koska normaaleita pureskeltavia herkkuja ei voi antaa.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37157-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37157-800px.jpg)
 
 ## Pesupallot
 
@@ -73,21 +73,21 @@ Laitan pesupalloihin ruokaa noin 2 lusikallista, eli täytän ne suunnilleen puo
 
 Miki ainakin levittää jonkun verran riisiä lattialle, kun se nuolee ja pyörittelee noita pesupalloja. Onneksi Miki on niin ahne ruualle, että se myös sitten siivoaa jälkensä eli kerää joka ikisen riisin lattialta suuhunsa :D
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37385-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37385-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37405-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37405-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37440-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37440-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37475-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37475-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37481-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37481-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37520-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37520-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37536-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37536-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37551-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37551-800px.jpg)
 
 ## Mukit korissa
 
@@ -97,17 +97,17 @@ Jaoin Mikin ruoka-annoksen kuuteen muovimukiin ja kuuteen pahvimukiin. Lopuksi v
 
 Mikiltä kesti yllättävän kauan saada kaikki ruoka ulos noista kahdestatoista mukista, melkein 20 minuuttia.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37613-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37613-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37623-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37623-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37639-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37639-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37651-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37651-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37630-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37630-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37698-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37698-800px.jpg)
 
 ## Hotkimista ehkäisevät ruokakupit
 
@@ -115,15 +115,15 @@ Nyt jos koskaan on oikea hetki kaivaa hotkimista estävä ruokakuppi kaapista.
 
 Meillä harvemmin annetaan Mikille mitään ruokaa kupista, mutta kana+riisiseos annetaan silloin tällöin tästä [Northmate Green](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/lelut/aktivointilelut/alypelit/408791)) kupista. Yhden annoksen syöminen tästä kestää Mikiltä noin 5-10 minuuttia.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS37557-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS37557-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS37568-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS37568-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS37579-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS37579-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS37600-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS37600-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS37606-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS37606-800px.jpg)
 ## Ikean Drömmar
 
 Ikean Drömmar muottisetti maksaa murto-osan tuosta Northmaten ruokakupista, mutta on märkäruuan kanssa vähintään yhtä hyvä, ellei jopa parempi.
@@ -132,12 +132,12 @@ Asettelin pestyt muotin osat tuonne setin säilytysrasian pohjalle ja lappasin r
 
 Mikiltä kesti noin 10 minuuttia syödä kaikki ruoka tästä.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37739-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37739-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37744-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37744-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37785-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37785-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37794-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37794-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/ajanvietetta-toipilaalle/DS37826-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37826-800px.jpg)

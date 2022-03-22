@@ -3,7 +3,7 @@ title: "Carton and plastic packages"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kartonkipakkaukset/DSC25797-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/kartonkipakkaukset/DSC25797-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/carton-and-plastic-packages/
@@ -19,21 +19,21 @@ If this is too easy for your dog, you can hang these packages from trees, railin
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kartonkipakkaukset/DSC25797-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kartonkipakkaukset/DSC25797-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kartonkipakkaukset/DSC32143-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kartonkipakkaukset/DSC32143-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kartonkipakkaukset/DS04409-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kartonkipakkaukset/DS04409-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kartonkipakkaukset/DS04438-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kartonkipakkaukset/DS04438-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kartonkipakkaukset/DSC33827-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kartonkipakkaukset/DSC33827-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kartonkipakkaukset/DSC56453-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kartonkipakkaukset/DSC56453-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kartonkipakkaukset/DSC56545-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kartonkipakkaukset/DSC56545-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kartonkipakkaukset/DSC57932-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kartonkipakkaukset/DSC57932-800px.jpg)
 
 ### Plastic packages
 
@@ -45,15 +45,15 @@ When I put some kibble in these it takes Miki a couple of minutes to get them ou
 
 If you want to make the game harder you can secure the packages with a piece of masking tape.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muovipakkaukset/DS36399-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS36399-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muovipakkaukset/DS36397-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS36397-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muovipakkaukset/DS36405-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS36405-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muovipakkaukset/DS36413-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS36413-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muovipakkaukset/DS36463-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS36463-800px.jpg)
 
 ##### Ball package
 
@@ -63,16 +63,16 @@ Kibble would have fell straight out so I used thinly sliced duck fillet instead.
 
 I took Miki about 4 minutes to get the duck slices out.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muovipakkaukset/DS21987-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS21987-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muovipakkaukset/DS22003-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS22003-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muovipakkaukset/DS22062-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS22062-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muovipakkaukset/DS22068-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS22068-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muovipakkaukset/DS22150-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS22150-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muovipakkaukset/DS22171-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS22171-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/muovipakkaukset/DS22184-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS22184-800px.jpg)

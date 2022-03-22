@@ -3,7 +3,7 @@ title: "Kong Wobbler"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC12971-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointilelut/kongit/DSC12971-245px.jpg
   thumb:
 ---
 
@@ -21,18 +21,18 @@ Olen kokeillut laittaa lelun sisään myös [Space Ball Stellaron](/aktivointile
 
 Voin lämpimästi suositella tätä lelua. Tämä kuvissa näkyvä lelu on meillä käytössä viikottain eikä lelu näytä mitään kulumisen merkkejä vaikka sen on meillä käytössä jo vuosia.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC12846_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC12846_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC12971_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC12971_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DSC57921-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC57921-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS41310-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DS41310-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/kongit/DS60245-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/kongit/DS60245-800px.jpg)
 
 Tätä lelua on käytetty myös tehtävässä: 
 
 [Itsevarmuusbuusteri](/aktivointi/itsevarmuusbuusteri/)
 
-[![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/itsevarmuusbuusteri/DS33929-800px.jpg)](/aktivointi/itsevarmuusbuusteri/)
+[![](https://b2.minimuutti.com/aktivointi/itsevarmuusbuusteri/DS33929-800px.jpg)](/aktivointi/itsevarmuusbuusteri/)

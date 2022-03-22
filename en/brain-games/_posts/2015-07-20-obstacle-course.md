@@ -3,7 +3,7 @@ title: "Obstacle course"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC58098_-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/esterata/DSC58098_-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/obstacle-course/
@@ -27,22 +27,22 @@ Miki loved this game so much, that he didn't have patience to wait while the oth
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC58098_-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esterata/DSC58098_-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC58046-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esterata/DSC58046-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC58047-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esterata/DSC58047-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC57978-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esterata/DSC57978-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC57985-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esterata/DSC57985-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC58011-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esterata/DSC58011-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC57944-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esterata/DSC57944-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC57946-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esterata/DSC57946-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC57964-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esterata/DSC57964-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/esterata/DSC57968-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/esterata/DSC57968-800px.jpg)

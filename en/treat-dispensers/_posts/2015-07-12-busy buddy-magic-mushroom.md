@@ -3,7 +3,7 @@ title: "Busy Buddy Magic Mushroom"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS17437_-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointilelut/muut/DS17437_-245px.jpg
   thumb:
 ---
 
@@ -21,21 +21,21 @@ It took Miki over 15 minutes to get all the kibble out.
 
 Couple of years later Miki learned to open this toy, althougt it has a screw-on lid, amazing.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS16936-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS16936-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS17017-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS17017-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS16993-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS16993-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS17227-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS17227-800px.jpg)
 
 Open sesame? :D
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS17266-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS17266-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS17276-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS17276-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS17299-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS17299-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS17329-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS17329-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS17437-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS17437-800px.jpg)

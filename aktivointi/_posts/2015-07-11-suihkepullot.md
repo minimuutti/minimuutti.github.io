@@ -3,7 +3,7 @@ title: "Suihkepullot"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/suihkepullot/DS00081-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/suihkepullot/DS00081-245px.jpg
   thumb:
 ---
 Suihkepullot ovat ajastaan jälkeen jääneitä koiran koulutuksessa, mutta aktivointileluiksi ne sopivat täydellisesti.
@@ -16,28 +16,28 @@ Mikiltä kestää noin 1-2 minuuttia saada kourallinen nappuloita ulos pullosta.
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/suihkepullot/DS00026-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/suihkepullot/DS00026-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/suihkepullot/DS00035-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/suihkepullot/DS00035-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/suihkepullot/DS00037-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/suihkepullot/DS00037-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/suihkepullot/DS00058-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/suihkepullot/DS00058-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/suihkepullot/DS00081-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/suihkepullot/DS00081-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/suihkepullot/DS00002-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/suihkepullot/DS00002-800px.jpg)
 
 Tässä pullossa on kapeampi suuaukko, joten se on astetta haastavampi.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/suihkepullot/DS57121-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/suihkepullot/DS57121-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/suihkepullot/DS57126-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/suihkepullot/DS57126-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/suihkepullot/DS57138-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/suihkepullot/DS57138-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/suihkepullot/DS57206-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/suihkepullot/DS57206-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/suihkepullot/DS57255-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/suihkepullot/DS57255-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/suihkepullot/DS57256-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/suihkepullot/DS57256-800px.jpg)

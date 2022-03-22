@@ -3,7 +3,7 @@ title: "Buster Food Cube"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36165-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointilelut/muut/DS36165-245px.jpg
   thumb:
 ---
 
@@ -21,14 +21,14 @@ Valitettavasti lelun toimivuus käytännössä ei vastannut läheskään odotuks
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36159-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS36159-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36165-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS36165-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36188-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS36188-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36201-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS36201-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36227-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS36227-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointilelut/muut/DS36232-800px.jpg)
+![](https://b2.minimuutti.com/aktivointilelut/muut/DS36232-800px.jpg)

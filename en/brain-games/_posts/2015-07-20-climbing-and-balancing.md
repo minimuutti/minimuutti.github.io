@@ -3,7 +3,7 @@ title: "Climbing and balancing"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/2/DSC29282-245px.jpg
+  teaser: https://b2.minimuutti.com/mikin-kuvat/2/DSC29282-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/climbing-and-balancing/
@@ -19,16 +19,16 @@ You always need to make sure that the thing you require your dog to jump on or t
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/2/DSC29282-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/2/DSC29282-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiipeaminen-ja-tasapainoilu/DSC29291_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kiipeaminen-ja-tasapainoilu/DSC29291_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/2/DSC07458-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/2/DSC07458-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiipeaminen-ja-tasapainoilu/DSC02974_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kiipeaminen-ja-tasapainoilu/DSC02974_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/mikin-kuvat/3/DSC13827-800px.jpg)
+![](https://b2.minimuutti.com/mikin-kuvat/3/DSC13827-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiipeaminen-ja-tasapainoilu/DSC25473_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kiipeaminen-ja-tasapainoilu/DSC25473_2-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kiipeaminen-ja-tasapainoilu/DSC23866_2-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kiipeaminen-ja-tasapainoilu/DSC23866_2-800px.jpg)

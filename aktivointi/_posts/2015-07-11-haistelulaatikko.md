@@ -3,7 +3,7 @@ title: "Haistelulaatikko"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/haistelulaatikko/DS41144-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/haistelulaatikko/DS41144-245px.jpg
   thumb:
 ---
 
@@ -19,18 +19,18 @@ Piilotin kerrallaan aina noin 5 nappulaa Mikille etsitt채v채ksi fleecematon sek�
 
 T채m채 oli t채ydellinen teht채v채 sadep채iv채n iloksi.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/haistelulaatikko/DS41013-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/haistelulaatikko/DS41013-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/haistelulaatikko/DS40996-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/haistelulaatikko/DS40996-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/haistelulaatikko/DS41005-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/haistelulaatikko/DS41005-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/haistelulaatikko/DS41030-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/haistelulaatikko/DS41030-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/haistelulaatikko/DS41037-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/haistelulaatikko/DS41037-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/haistelulaatikko/DS41144-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/haistelulaatikko/DS41144-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/haistelulaatikko/DS41184-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/haistelulaatikko/DS41184-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/haistelulaatikko/DS41165-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/haistelulaatikko/DS41165-800px.jpg)

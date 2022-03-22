@@ -3,7 +3,7 @@ title: "Treat necklace"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuhelmet/DSC41292-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/herkkuhelmet/DSC41292-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/treat-necklace/
@@ -19,18 +19,18 @@ You can also hang the treat necklaces from ladders or railings. You may not want
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuhelmet/DSC41330-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/herkkuhelmet/DSC41330-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuhelmet/DSC41337-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/herkkuhelmet/DSC41337-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuhelmet/DSC41307-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/herkkuhelmet/DSC41307-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuhelmet/DSC41304-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/herkkuhelmet/DSC41304-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuhelmet/DSC41300-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/herkkuhelmet/DSC41300-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuhelmet/DSC41328-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/herkkuhelmet/DSC41328-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuhelmet/DSC41292-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/herkkuhelmet/DSC41292-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/herkkuhelmet/DSC41280-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/herkkuhelmet/DSC41280-800px.jpg)

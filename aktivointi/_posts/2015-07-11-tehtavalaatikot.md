@@ -3,7 +3,7 @@ title: "Tehtävälaatikot"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-pulloilla/DSC52610-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52610-245px.jpg
   thumb:
 ---
 
@@ -25,17 +25,17 @@ Ensimmäisellä kerralla kannattaa aloittaa paksulla paperilla (esim. aikakausle
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-paperipalloilla/DS06162-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/DS06162-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-paperipalloilla/DS06191-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/DS06191-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-paperipalloilla/DS06203-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/DS06203-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-paperipalloilla/DS06186-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/DS06186-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-paperipalloilla/DS06215-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/DS06215-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-paperipalloilla/DS06228-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/DS06228-800px.jpg)
 
 ### 2. Tehtävälaatikko pulloilla
 
@@ -49,23 +49,23 @@ Mikillä kesti noin 30 minuuttia saada kaikki namit ulos näistä ja suurin osa 
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-pulloilla/DSC52610-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52610-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-pulloilla/DSC52647-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52647-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-pulloilla/DSC52801-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52801-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-pulloilla/DSC52815-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52815-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-pulloilla/DSC52847-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52847-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-pulloilla/DSC52876-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52876-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-pulloilla/DSC52899-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52899-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-pulloilla/DSC52908-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52908-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-pulloilla/DSC52918-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52918-800px.jpg)
 
 ### 3. Vaikeampi tehtävälaatikko - sopii kokeneille ruuanetsijöille :)
 
@@ -83,29 +83,29 @@ Mikillä kestää tällaisen vaikeutetun tehtävälaatikon tyhjäksi syöminen n
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31011-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31011-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31286-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31286-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31288-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31288-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31450-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31450-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30968-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30968-800px.jpg)
 
 Ilmakuivatut [Thrive ProReward](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/luut/pikkuherkut/puruherkut/277201)) -maksapalat sekä [Wolf of Wilderness Wild Bites](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(https://www.zooplus.fi/shop/koirat/luut/wolf_of_wiilderness/wolf_of_wilderness_lihakuutiot/688392?rrec=true&pr=product1_rr&slot=1&exprienceid=7837&strategyid=103144)) -herkut löydät [Zooplussasta](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)). Kuvassa näkyviä Nutrivet Instinct -herkkupaloja ei enää myydä, mutta onneksi Zooplus myy näitä [Wolf of Wilderness Wild Bites](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(https://www.zooplus.fi/shop/koirat/luut/wolf_of_wiilderness/wolf_of_wilderness_lihakuutiot/688392?rrec=true&pr=product1_rr&slot=1&exprienceid=7837&strategyid=103144)) -herkkuja jotka ovat vastaavia.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30977-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30977-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30990-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30990-800px.jpg)
 
 Miki ei jaksanut odottaa laatikon kasausta, vaan päätti tarjota laatikkotemppua jotta olisi saanut maistiaisia ruuasta :D
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30983-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30983-800px.jpg)
 
 Tässä vielä kuva laatikkotempusta:
 
-![](https://b2.minimuutti.com/file/minimuutti-com/temput/1/DSC27270_2-800px.jpg)
+![](https://b2.minimuutti.com/temput/1/DSC27270_2-800px.jpg)
 
 ### 4. Kaikkien aikojen vaikein tehtävälaatikko - sopii erittäin kokeneille ja motivoituneille ruuan etsijöille
 
@@ -134,44 +134,44 @@ Kaikki nämä olivat kannellisen pahvilaatikon sisällä, paitsi tuo muropaketti
 
 Koko tämän tehtäväkokonaisuuden suorittamiseen Mikiltä kului aikaa 50 minuuttia. Miki suoritti tehtävän loppuun asti täydellä innolla ja vielä tämän jälkeen Miki tuli viereeni pyytämään lisää tekemistä... mutta kyllä se unikin sitten illalla maistui.
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56699-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56699-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56703-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56703-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56705-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56705-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56711-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56711-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56713-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56713-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56726-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56726-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56728-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56728-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56737-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56737-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56742-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56742-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56762-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56762-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56768-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56768-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56776-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56776-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56794-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56794-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56800-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56800-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56807-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56807-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56819-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56819-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56825-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56825-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56850-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56850-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56854-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56854-800px.jpg)
 
 Tää oli kivaa, mutta mitäs kivaa me sitten tehdään...
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56843-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56843-800px.jpg)

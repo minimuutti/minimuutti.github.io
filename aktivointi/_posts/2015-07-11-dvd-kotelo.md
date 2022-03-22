@@ -3,7 +3,7 @@ title: "DVD-kotelo"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dvd-kotelo/DSC33080-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/dvd-kotelo/DSC33080-245px.jpg
   thumb:
 ---
 
@@ -19,14 +19,14 @@ Muista aina valvoa koiraasi kun annat sille jotain tuhottavaksi. Esimerkiksi tä
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dvd-kotelo/DSC33045-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dvd-kotelo/DSC33045-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dvd-kotelo/DSC33086-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dvd-kotelo/DSC33086-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dvd-kotelo/DSC33080-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dvd-kotelo/DSC33080-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dvd-kotelo/DSC40918-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dvd-kotelo/DSC40918-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dvd-kotelo/DSC40941-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dvd-kotelo/DSC40941-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/dvd-kotelo/DSC41068-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/dvd-kotelo/DSC41068-800px.jpg)

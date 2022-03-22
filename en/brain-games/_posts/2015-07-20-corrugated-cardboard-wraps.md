@@ -3,7 +3,7 @@ title: "Corrugated cardboard wraps"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55675-245px.jpg
+  teaser: https://b2.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55675-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/corrugated-cardboard-wraps/
@@ -21,14 +21,14 @@ You can make this game harder by cutting longer pieces from corrugated cardboard
 
 ---
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55668-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55668-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55671-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55671-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55675-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55675-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55676-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55676-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55685-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55685-800px.jpg)
 
-![](https://b2.minimuutti.com/file/minimuutti-com/aktivointi/aaltopahviwrapit/DSC55665-800px.jpg)
+![](https://b2.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55665-800px.jpg)
