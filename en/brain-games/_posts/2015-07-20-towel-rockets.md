@@ -3,7 +3,7 @@ title: "Towel rockets"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/pyyheraketit/DS41785-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/pyyheraketit/DS41785-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/towel-rockets/
@@ -19,26 +19,26 @@ First time you give a towel rocket to your dog make sure the towel is quite loos
 
 It took Miki about 5 minutes to get the treats out of these five towel rockets.
 
-![](https://b2.minimuutti.com/aktivointi/pyyheraketit/DS41785-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyheraketit/DS41785-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyheraketit/DS41801-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyheraketit/DS41801-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyheraketit/DS41804-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyheraketit/DS41804-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyheraketit/DS41810-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyheraketit/DS41810-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyheraketit/DS41813-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyheraketit/DS41813-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyheraketit/DS41856-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyheraketit/DS41856-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyheraketit/DS41857-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyheraketit/DS41857-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyheraketit/DS41869-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyheraketit/DS41869-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyheraketit/DS41883-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyheraketit/DS41883-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyheraketit/DS41895-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyheraketit/DS41895-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyheraketit/DS41928-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyheraketit/DS41928-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyheraketit/DS41935-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyheraketit/DS41935-800px.jpg)

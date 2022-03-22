@@ -3,7 +3,7 @@ title: "Northmate Green"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointilelut/muut/DS37576-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointilelut/muut/DS37576-245px.jpg
   thumb:
 ---
 
@@ -17,14 +17,14 @@ Northmaten kuppi on sinällään ihan hyvä ja jos siitä antaa täyden annoksen
 
 Tällainen hotkimista estävä kuppi on mainio toipilaspäiviin. Jos koiran maha on ollut sekaisin, eikä koiran kanssa voi touhuta normaalisti, niin tämä kuppi antaa koiralle kuitenkin jotain virikettä päivään. Toipilaspäivien kana-riisi-raejuustoseos on myös sopivaa ruokaa laitettavaksi tähän.
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DSC02615_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DSC02615_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS37557-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS37557-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS37576-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS37576-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS37568-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS37568-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS37595-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS37595-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS37606-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS37606-800px.jpg)

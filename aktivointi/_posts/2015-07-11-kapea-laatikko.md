@@ -3,7 +3,7 @@ title: "Kapea laatikko"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/kapea-laatikko/DSC57694-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/kapea-laatikko/DSC57694-245px.jpg
   thumb:
 ---
 
@@ -19,18 +19,18 @@ Esineistä riippuen Mikiltä kestää alle minuutin saada herkut syötyä.
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/kapea-laatikko/DSC57719-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kapea-laatikko/DSC57719-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kapea-laatikko/DSC57721-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kapea-laatikko/DSC57721-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kapea-laatikko/DSC57729-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kapea-laatikko/DSC57729-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kapea-laatikko/DSC57694-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kapea-laatikko/DSC57694-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kapea-laatikko/DSC57713-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kapea-laatikko/DSC57713-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kapea-laatikko/DSC57734-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kapea-laatikko/DSC57734-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kapea-laatikko/DSC57698-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kapea-laatikko/DSC57698-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kapea-laatikko/Image1-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kapea-laatikko/Image1-800px.jpg)

@@ -3,7 +3,7 @@ title: "Elämää eristyksissä"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/blogi/DSC08357_1-245px.jpg
+  teaser: https://cdn.minimuutti.com/blogi/DSC08357_1-245px.jpg
   thumb:
 ---
 
@@ -31,11 +31,11 @@ Tavallisina päivinä koiran kanssa tulee lähinnä käytyä lenkillä ja sitä 
 
 Miki ei luonteeltaan ole leikkijä, mutta se kuitenkin innostuu kaikesta tekemisestä, kunhan siitä saa ruokaa palkkioksi. Nyt olemme kaivaneet harvemmin käytettyjä aktivointileluja kaapista sekä leikkineet mm. noutoleikkiä. Miki ei tosiaan ole mikään luontainen noutaja, mutta se kuitenkin noutaa pyynnöstä leluja, koska tässä leikissä jokaisesta haetusta lelusta saa ruokanappulan palkkioksi.
 
-![](https://b2.minimuutti.com/blogi/DSC59046-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DSC59046-800px.jpg)
 
 Nyt on myös aikaa askarrella koiralle itsetehtyjä aktivointipelejä ja niihin löydät vinkkejä sekä kuvalliset ohjeet [täältä](https://minimuutti.com/aktivointi/).
 
-![](https://b2.minimuutti.com/blogi/DSC51366-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DSC51366-800px.jpg)
 
 #### Temppujen opettaminen ja vanhojen kertaaminen
 
@@ -45,19 +45,19 @@ YouTubesta kannattaa katsoa videot:
 
 "[Meet Porter. The World's First Driving Dog](https://www.youtube.com/watch?v=BWAK0J8Uhzk)", jossa Porter niminen koira on opetettu ajamaan autoa.
 
-[![](https://b2.minimuutti.com/blogi/Porter.jpg)](https://www.youtube.com/watch?v=BWAK0J8Uhzk)
+[![](https://cdn.minimuutti.com/blogi/Porter.jpg)](https://www.youtube.com/watch?v=BWAK0J8Uhzk)
 
 "[Dog Flies Airplane](https://www.youtube.com/watch?v=82DoCawpJCE)", jossa Shadow niminen koira on opetettu lentämään oikeaa lentokonetta.
 
-[![](https://b2.minimuutti.com/blogi/Shadow.jpg)](https://www.youtube.com/watch?v=82DoCawpJCE)
+[![](https://cdn.minimuutti.com/blogi/Shadow.jpg)](https://www.youtube.com/watch?v=82DoCawpJCE)
 
 "[20metre dalmatian bicycle race](https://www.youtube.com/watch?v=u4pmdMQ9nNA)", jossa kaksi dalmatialaista on opetettu ajamaan polkupyörillä - tämä on NIIN hauska :D
 
-[![](https://b2.minimuutti.com/blogi/Dalmatian-race.jpg)](https://www.youtube.com/watch?v=u4pmdMQ9nNA)
+[![](https://cdn.minimuutti.com/blogi/Dalmatian-race.jpg)](https://www.youtube.com/watch?v=u4pmdMQ9nNA)
 
 Mikin osaamia temppuja voit katsoa [täältä](https://minimuutti.com/temput/mikin-osaamat-temput/).
 
-![](https://b2.minimuutti.com/blogi/High5-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/High5-800px.jpg)
 
 #### Hyväntekeväisyys työ
 
@@ -69,7 +69,7 @@ Minun hyväntekeväisyystyöstä voit katsoa esimerkkejä [täältä](https://mi
 
 Minimuutti toivottaa kaikille aurinkoista kevättä ja mukavia hetkiä oman kullannupun kanssa!
 
-![](https://b2.minimuutti.com/blogi/DSC23474-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DSC23474-800px.jpg)
 
 
 8.4.2020

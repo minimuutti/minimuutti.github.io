@@ -3,7 +3,7 @@ title: "Twelve cup puzzle"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39554-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39554-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/twelve-cup-puzzle/
@@ -19,34 +19,34 @@ First and second time I gave only two double cup packages to Miki. I wanted to s
 
 On the third time I pushed the cups into the tray before I gave them to Miki.
 
-![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39478-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39478-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39511-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39511-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39514-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39514-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39537-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39537-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39554-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39554-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39577-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39577-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39602-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39602-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39604-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39604-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39623-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39623-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39625-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39625-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39675-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39675-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39722-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39722-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39751-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39751-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39770-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39770-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39803-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39803-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39839-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kuusi-kuppia-piilossa/DS39839-800px.jpg)

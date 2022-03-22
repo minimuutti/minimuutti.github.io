@@ -3,7 +3,7 @@ title: "Cups in a basin"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/kupit-vadissa/DSC40120-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/kupit-vadissa/DSC40120-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/cups-in-a-basin/
@@ -19,16 +19,16 @@ You can make this game harder by replacing the yoghurt cups with a kettle lid or
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/kupit-vadissa/DSC39827-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kupit-vadissa/DSC39827-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kupit-vadissa/DSC39865-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kupit-vadissa/DSC39865-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kupit-vadissa/DSC39946-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kupit-vadissa/DSC39946-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kupit-vadissa/DSC40043-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kupit-vadissa/DSC40043-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kupit-vadissa/DSC40103-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kupit-vadissa/DSC40103-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kupit-vadissa/DSC40177-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kupit-vadissa/DSC40177-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kupit-vadissa/DSC42477-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kupit-vadissa/DSC42477-800px.jpg)

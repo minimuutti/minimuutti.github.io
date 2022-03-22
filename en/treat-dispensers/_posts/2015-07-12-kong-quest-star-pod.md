@@ -3,7 +3,7 @@ title: "Kong Quest Star Pod"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointilelut/kongit/DSC33990-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointilelut/kongit/DSC33990-245px.jpg
   thumb:
 ---
 
@@ -17,10 +17,10 @@ It takes Miki about 2 to 5 minutes to get all the treats out, but with chicken f
 
 Although the toy scores in durability, it's sometimes hard to find the right size treats for it.
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC33990-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC33990-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC34029-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC34029-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC34066-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC34066-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC34032-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC34032-800px.jpg)

@@ -3,7 +3,7 @@ title: "Pilleripurkit"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/pilleripurkit/DSC58351-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/pilleripurkit/DSC58351-245px.jpg
   thumb:
 ---
 
@@ -19,22 +19,22 @@ Purkkeihin joissa on iso suuaukko, voi vaikeutuksena laittaa pieniä [koralleja]
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/pilleripurkit/DSC58351-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pilleripurkit/DSC58351-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pilleripurkit/DSC58362-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pilleripurkit/DSC58362-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pilleripurkit/DSC58407-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pilleripurkit/DSC58407-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pilleripurkit/DSC58421-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pilleripurkit/DSC58421-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pilleripurkit/DSC58428-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pilleripurkit/DSC58428-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pilleripurkit/DSC58465-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pilleripurkit/DSC58465-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pilleripurkit/DSC58472-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pilleripurkit/DSC58472-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pilleripurkit/DSC58485-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pilleripurkit/DSC58485-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pilleripurkit/DSC60994-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pilleripurkit/DSC60994-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pilleripurkit/DSC60998-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pilleripurkit/DSC60998-800px.jpg)

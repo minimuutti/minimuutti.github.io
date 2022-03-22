@@ -3,7 +3,7 @@ title: "Trixie Snack Spinner"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointilelut/muut/DSC34431-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointilelut/muut/DSC34431-245px.jpg
   thumb:
 ---
 
@@ -17,12 +17,12 @@ Tämä lelu ei ole ollut Mikillä käytössä kovinkaan montaa kertaa, koska se 
 
 Kun laitan leluun annoksen nappuloita, niin sen tyhjentäminen kestää Mikiltä noin 3-4 minuuttia.
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DSC34406-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DSC34406-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DSC34439-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DSC34439-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DSC34408-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DSC34408-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DSC34431-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DSC34431-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DSC34409-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DSC34409-800px.jpg)

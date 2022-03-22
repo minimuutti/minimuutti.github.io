@@ -3,7 +3,7 @@ title: "Kong Genius Leo"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointilelut/kongit/DSC22961-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointilelut/kongit/DSC22961-245px.jpg
   thumb:
 ---
 
@@ -25,24 +25,24 @@ Näissä kuvissa Miki touhuaa lelun kanssa ensimmäistä kertaa.
 
 ---
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC22957-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC22957-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC22961-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC22961-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC22980-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC22980-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC23031-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC23031-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC23034-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC23034-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC23081-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC23081-800px.jpg)
 
 Tätä lelua on käytetty myös seuraavissa tehtävissä:
 
 [Kongit mukeissa:](/aktivointi/kongit-mukeissa/)
 
-[![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC47968-800px.jpg)](/aktivointi/kongit-mukeissa/)
+[![](https://cdn.minimuutti.com/aktivointi/kongit-mukeissa/DSC47968-800px.jpg)](/aktivointi/kongit-mukeissa/)
 
 [Solmupiilo:](/aktivointi/solmupiilo/)
 
-[![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02879-800px.jpg)](/aktivointi/solmupiilo/)
+[![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS02879-800px.jpg)](/aktivointi/solmupiilo/)

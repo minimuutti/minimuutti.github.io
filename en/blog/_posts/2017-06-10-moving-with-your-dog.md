@@ -3,7 +3,7 @@ title: "Moving with your dog"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/blogi/DS55114_1-245px.jpg
+  teaser: https://cdn.minimuutti.com/blogi/DS55114_1-245px.jpg
   thumb:
 ---
 
@@ -39,21 +39,21 @@ If it's possible I recommend that you take your dog to daycare to a familiar pla
 
 When I started training this, I put on Miki's collar and leash and put the leash around my waist. It would've been essential to have him leashed because the doors would've been open the whole day. First I walked and Miki followed me by my side in contact and every now and then I changed my direction and rewarded Miki for following and consentrating on me calmly. When Miki understood this was the thing I wanted, I added more challenge. I changed my dirention towards Miki or reversed towards him and rewarded him for giving me some space.
 
-![](https://b2.minimuutti.com/blogi/DS54986-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DS54986-800px.jpg)
 
-![](https://b2.minimuutti.com/blogi/DS54992-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DS54992-800px.jpg)
 
 Then I started moving some small items simultaneously rewarding Miki when he followed and/or gave me space or stopped to wait for me to do something.
 
 Later on I moved some larger boxes and chairs from one room to another and rewarded him like before.
 
-![](https://b2.minimuutti.com/blogi/DS55029-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DS55029-800px.jpg)
 
-![](https://b2.minimuutti.com/blogi/DS55068-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DS55068-800px.jpg)
 
-![](https://b2.minimuutti.com/blogi/DS55114-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DS55114-800px.jpg)
 
-![](https://b2.minimuutti.com/blogi/DS55141-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DS55141-800px.jpg)
 
 We also practiced that my spouse carried stuff outside our apartment to the hallway and I rewarded Miki for staying calmly inside with me.
 
@@ -89,9 +89,9 @@ If you need to move because of your work and your working hours changes simultan
 
 We cleaned our new apartment a day before we moved in. I left Miki's fleece mat with lots of treats and some toys there so when I took Miki there for the first time his beloved things were already there waiting for him.
 
-![](https://b2.minimuutti.com/blogi/DS55945-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DS55945-800px.jpg)
 
-![](https://b2.minimuutti.com/blogi/DS55949-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DS55949-800px.jpg)
 
 ### New beginnings
 
@@ -117,6 +117,6 @@ We teleworked in turns every other day so Miki got the best chance to feel safe 
 
 I want to share this with you when Miki found himself a new dog house from an empty closet :D
 
-![](https://b2.minimuutti.com/blogi/20170530_183608-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/20170530_183608-800px.jpg)
 
 2017-06-10

@@ -3,7 +3,7 @@ title: "Putoilevat namit"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/putoilevat-namit/DSC51366-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/putoilevat-namit/DSC51366-245px.jpg
   thumb:
 ---
 
@@ -27,18 +27,18 @@ Miki oppi tämän tehtävän sekunneissa. Muutaman kerran jälkeen vaihdoin tuon
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/putoilevat-namit/DSC51335-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putoilevat-namit/DSC51335-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putoilevat-namit/DSC51365-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putoilevat-namit/DSC51365-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putoilevat-namit/DSC51366-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putoilevat-namit/DSC51366-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putoilevat-namit/DSC51417-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putoilevat-namit/DSC51417-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putoilevat-namit/DSC51418-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putoilevat-namit/DSC51418-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putoilevat-namit/DSC51419-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putoilevat-namit/DSC51419-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putoilevat-namit/DSC51389_3-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putoilevat-namit/DSC51389_3-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putoilevat-namit/DSC51321_-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putoilevat-namit/DSC51321_-800px.jpg)

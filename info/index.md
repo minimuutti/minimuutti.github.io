@@ -8,9 +8,9 @@ Yhteystiedot:
 sähköposti: minimuutti.com(at)gmail.com<br/>
 Twitter: @minimuutti
 
-[![](https://b2.minimuutti.com/muut/twitter.jpg)](https://twitter.com/minimuutti)
+[![](https://cdn.minimuutti.com/muut/twitter.jpg)](https://twitter.com/minimuutti)
 
-![](https://b2.minimuutti.com/muut/computer_wolf_.jpg)
+![](https://cdn.minimuutti.com/muut/computer_wolf_.jpg)
 
 Mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani, niin voit lahjoittaa haluamasi summan Paypalin kautta:
 
@@ -25,9 +25,9 @@ Mikäli koet sivustoni hyödylliseksi ja haluat tukea toimintaani, niin voit lah
 
 Voit tukea toimintaani myös käyttämällä alla olevaa linkkiä, kun seuraavan kerran asioit Zooplussan verkkokaupassa. Linkki avautuu klikkaamalla kaupan logoa.
 
-![](https://b2.minimuutti.com/muut/matkassa_mukana.jpg)
+![](https://cdn.minimuutti.com/muut/matkassa_mukana.jpg)
 
-[![](https://b2.minimuutti.com/muut/zooplus.jpg)](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/))
+[![](https://cdn.minimuutti.com/muut/zooplus.jpg)](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/))
 
 Vaihtoehtoisesti voit lahjoittaa haluamasi summan bitcoineissa osoitteeseen:
 

@@ -3,7 +3,7 @@ title: "Kun koira ei motivoidu ruokapalkasta"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/blogi/DS49060_-245px.jpg
+  teaser: https://cdn.minimuutti.com/blogi/DS49060_-245px.jpg
   thumb:
 ---
 
@@ -23,11 +23,11 @@ Jos koirasi ei ole nälkäinen, niin se voi olla yksi syy siihen, ettei se halua
 
 Kun koulutat koiraasi, niin se kannattaa tehdä aina ja vain silloin, kun koirasi on nälkäinen, eli yleensä lenkin jälkeen ja ennen kuin koira saa ruokansa. Jos koirasi on oikeasti nälkäinen, se on yleensä valmis tekemään pyydettyjä asioita, koska se saa sinulta palkaksi juuri sitä, mitä se sillä hetkellä eniten tarvitsee, ruokaa.
 
-![](https://b2.minimuutti.com/blogi/DSC27282_2-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DSC27282_2-800px.jpg)
 
 Aterioiden jälkeen koiraa ei kannata kouluttaa. Koira on silloin kylläinen ja väsynyt ja jos silloin yrität kouluttaa sitä, niin sille muodostuu mielikuva siitä, ettei omistaja koskaan tarjoa sille sellaista mitä se haluaa, joten eipä kannata nähdä vaivaa.
 
-![](https://b2.minimuutti.com/blogi/DSC32330-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DSC32330-800px.jpg)
 
 ### Sittenkin motivaatiota ruokaa kohtaan?
 
@@ -35,9 +35,9 @@ Monella koiranomistajalla on vaikeuksia sanoa koiralleen ei. Moni meistä, sen e
 
 Jos koira kerjää maistiaisia lautaseltasi, on se motivoitunut ruuasta, vaikka omistajan silmään asia saattaa näyttää täysin erilaiselta, kun kuivaruokanappulat eivät häviäkään kupista. Kerjääminen on nimenomaan motivaatiota, jolloin kannattaakin miettiä, löytyisikö syy huonoon ruokahaluun joko välipalojen määrästä tai koiralle tarjottavan ruuan laadusta.
 
-![](https://b2.minimuutti.com/blogi/DS49060-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DS49060-800px.jpg)
 
-![](https://b2.minimuutti.com/blogi/DS49057-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DS49057-800px.jpg)
 
 *Oi mitä ihanaa sulla on siinä lautasella?*
 
@@ -55,7 +55,7 @@ Kun Miki oli pentu, niin syötimme sille kasvattajan valitsemaa penturuokaa, eli
 
 Arvostan sitä, jos haet koirasi ruokapakkauksen ja katsot mitä koirallesi tarjoama ruoka sisältää ja mistä ainesosista se on tehty.
 
-![](https://b2.minimuutti.com/blogi/DS49076-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DS49076-800px.jpg)
 
 *Älä huoli, Miki ei saanut tätä kaikkea kerralla, vaikka varmaan olisi ne syönyt jos olisi annettu :D*
 
@@ -73,7 +73,7 @@ Aina, kun koiralle on antamassa ruokaa/herkkuja/lelun/jotain muuta, niin koiraa 
 
 Miki on oppinut tämän ja aina, kun sen ruoka-aika tai herkkuhetki on käsillä, niin se käy jo valmiiksi istumaan tai maahan tilanteesta riippuen. Tässä kohtaa voit itse päättää haluatko, että koira tekee aina samalla lailla, vaikkapa istuu ja odottaa, vai haluatko, että se tekee pyynnöstäsi jotain muuta sille opetettua. 
 
-![](https://b2.minimuutti.com/blogi/DSC09041-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DSC09041-800px.jpg)
 
 Jos koira saa kaiken tarvitsemansa hopealautaselta, niin se ei todennäköisesti arvosta saamaansa. Kun koira joutuu tekemään työtä ruokansa eteen, niin ruuan arvo kohoaa sen silmissä. Kumpaa itse pitäisit arvokkaampana, itse neulomaasi villapaitaa vai sellaista, minkä olet ostanut alennusmyynnistä kympillä? Veikkaan, että tuo itse tehty olisi mielestäsi arvokkaampi - olethan käyttänyt siihen aikaasi useita päiviä ja nähnyt hirveästi vaivaa sen eteen.
 
@@ -83,10 +83,10 @@ Fakta on se, että jokaisen koiran pitää syödä pysyäkseen hengissä. Kaikki
 
 Jos et ole varma mikä motivoi koiraasi eniten, kannattaa tehdä tällainen testi. Jokainen meistä varmaan tunnistaa koirastaan sen ilmeen, kun se odottaa saavansa jotain. Kun Miki suorittaa pyytämäni toiminnon ja saa siitä palkaksi vain kehun tai rapsutuksia, niin tällöin Mikille tulee se ilme, että se odottaa jotain =ruokapalkkaa. Sen koko olemus sanoo "Haloo, tein juuri jotain mistä odotan palkkaa" ja se katsoo vuorotellen silmiini ja kättäni odottaen sen menevän taskuun, jossa pidän koulutuspalkkaa. Välillä se myös näyttää ihan suoraan pettyneeltä, jos ruokapalkkaa ei tule.
 
-![](https://b2.minimuutti.com/blogi/DSC42110-500px.JPG)
-![](https://b2.minimuutti.com/blogi/DSC42111-500px.JPG)
+![](https://cdn.minimuutti.com/blogi/DSC42110-500px.JPG)
+![](https://cdn.minimuutti.com/blogi/DSC42111-500px.JPG)
 
-![](https://b2.minimuutti.com/blogi/DSC48620-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DSC48620-800px.jpg)
 
 *Mikä pettymys! Missä on palkkioni?*
 

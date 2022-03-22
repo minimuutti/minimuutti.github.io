@@ -3,7 +3,7 @@ title: "Mukidonitsi"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC38826-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/mukidonitsi/DSC38826-245px.jpg
   thumb:
 ---
 
@@ -17,22 +17,22 @@ Tein tämän myös mukitornina, eli laitoin 6 pahvimukia päällekkäin ja pujot
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC38826-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/mukidonitsi/DSC38826-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC38828-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/mukidonitsi/DSC38828-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC38847-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/mukidonitsi/DSC38847-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC38923-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/mukidonitsi/DSC38923-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC38964-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/mukidonitsi/DSC38964-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC39079-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/mukidonitsi/DSC39079-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC39125-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/mukidonitsi/DSC39125-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC40762-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/mukidonitsi/DSC40762-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC40773-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/mukidonitsi/DSC40773-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC40815-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/mukidonitsi/DSC40815-800px.jpg)

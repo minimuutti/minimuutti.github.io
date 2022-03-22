@@ -3,7 +3,7 @@ title: "PetProjekt Holobal"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointilelut/muut/DS61898-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointilelut/muut/DS61898-245px.jpg
   thumb:
 ---
 
@@ -18,22 +18,22 @@ Then I decided to show him that the strands give in when pushed. Miki understood
 This toy is available in two sizes and this is the larger one. Its diameter is about 4".
 
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS61848-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS61848-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS61866-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS61866-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS61885-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS61885-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS61898-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS61898-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS61910-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS61910-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS61943-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS61943-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS61961-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS61961-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS61971-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS61971-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS61979-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS61979-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS61842-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS61842-800px.jpg)

@@ -3,7 +3,7 @@ title: "Kannelliset rasiat"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/kannelliset-rasiat/DSC53153-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/kannelliset-rasiat/DSC53153-245px.jpg
   thumb:
 ---
 
@@ -29,32 +29,32 @@ Kokeilin myös erilaisia kannellisia rasioita. Otin kaksi tällaista kannellista
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/kannelliset-rasiat/DSC52978-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kannelliset-rasiat/DSC52978-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kannelliset-rasiat/DSC52987-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kannelliset-rasiat/DSC52987-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kannelliset-rasiat/DSC52992-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kannelliset-rasiat/DSC52992-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kannelliset-rasiat/DSC53077-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kannelliset-rasiat/DSC53077-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kannelliset-rasiat/DSC53103-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kannelliset-rasiat/DSC53103-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kannelliset-rasiat/DSC53168-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kannelliset-rasiat/DSC53168-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kannelliset-rasiat/DSC53899_-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kannelliset-rasiat/DSC53899_-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kannelliset-rasiat/DSC53941-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kannelliset-rasiat/DSC53941-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kannelliset-rasiat/DSC54014-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kannelliset-rasiat/DSC54014-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kannelliset-rasiat/DSC54263-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kannelliset-rasiat/DSC54263-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kannelliset-rasiat/DSC54287-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kannelliset-rasiat/DSC54287-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kannelliset-rasiat/DSC54338-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kannelliset-rasiat/DSC54338-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kannelliset-rasiat/DSC54336-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kannelliset-rasiat/DSC54336-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kannelliset-rasiat/DSC54421-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kannelliset-rasiat/DSC54421-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kannelliset-rasiat/DSC54403-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kannelliset-rasiat/DSC54403-800px.jpg)

@@ -3,7 +3,7 @@ title: "Lelulaatikko"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/lelulaatikko/DSC30079-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/lelulaatikko/DSC30079-245px.jpg
   thumb:
 ---
 
@@ -21,10 +21,10 @@ Yhden namin etsimiseen menee 5–15 sekuntia. Jos omistaa paljon tyhjiä limupul
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/lelulaatikko/DSC29380_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lelulaatikko/DSC29380_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lelulaatikko/DSC30079_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lelulaatikko/DSC30079_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lelulaatikko/DSC30084_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lelulaatikko/DSC30084_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lelulaatikko/DSC26654_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lelulaatikko/DSC26654_2-800px.jpg)

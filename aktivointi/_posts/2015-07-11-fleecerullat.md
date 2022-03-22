@@ -3,7 +3,7 @@ title: "Fleecerullat"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/fleecerullat/DS09098-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/fleecerullat/DS09098-245px.jpg
   thumb:
 ---
 
@@ -17,24 +17,24 @@ Leikkasin fleecestä 24 hieman eri kokoista suikaletta, koska lokerikon koloset 
 
 Mikäli koirasi ei ennen ole etsinyt paljoa, niin tämän voi yhtä hyvin aloittaa niin, että laittaa namit osittain näkyville rullien viereen.
 
-![](https://b2.minimuutti.com/aktivointi/fleecerullat/DS09036-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecerullat/DS09036-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecerullat/DS09047-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecerullat/DS09047-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecerullat/DS09098-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecerullat/DS09098-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecerullat/DS09140-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecerullat/DS09140-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecerullat/DS09184-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecerullat/DS09184-800px.jpg)
 
 Myöhemmin vaikeutin tehtävää niin, että rullasin namit piiloon fleecerullien sisälle. Tällöin Mikiltä kesti noin 6 minuuttia saada kaikki namit syötyä. 
 
-![](https://b2.minimuutti.com/aktivointi/fleecerullat/DS09218-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecerullat/DS09218-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecerullat/DS09250-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecerullat/DS09250-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecerullat/DS09253-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecerullat/DS09253-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecerullat/DS09333-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecerullat/DS09333-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecerullat/DS09355-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecerullat/DS09355-800px.jpg)

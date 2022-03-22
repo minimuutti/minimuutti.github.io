@@ -3,7 +3,7 @@ title: "No food motivation?"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/blogi/DS49060_-245px.jpg
+  teaser: https://cdn.minimuutti.com/blogi/DS49060_-245px.jpg
   thumb:
 ---
 
@@ -23,11 +23,11 @@ If your dog isn't hungry, he probably doesn't want to eat. He might be willing t
 
 You should always train your dog only when he's hungry and that is most likely after he had his walk and before his dinner. If your dog is really truly hungry he is willing to do what you ask, because then he gets the thing from you that he needs the most at that moment - food.
 
-![](https://b2.minimuutti.com/blogi/DSC27282_2-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DSC27282_2-800px.jpg)
 
 You shouldn't train your dog right after he had his meal. When your dog is full and tired you will then only teach him that you never offer him the things he need so why bother.
 
-![](https://b2.minimuutti.com/blogi/DSC32330-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DSC32330-800px.jpg)
 
 ### Food motivation after all?
 
@@ -35,9 +35,9 @@ We dog owners tend to have troubles saying no to our furry friends. Many of us, 
 
 Begging is motivation and therefore you should consider the possibility that a) your dog's poor appetite is due to the amount of snacks and treats you give him b) the quality of the dog food he's provided isn't as good as it should be.
 
-![](https://b2.minimuutti.com/blogi/DS49060-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DS49060-800px.jpg)
 
-![](https://b2.minimuutti.com/blogi/DS49057-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DS49057-800px.jpg)
 
 *Ooh what's that you got there?*
 
@@ -53,7 +53,7 @@ When Miki was a puppy we fed him the food his breeder had selected, which was Nu
 
 I really do appreciate if you go and pick up your dog's food package and check out the ingredients.
 
-![](https://b2.minimuutti.com/blogi/DS49076-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DS49076-800px.jpg)
 
 *Don't worry, Miki didn't get to eat all this food at once, although he surely would've finished it if he were given the choice.*
 
@@ -75,7 +75,7 @@ When you are about to give food/treats/toy to you dog, always ask him to perform
 
 Miki already knows how this works and everytime he's about to have his meal or treat he offers me a sit or a lay down depending on the situation, without asking :) You can decide yourself would you rather have your dog sitting and waiting every time or would you rather ask him a different behaviour each time. 
 
-![](https://b2.minimuutti.com/blogi/DSC09041-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DSC09041-800px.jpg)
 
 If your dog is given everything from a silver platter, he probably won't appreciate anything you give him. When a dog needs to work for his food, the value of the food increases immediately.  What would you consider to be more valuable, a sweater that you have knit yourself or another sweater that you have bought from a sale for ten dollars? I'll bet you would choose the one you have made yourself, because you have put so much time and effort into it.
 
@@ -85,10 +85,10 @@ The fact is that every dog needs to eat in order to stay alive. All dogs aren't 
 
 If you aren't sure what motivates your dog the most, you can do this simple test. You probably know the expression on your dog when he's clearly waiting for something. When Miki does something that I asked him to do and I pay him with praise and/or petting only he always gives me this waiting expression because he is waiting something (=a food reward). His whole being is shouting "Hello, I did something that I expect to get paid" and he looks my eyes and my hand in turns waiting that I put my hand in my pocket and pay him with food. Or sometimes he gives me this long face if he's disappointed when there is no food reward.
 
-![](https://b2.minimuutti.com/blogi/DSC42110-500px.JPG)
-![](https://b2.minimuutti.com/blogi/DSC42111-500px.JPG)
+![](https://cdn.minimuutti.com/blogi/DSC42110-500px.JPG)
+![](https://cdn.minimuutti.com/blogi/DSC42111-500px.JPG)
 
-![](https://b2.minimuutti.com/blogi/DSC48620-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DSC48620-800px.jpg)
 
 *I'm disappointed! Where's my reward?*
 

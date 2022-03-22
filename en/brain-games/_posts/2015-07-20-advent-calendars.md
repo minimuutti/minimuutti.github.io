@@ -3,7 +3,7 @@ title: "Advent calendars"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59121-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/joulukalenterit/DSC59121-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/advent-calendars/
@@ -25,34 +25,34 @@ Or you can put some pate in the gaps and put the tray in the freezer for a coupl
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59065-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/joulukalenterit/DSC59065-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59082-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/joulukalenterit/DSC59082-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59121-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/joulukalenterit/DSC59121-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59190-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/joulukalenterit/DSC59190-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59233-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/joulukalenterit/DSC59233-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59250-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/joulukalenterit/DSC59250-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59057-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/joulukalenterit/DSC59057-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59352-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/joulukalenterit/DSC59352-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59357-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/joulukalenterit/DSC59357-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC59408-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/joulukalenterit/DSC59408-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC60440-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/joulukalenterit/DSC60440-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/joulukalenterit/DSC60457-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/joulukalenterit/DSC60457-800px.jpg)
 
 Advent calendar tray has also been used in the [Fleece puzzle](/en/brain-games/fleece-puzzle/) game:
 
-[![](https://b2.minimuutti.com/aktivointi/fleecerullat/DS09098-800px.jpg)](/en/brain-games/fleece-puzzle/)
+[![](https://cdn.minimuutti.com/aktivointi/fleecerullat/DS09098-800px.jpg)](/en/brain-games/fleece-puzzle/)
 
 and in the [Knick-knacks puzzle](/en/brain-games/knick-knacks-puzzle/) game:
 
-[![](https://b2.minimuutti.com/aktivointi/lokerikko/DS08655-800px.jpg)](/en/brain-games/knick-knacks-puzzle/)
+[![](https://cdn.minimuutti.com/aktivointi/lokerikko/DS08655-800px.jpg)](/en/brain-games/knick-knacks-puzzle/)

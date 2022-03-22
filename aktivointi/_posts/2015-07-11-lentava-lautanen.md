@@ -3,7 +3,7 @@ title: "Lentävä lautanen"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/lentava-lautanen/DS03631%20%282%29-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/lentava-lautanen/DS03631%20%282%29-245px.jpg
   thumb:
 ---
 
@@ -17,12 +17,12 @@ Mikiltä kesti noin 5 minuuttia saada kaikki nappulat ulos tästä.
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/lentava-lautanen/DS03632-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lentava-lautanen/DS03632-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lentava-lautanen/DS03631-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lentava-lautanen/DS03631-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lentava-lautanen/DS03685-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lentava-lautanen/DS03685-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lentava-lautanen/DS03682-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lentava-lautanen/DS03682-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lentava-lautanen/DS03617-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lentava-lautanen/DS03617-800px.jpg)

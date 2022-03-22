@@ -3,7 +3,7 @@ title: "Namien piilotus ruohikkoon tai lumihankeen"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956-245px.jpg
   thumb:
 ---
 
@@ -17,8 +17,8 @@ Ulkona käytän aina parempia nameja kuin sisällä, jotta Mikin motivaatio etsi
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23983_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23983_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC27428_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC27428_2-800px.jpg)

@@ -3,7 +3,7 @@ title: "Hihnan kiertäminen tolpan ympäri"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32210-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32210-245px.jpg
   thumb:
 ---
 
@@ -17,10 +17,10 @@ Tässäkin kannattaa aloittaa ensin yhdellä kierroksella ja se kannattaa aloitt
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32210-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32210-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32196-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32196-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32197-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32197-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32198-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/hihnan-kiertaminen-tolpan-ympari/DSC32198-800px.jpg)

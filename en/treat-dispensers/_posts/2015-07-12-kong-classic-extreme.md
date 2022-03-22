@@ -3,7 +3,7 @@ title: "Kong Classic (Extreme)"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointilelut/kongit/DS37157-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointilelut/kongit/DS37157-245px.jpg
   thumb:
 ---
 
@@ -25,32 +25,32 @@ This classic toy is one of my favourite toys and it certainly is a versatile bor
 
 ---
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DS37157-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DS37157-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC16731_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC16731_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC19223_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC19223_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC19253_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC19253_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC14116_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC14116_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC30350_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC30350_2-800px.jpg)
 
 I've used this toy also in the following games:
 
 [Cones:](/en/brain-games/cones/)
 
-[![](https://b2.minimuutti.com/aktivointi/totterot/DSC40378-800px.jpg)](/en/brain-games/cones/)
+[![](https://cdn.minimuutti.com/aktivointi/totterot/DSC40378-800px.jpg)](/en/brain-games/cones/)
 
 [Treat tube:](/en/brain-games/treat-tube/)
 
-[![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC47917-800px.jpg)](/en/brain-games/treat-tube/)
+[![](https://cdn.minimuutti.com/aktivointi/putkipiilo/DSC47917-800px.jpg)](/en/brain-games/treat-tube/)
 
 [Stuffed panda:](/en/brain-games/stuffed-panda/)
 
-[![](https://b2.minimuutti.com/aktivointi/pehmopanda/DSC49437-800px.jpg)](/en/brain-games/stuffed-panda/)
+[![](https://cdn.minimuutti.com/aktivointi/pehmopanda/DSC49437-800px.jpg)](/en/brain-games/stuffed-panda/)
 
 [Kongs in cups:](/en/brain-games/kongs-in-cups/)
 
-[![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC48179-800px.jpg)](/en/brain-games/kongs-in-cups/)
+[![](https://cdn.minimuutti.com/aktivointi/kongit-mukeissa/DSC48179-800px.jpg)](/en/brain-games/kongs-in-cups/)

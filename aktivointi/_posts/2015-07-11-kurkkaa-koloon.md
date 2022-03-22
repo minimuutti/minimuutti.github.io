@@ -3,7 +3,7 @@ title: "Kurkkaa koloon"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/kurkkaa-koloon/DSC34707-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/kurkkaa-koloon/DSC34707-245px.jpg
   thumb:
 ---
 
@@ -23,26 +23,26 @@ Saman kaltaisen tehtävän voit myös tehdä helpommalla tavalla. Kannellisesta 
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/kurkkaa-koloon/DSC34707-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kurkkaa-koloon/DSC34707-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kurkkaa-koloon/DSC34699-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kurkkaa-koloon/DSC34699-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kurkkaa-koloon/DSC34669-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kurkkaa-koloon/DSC34669-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kurkkaa-koloon/DSC34726-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kurkkaa-koloon/DSC34726-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kurkkaa-koloon/DS04001-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kurkkaa-koloon/DS04001-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kurkkaa-koloon/DS04011-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kurkkaa-koloon/DS04011-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kurkkaa-koloon/DS04046-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kurkkaa-koloon/DS04046-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kurkkaa-koloon/DS04047-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kurkkaa-koloon/DS04047-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kurkkaa-koloon/DS04170-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kurkkaa-koloon/DS04170-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kurkkaa-koloon/DS04141-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kurkkaa-koloon/DS04141-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kurkkaa-koloon/DSC41369-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kurkkaa-koloon/DSC41369-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kurkkaa-koloon/DSC41405-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kurkkaa-koloon/DSC41405-800px.jpg)

@@ -3,7 +3,7 @@ title: "Kong Traxx Extreme"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointilelut/kongit/DSC34392-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointilelut/kongit/DSC34392-245px.jpg
   thumb:
 ---
 [Kong Traxx](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/lelut/aktivointilelut/aktivointi/326683)) -lelu on kaikista kestävin lelu, jonka olemme Mikille ostaneet.
@@ -20,34 +20,34 @@ Miki sai tämän renkaan alle vuoden ikäisenä ja sama lelu on meillä edelleen
 
 Miki on tykännyt leikkiä tällä lelulla ilman ruokaakin, koska se tykkää jahdata lelua, kun joku vierittää sitä pitkin lattiaa.
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC34392-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC34392-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC34394-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC34394-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC30218_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC30218_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC30333-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC30333-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC30289-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC30289-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC30282-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC30282-800px.jpg)
 
 Tätä lelua on käytetty myös tehtävissä:
 
 [Kong Traxx ja pyyhe:](/aktivointi/kong-traxx-ja-pyyhe/)
 
-[![](https://b2.minimuutti.com/aktivointi/kong-traxx-ja-pyyhe/DSC57081-800px.jpg)](/aktivointi/kong-traxx-ja-pyyhe/)
+[![](https://cdn.minimuutti.com/aktivointi/kong-traxx-ja-pyyhe/DSC57081-800px.jpg)](/aktivointi/kong-traxx-ja-pyyhe/)
 
 [Fleecekiepit:](/aktivointi/fleecekiepit/)
 
-[![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06648-800px.jpg)](/aktivointi/fleecekiepit/)
+[![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06648-800px.jpg)](/aktivointi/fleecekiepit/)
 
 [Lelut tikussa:](/aktivointi/lelut-tikussa/)
 
-[![](https://b2.minimuutti.com/aktivointi/lelut-tikussa/DS07913-800px.jpg)](/aktivointi/lelut-tikussa/)
+[![](https://cdn.minimuutti.com/aktivointi/lelut-tikussa/DS07913-800px.jpg)](/aktivointi/lelut-tikussa/)
 
 [Yhdistetyt lelut:](/aktivointilelut/yhdistetyt-lelut/)
 
-[![](https://b2.minimuutti.com/aktivointilelut/muut/DS11210-800px.jpg)](/aktivointilelut/yhdistetyt-lelut/)
+[![](https://cdn.minimuutti.com/aktivointilelut/muut/DS11210-800px.jpg)](/aktivointilelut/yhdistetyt-lelut/)
 
-[![](https://b2.minimuutti.com/aktivointilelut/muut/DS11052-800px.jpg)](/aktivointilelut/yhdistetyt-lelut/)
+[![](https://cdn.minimuutti.com/aktivointilelut/muut/DS11052-800px.jpg)](/aktivointilelut/yhdistetyt-lelut/)

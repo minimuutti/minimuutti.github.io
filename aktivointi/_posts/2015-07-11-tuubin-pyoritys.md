@@ -3,7 +3,7 @@ title: "Tuubin pyöritys"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/tuubin-pyoritys/DS23531-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/tuubin-pyoritys/DS23531-245px.jpg
   thumb:
 ---
 
@@ -33,28 +33,28 @@ Ensimmäisen kerran jälkeen peitin purkista suurimman reiän, jolloin tehtävä
 
 Myöhemmin tehtävää voi tarvittaessa vaikeuttaa peittämällä lisää reikiä.
 
-![](https://b2.minimuutti.com/aktivointi/tuubin-pyoritys/DS23426-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tuubin-pyoritys/DS23426-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tuubin-pyoritys/DS23476-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tuubin-pyoritys/DS23476-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tuubin-pyoritys/DS23447-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tuubin-pyoritys/DS23447-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tuubin-pyoritys/DS23474-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tuubin-pyoritys/DS23474-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tuubin-pyoritys/DS23525-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tuubin-pyoritys/DS23525-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tuubin-pyoritys/DS23522-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tuubin-pyoritys/DS23522-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tuubin-pyoritys/DS23506-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tuubin-pyoritys/DS23506-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tuubin-pyoritys/DS24052-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tuubin-pyoritys/DS24052-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tuubin-pyoritys/DS24086-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tuubin-pyoritys/DS24086-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tuubin-pyoritys/DS24082-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tuubin-pyoritys/DS24082-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tuubin-pyoritys/DS24121-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tuubin-pyoritys/DS24121-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tuubin-pyoritys/DS24036-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tuubin-pyoritys/DS24036-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tuubin-pyoritys/xx-kollaasi-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tuubin-pyoritys/xx-kollaasi-800px.jpg)

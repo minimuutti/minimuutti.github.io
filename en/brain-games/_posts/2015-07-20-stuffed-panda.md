@@ -3,7 +3,7 @@ title: "Stuffed panda"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/pehmopanda/DSC49366-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/pehmopanda/DSC49366-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/stuffed-panda/
@@ -19,14 +19,14 @@ At the second time, I put kibble inside the panda and also inside a Kong toy. Th
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/pehmopanda/DSC49366-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pehmopanda/DSC49366-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pehmopanda/DSC49402-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pehmopanda/DSC49402-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pehmopanda/DSC49437-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pehmopanda/DSC49437-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pehmopanda/DSC49513-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pehmopanda/DSC49513-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pehmopanda/DSC49564-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pehmopanda/DSC49564-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pehmopanda/DSC49573-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pehmopanda/DSC49573-800px.jpg)

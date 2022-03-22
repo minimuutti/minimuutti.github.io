@@ -3,7 +3,7 @@ title: "Kangaspallo"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/kangaspallo/DSC38537-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/kangaspallo/DSC38537-245px.jpg
   thumb:
 ---
 
@@ -17,16 +17,16 @@ Mikiltä kesti noin 12 minuuttia saada kaikki namit ulos tuolta.
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/kangaspallo/DSC38431-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kangaspallo/DSC38431-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kangaspallo/DSC38449-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kangaspallo/DSC38449-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kangaspallo/DSC38460-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kangaspallo/DSC38460-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kangaspallo/DSC38520-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kangaspallo/DSC38520-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kangaspallo/DSC38537-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kangaspallo/DSC38537-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kangaspallo/DSC38589-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kangaspallo/DSC38589-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kangaspallo/DSC38443-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kangaspallo/DSC38443-800px.jpg)

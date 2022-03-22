@@ -3,7 +3,7 @@ title: "Treat rope"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/namikoysi/DSC47417-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/namikoysi/DSC47417-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/treat-rope/
@@ -15,22 +15,22 @@ It took Miki over 20 minutes to get all the treats out from the long rope toy. F
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/namikoysi/DSC47283-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namikoysi/DSC47283-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/namikoysi/DSC47318-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namikoysi/DSC47318-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/namikoysi/DSC47417-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namikoysi/DSC47417-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/namikoysi/DSC47453-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namikoysi/DSC47453-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/namikoysi/DSC47419-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namikoysi/DSC47419-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/namikoysi/DSC47457-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namikoysi/DSC47457-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/namikoysi/DSC40613-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namikoysi/DSC40613-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/namikoysi/DSC40667-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namikoysi/DSC40667-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/namikoysi/DSC40711-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namikoysi/DSC40711-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/namikoysi/DSC40687-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namikoysi/DSC40687-800px.jpg)

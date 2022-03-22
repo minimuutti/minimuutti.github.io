@@ -3,7 +3,7 @@ title: "Aaltopahviwräpit"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55675-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55675-245px.jpg
   thumb:
 ---
 
@@ -21,14 +21,14 @@ Tätä tehtävää voi vaikeuttaa leikkaamalla aaltopahvista pidemmän suikaleen
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55668-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55668-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55671-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55671-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55675-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55675-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55676-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55676-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55685-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55685-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55665-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/aaltopahviwrapit/DSC55665-800px.jpg)

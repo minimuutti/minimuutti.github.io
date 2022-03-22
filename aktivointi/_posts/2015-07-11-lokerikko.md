@@ -3,7 +3,7 @@ title: "Lokerikko"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/lokerikko/DS08655-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/lokerikko/DS08655-245px.jpg
   thumb:
 ---
 
@@ -25,14 +25,14 @@ Mikiltä kesti noin 15 namin paikallistaminen ensimmäisellä kerralla noin 2-3 
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/lokerikko/DS08692-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lokerikko/DS08692-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lokerikko/DS08485-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lokerikko/DS08485-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lokerikko/DS08590-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lokerikko/DS08590-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lokerikko/DS08597-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lokerikko/DS08597-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lokerikko/DS08615-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lokerikko/DS08615-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lokerikko/DS08655-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lokerikko/DS08655-800px.jpg)

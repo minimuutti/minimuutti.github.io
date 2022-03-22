@@ -3,7 +3,7 @@ title: "Herkkuhelmet"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/herkkuhelmet/DSC41292-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/herkkuhelmet/DSC41292-245px.jpg
   thumb:
 ---
 
@@ -16,18 +16,18 @@ Solmin helminauhat yksitellen puun oksaan ja annoin Mikille luvan syödä. Mikil
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/herkkuhelmet/DSC41330-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkuhelmet/DSC41330-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/herkkuhelmet/DSC41337-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkuhelmet/DSC41337-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/herkkuhelmet/DSC41307-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkuhelmet/DSC41307-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/herkkuhelmet/DSC41304-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkuhelmet/DSC41304-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/herkkuhelmet/DSC41300-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkuhelmet/DSC41300-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/herkkuhelmet/DSC41328-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkuhelmet/DSC41328-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/herkkuhelmet/DSC41292-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkuhelmet/DSC41292-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/herkkuhelmet/DSC41280-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkuhelmet/DSC41280-800px.jpg)

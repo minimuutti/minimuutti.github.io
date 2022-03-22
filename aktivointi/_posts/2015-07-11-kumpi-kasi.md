@@ -3,7 +3,7 @@ title: "Kumpi käsi"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/kumpi-kasi/DSC29523-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/kumpi-kasi/DSC29523-245px.jpg
   thumb:
 ---
 
@@ -15,6 +15,6 @@ Sinällään tämä ei ole mikään vaativa temppu, mutta jos 50–100 nappulaak
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/kumpi-kasi/DSC29521-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kumpi-kasi/DSC29521-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kumpi-kasi/DSC29523-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kumpi-kasi/DSC29523-800px.jpg)

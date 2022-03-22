@@ -3,7 +3,7 @@ title: "Kong Satellite"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointilelut/kongit/DSC34371-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointilelut/kongit/DSC34371-245px.jpg
   thumb:
 ---
 
@@ -17,10 +17,10 @@ This toy has been one of the hardest ones for Miki when the toy was new. At firs
 
 Later on Miki learned how to manipulate the toy and nowadays it takes him just a couple of minutes.
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC34371-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC34371-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC34366-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC34366-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC17128-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC17128-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC17421-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC17421-800px.jpg)

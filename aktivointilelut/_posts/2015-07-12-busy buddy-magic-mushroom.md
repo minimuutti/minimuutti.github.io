@@ -3,7 +3,7 @@ title: "Busy Buddy Magic Mushroom"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointilelut/muut/DS17437_-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointilelut/muut/DS17437_-245px.jpg
   thumb:
 ---
 
@@ -21,21 +21,21 @@ Pidän lelussa myös siitä, että se on helppo avata pesua varten. Lelu avautuu
 
 Muutama vuosi myöhemmin Miki oppi avaamaan lelun, vaikka lelussa on kierrettävä kansi, uskomatonta.
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS16936-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS16936-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS17017-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS17017-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS16993-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS16993-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS17227-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS17227-800px.jpg)
 
 Seesam aukene? :D
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS17266-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS17266-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS17276-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS17276-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS17299-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS17299-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS17329-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS17329-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS17437-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS17437-800px.jpg)

@@ -3,7 +3,7 @@ title: "Tug a fleece"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/solmupiilo/DS02879-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/solmupiilo/DS02879-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/tug-a-fleece/
@@ -21,27 +21,27 @@ At the first time it took Miki about 20 seconds to figure out that he needed to 
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02729-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS02729-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02746-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS02746-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02757-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS02757-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02775-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS02775-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02797-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS02797-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02806-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS02806-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02849-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS02849-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02879-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS02879-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02887-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS02887-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02719-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS02719-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02720-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS02720-800px.jpg)
 
 If you don't have a Kong Genius toy you can make a similar game with the same size fleece as above and a small soda bottle.
 
@@ -51,16 +51,16 @@ If you have never given any bottles to your dog before, I recommend that you fir
 
 When I gave Miki this bottle with fleece for the first time it took Miki about 2 minutes to get the fleece and the treats out from the bottle.
 
-![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS13410-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS13410-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS13239-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS13239-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS13255-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS13255-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS13473-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS13473-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS13302-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS13302-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS13501-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS13501-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS13519-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS13519-800px.jpg)

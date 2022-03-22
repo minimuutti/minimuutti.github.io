@@ -3,7 +3,7 @@ title: "Etsintä useista laatikoista"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/etsinta-useista-laatikoista/DSC29381-245px (2).jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/etsinta-useista-laatikoista/DSC29381-245px (2).jpg
   thumb:
 ---
 
@@ -17,10 +17,10 @@ Mikäli etsiminen on koirallesi vielä suhteellisen uusi asia, niin kannattaa al
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/etsinta-useista-laatikoista/DSC29381-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/etsinta-useista-laatikoista/DSC29381-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/etsinta-useista-laatikoista/DSC29389-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/etsinta-useista-laatikoista/DSC29389-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/etsinta-useista-laatikoista/DSC29362-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/etsinta-useista-laatikoista/DSC29362-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/etsinta-useista-laatikoista/DSC29376-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/etsinta-useista-laatikoista/DSC29376-800px.jpg)

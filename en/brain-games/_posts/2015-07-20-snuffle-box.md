@@ -3,7 +3,7 @@ title: "Snuffle box"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/haistelulaatikko/DS41144-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/haistelulaatikko/DS41144-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/snuffle-box/
@@ -17,18 +17,18 @@ If you don't have those items you can improvise. You can use a plastic container
 
 I hid about 5 pieces of kibble at a time into the snuffle mat and inside the laundry balls and it took Miki about 40 minutes to find one cup of kibble. What a perfect game this was for a rainy day.
 
-![](https://b2.minimuutti.com/aktivointi/haistelulaatikko/DS41013-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelulaatikko/DS41013-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelulaatikko/DS40996-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelulaatikko/DS40996-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelulaatikko/DS41005-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelulaatikko/DS41005-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelulaatikko/DS41030-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelulaatikko/DS41030-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelulaatikko/DS41037-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelulaatikko/DS41037-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelulaatikko/DS41144-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelulaatikko/DS41144-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelulaatikko/DS41184-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelulaatikko/DS41184-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelulaatikko/DS41165-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelulaatikko/DS41165-800px.jpg)

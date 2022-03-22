@@ -3,7 +3,7 @@ title: "Tubes in the box"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48624-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48624-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/tubes-in-the-box/
@@ -21,13 +21,13 @@ It took Miki about a minute to find a small handful of kibble.
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC47163-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC47163-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC47197-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC47197-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC47175-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC47175-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC47219-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC47219-800px.jpg)
 
 ### Game 2
 
@@ -35,12 +35,12 @@ I took four tubes and I put the treats in the tubes before I placed them in the 
 
 It took Miki about two minutes to figure out, that he needed to lift the tubes out of the box one at a time in order to get the treats. It took Miki about three minutes altogether to eat all the treats.
 
-![](https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48624-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48624-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48626-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48626-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48644-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48644-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48649-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48649-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48651-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48651-800px.jpg)

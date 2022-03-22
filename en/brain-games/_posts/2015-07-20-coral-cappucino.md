@@ -3,7 +3,7 @@ title: "Coral cappuccino"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11538-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/nescafe-purkki/DS11538-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/coral-cappucino/
@@ -25,36 +25,36 @@ After a couple of easy games I put some kibble on the bottom and then I pushed o
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11428-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nescafe-purkki/DS11428-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11422-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nescafe-purkki/DS11422-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11430-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nescafe-purkki/DS11430-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11461-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nescafe-purkki/DS11461-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11521-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nescafe-purkki/DS11521-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11538-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nescafe-purkki/DS11538-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11583-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nescafe-purkki/DS11583-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11601-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nescafe-purkki/DS11601-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11636-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nescafe-purkki/DS11636-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS11699-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nescafe-purkki/DS11699-800px.jpg)
 
 You can make the game a bit more difficult if you place a piece of tape on the mouth of the jar, so the corals can't fall out. The corals must be quite loose so the kibble can fall out between them.
 
 And make sure your dog doesn't eat the tape by accident. If you put the tape around the whole jar it's more likely to stay in place.
 
-![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS39983-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nescafe-purkki/DS39983-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS40009-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nescafe-purkki/DS40009-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS40010-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nescafe-purkki/DS40010-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS40014-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nescafe-purkki/DS40014-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nescafe-purkki/DS40015-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nescafe-purkki/DS40015-800px.jpg)

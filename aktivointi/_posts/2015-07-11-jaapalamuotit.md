@@ -3,7 +3,7 @@ title: "Jääpalamuotit"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/jaapalamuotit/DSC46427-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/jaapalamuotit/DSC46427-245px.jpg
   thumb:
 ---
 
@@ -19,18 +19,18 @@ Vaikein näistä oli Mikille se, kun laitoin namit piiloon muottien alle. Kumisi
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/jaapalamuotit/DSC46471-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/jaapalamuotit/DSC46471-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/jaapalamuotit/DSC46369-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/jaapalamuotit/DSC46369-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/jaapalamuotit/DSC46405-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/jaapalamuotit/DSC46405-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/jaapalamuotit/DSC46427-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/jaapalamuotit/DSC46427-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/jaapalamuotit/DSC46448-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/jaapalamuotit/DSC46448-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/jaapalamuotit/DSC46497-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/jaapalamuotit/DSC46497-800px.jpg)
 
 Jääpalamuottia on käytetty hellepäivän pelastajana, postissa "[Jään sisällä olevat namit](/aktivointi/jaan-sisalla-olevat-namit/)".
 
-![](https://b2.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC43352-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC43352-800px.jpg)

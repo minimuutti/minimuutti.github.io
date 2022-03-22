@@ -3,7 +3,7 @@ title: "Paperituubi"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/paperituubi/DSC29173-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/paperituubi/DSC29173-245px.jpg
   thumb:
 ---
 
@@ -23,22 +23,22 @@ Mikiltä meni noin 10 minuuttia tämän jättituubin tuhoamisessa.
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/paperituubi/DSC29139_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperituubi/DSC29139_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/paperituubi/DSC29140_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperituubi/DSC29140_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/paperituubi/DSC29142_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperituubi/DSC29142_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/paperituubi/DSC29144_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperituubi/DSC29144_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/paperituubi/DSC29173_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperituubi/DSC29173_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/paperituubi/DS01685-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperituubi/DS01685-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/paperituubi/DS01693-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperituubi/DS01693-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/paperituubi/DS01711-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperituubi/DS01711-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/paperituubi/DS01780-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperituubi/DS01780-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/paperituubi/DS01781-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperituubi/DS01781-800px.jpg)

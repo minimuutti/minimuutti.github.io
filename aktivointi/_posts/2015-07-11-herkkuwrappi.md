@@ -3,7 +3,7 @@ title: "Herkkuwräppi"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/herkkuwrappi/DSC55799-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/herkkuwrappi/DSC55799-245px.jpg
   thumb:
 ---
 
@@ -17,14 +17,14 @@ Mikiltä kesti noin minuutin saada namit ulos tästä.
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/herkkuwrappi/DSC55791-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkuwrappi/DSC55791-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/herkkuwrappi/DSC55799-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkuwrappi/DSC55799-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/herkkuwrappi/DSC55844-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkuwrappi/DSC55844-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/herkkuwrappi/DSC55864-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkuwrappi/DSC55864-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/herkkuwrappi/DSC55871-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkuwrappi/DSC55871-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/herkkuwrappi/DSC55779-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkuwrappi/DSC55779-800px.jpg)

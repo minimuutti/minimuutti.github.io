@@ -3,7 +3,7 @@ title: "Fleecekiepit"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06648-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06648-245px.jpg
   thumb:
 ---
 
@@ -19,17 +19,17 @@ Laitoin Kong Traxx -lelun sisälle muutaman tällaisen [Wolf of Wilderness Wild 
 
 Mikiltä kesti noin 7 minuuttia saada kaikki namit ulos tästä.
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06309-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06309-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06342-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06342-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06506-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06506-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06648-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06648-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06750-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06750-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06308-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06308-800px.jpg)
 
 ##### Kong Wishbone
 
@@ -37,17 +37,17 @@ Laitoin Kong Wishbonen sisälle treeneistä yli jääneitä keitetyn kivipiiran 
 
 Mikiltä kesti noin 2 minuuttia saada namit ulos tästä.
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06853-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06853-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06895-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06895-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06947-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06947-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06962-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06962-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS07003-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS07003-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06850-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06850-800px.jpg)
 
 ##### JW Caterpillar
 
@@ -55,15 +55,15 @@ Laitoin myös tämän lelun sisälle kivipiiran paloja ja kieputin fleecen lelun
 
 Mikiltä kesti noin 10 minuuttia saada kivipiiran palaset ulos tästä lelusta.
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06777-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06777-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06789-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06789-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06805-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06805-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06827-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06827-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06775-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06775-800px.jpg)
 
 ##### Space ball stellaron
 
@@ -71,18 +71,18 @@ Käytin tässä noin 6 cm levyistä fleecesuikaletta. Leikkasin ankkafileestä p
 
 Mikiltä kesti noin 6 minuuttia saada kaikki namit syötyä.
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS08060-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS08060-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS08066-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS08066-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS08123-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS08123-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS08142-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS08142-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS08284-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS08284-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS08057-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS08057-800px.jpg)
 
 Tässä lopputulos, nämä tehtävät taisivat olla Mikin mielestä erityisen kivoja :)
 
-![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06839-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06839-800px.jpg)

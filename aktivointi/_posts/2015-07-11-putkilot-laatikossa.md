@@ -3,7 +3,7 @@ title: "Putkilot laatikossa"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48624-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48624-245px.jpg
   thumb:
 ---
 
@@ -19,13 +19,13 @@ Mikiltä löysi vajaan kourallisen nappuloita noin minuutissa. Tähän leikkiin 
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC47163-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC47163-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC47197-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC47197-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC47175-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC47175-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC47219-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC47219-800px.jpg)
 
 ### Tehtävä 2
 
@@ -33,12 +33,12 @@ Käytössäni olevat putkilot mahtuvat pituussuunnassa laatikon sisään juuri j
 
 Mikiltä kesti noin 2 tajuta ettei nameja saakaan putkiloita vierittämällä vaan että ne pitää nostaa ulos. Yhteensä Mikiltä kesti noin 3 minuuttia saada kaikki herkut syötyä näistä.
 
-![](https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48624-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48624-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48626-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48626-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48644-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48644-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48649-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48649-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48651-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/putkilot-laatikossa/DSC48651-800px.jpg)

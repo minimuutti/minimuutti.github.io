@@ -3,7 +3,7 @@ title: "Lentävä lautanen II"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45091-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45091-245px.jpg
   thumb:
 ---
 
@@ -23,22 +23,22 @@ Suunnilleen neljännellä kerralla laitoin kourallisen nappuloita lelun sisälle
 
 Jossain vaiheessa Miki keksi oikotien, kuten olin arvellutkin, ja se työnsi kuononsa lelun sisälle ja söi kaikki nappulat sieltä suoraan. Aion seuraavaksi kaventaa tuota lelun suuaukkoa niin, ettei Mikin kuono enää mahdu tuosta reiästä sisään, jolloin Mikin on taas käänneltävä lelua saadakseen nappulat ulos siitä.
 
-![](https://b2.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45155-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45155-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45027-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45027-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45035-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45035-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45019-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45019-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45091-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45091-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45097-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45097-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45161-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45161-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45153-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45153-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45354-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lentava-lautanen-ii/DS45354-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lentava-lautanen-ii/Kollaasi__iso_10-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lentava-lautanen-ii/Kollaasi__iso_10-800px.jpg)

@@ -3,7 +3,7 @@ title: "Flippin' it"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/flippailu/DS060441-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/flippailu/DS060441-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/flippin-it/
@@ -23,20 +23,20 @@ Miki figured out this game super quickly. It took Miki no more than a few second
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/flippailu/DS06021-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/flippailu/DS06021-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/flippailu/DS06072-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/flippailu/DS06072-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/flippailu/DS06074-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/flippailu/DS06074-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/flippailu/DS06075-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/flippailu/DS06075-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/flippailu/DS06078-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/flippailu/DS06078-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/flippailu/DS06029-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/flippailu/DS06029-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/flippailu/DS06042-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/flippailu/DS06042-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/flippailu/DS06044-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/flippailu/DS06044-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/flippailu/Kollaasi_flip-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/flippailu/Kollaasi_flip-800px.jpg)

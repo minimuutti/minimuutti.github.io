@@ -3,7 +3,7 @@ title: "Ohittaminen"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/blogi/DSC25924_2-245px.jpg
+  teaser: https://cdn.minimuutti.com/blogi/DSC25924_2-245px.jpg
   thumb:
 ---
 
@@ -19,7 +19,7 @@ Kannattaa myös lukea toinen aiheeseen liittyvä postaus: [Ovatko reaktiiviset k
 
 Luonnollisissa kohtaamisissa koirat eivät ikinä kävele suoraan toisiaan kohti, vaan koirat lähestyvät toisiaan aina sivulta kaartaen, koska suoraan kohti tuleminen tarkoittaa hyökkäystä.
 
-![](https://b2.minimuutti.com/blogi/kiertaen-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/kiertaen-800px.jpg)
 
 Kun ihmiset kävelyttävät koiriaan kapeilla jalkakäytävillä, niin moni kävelyttää koiraansa suoraan toista koiraa päin ajattelematta asiaa sen suuremmin ja sitten ollaankin ongelmissa. Ihminenhän on juuri "kertonut" koiralle että ollaan hyökkäämässä vastaantulijoiden kimppuun, koska kävellään suoraan päin.
 
@@ -33,15 +33,15 @@ Olemme Mikin kanssa opetelleet ohittamaan tavalliset rauhalliset koirat kävelle
 
 Alla on havainnekuvat oikeanlaisesta ohituksesta, sekä sellaisista jotka eivät todennäköisesti pääty hyvin.
 
-![](https://b2.minimuutti.com/blogi/ohitus_oikein-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/ohitus_oikein-800px.jpg)
 
 ********
 
-![](https://b2.minimuutti.com/blogi/vastakkain-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/vastakkain-800px.jpg)
 
 ********
 
-![](https://b2.minimuutti.com/blogi/suoraan-taakse-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/suoraan-taakse-800px.jpg)
 
 
 ### Mistä remmiräyhääminen johtuu
@@ -74,11 +74,11 @@ Miki on käyttänyt kaikkia edellämainitsemiani signaaleita, mutta niistä ei j
 
 Alla näkyvässä piirroksessa koira on hidastanut vauhtiaan sekä laskenut itsensä matalaksi, vaikka se vielä kävelee eteenpäin. Koira näyttää "vaanivan" ja sen korvat osoittavat eteenpäin ja se tuijottaa vastaantulijaa. Tässä vaiheessa viimeistään on otettava lisää etäisyyttä vastaantulijaan, esimerkiksi väistettävä sivuun tai viimeisenä vaihtoehtona tehtävä U-käännös.
 
-![](https://b2.minimuutti.com/blogi/stalking_and_walking-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/stalking_and_walking-800px.jpg)
 
 Seuraavassa piirroksessa näkyy koira, joka on hidastanut vauhtiaan jo niin paljon, että se on jo pysähtynyt. Sen koko keho on kuin jännittynyt jousi, vaikka se näennäisesti makaa maassa. Koira tuijottaa vastaantulijaa tiukasti ja sen pää on huomattavasti etutassujen edellä. Tässä vaiheessa koira on jo valmiudessa hyökkäämään. Se on jo niin valmis, että tässä vaiheessa taluttajan ei ole enää mahdollista ottaa etäisyyttä vastaantulijaan, koska koira on jo niin keskittynyt hyökkäämiseen, ettei se enää reagoi mihinkään mitä taluttaja sille sanoo.
 
-![](https://b2.minimuutti.com/blogi/stalking-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/stalking-800px.jpg)
 
 Opi lukemaan koirasi pienempiä eleitä, niin koirasi voi kertoa sinulle ajoissa (ymmärrät kun koirasi kertoo) että se kokee tilanteen uhkaavaksi ja ehditte poistua ennen tilanteen eskaloitumista. 
 
@@ -86,7 +86,7 @@ Mikäli huomaat tällaisen käytöksen vastaantulevassa koirassa, niin oman koir
 
 Selvyyden vuoksi alla on vielä kuva leikkiinkutsusta, jota ei pidä sekoittaa vaanivaan kävelyyn. Leikkiinkutsu on ystävällinen ja vaaraton ele. Leikkiinkutsussa koira "niiaa" vain etutassuilla ja sen peräpää on pystyssä. Lisäksi koiran pää on selvästi etutassujen takana ja koiran korvat osoittavat ennemmin taaksepäin.
 
-![](https://b2.minimuutti.com/blogi/playbow-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/playbow-800px.jpg)
 
 Toinen selkeä "ei-ohitettava" vastaantulija on kiihtynyt koira. Vastaantuleva koira voi olla alunperin kiihtynyt mistä vaan syystä (vaikka ohi juosseesta oravasta), mutta sinun koirasi näkee vain kiihtyneen koiran ja todennäköisesti reagoi siihen.
 
@@ -94,7 +94,7 @@ Mikäli jompi kumpi koira (sinun tai vastaantulijan) on kiihtynyt, niin älä yr
 
 Alla olevassa kuvassa Miki on todella kiihtynyt näkemästään koirasta jota se ei voi sietää. Sen lisäksi, että sen pää, häntä ja korvat ovat pystyssä, niin se on jopa noussut takajaloilleen.
 
-![](https://b2.minimuutti.com/blogi/190922-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/190922-800px.jpg)
 
 Älä yritä ohittaa hyökkäysvalmiudessa tai kiihtyneessä tilassa olevan koiran kanssa vastaantulevaa koiraa. Ja muista antaa tilaa tällaiselle koiralle oman koirasi turvallisuuden vuoksi.
 
@@ -136,7 +136,7 @@ Seuraamisen opettelu aloitetaan ilman häiriöitä, vaikkapa kotona. Kun koira o
 
 Jos et tiedä miten seuraaminen opetetaan, voit etsiä You Tubesta "teach dog to heel".
 
-![](https://b2.minimuutti.com/blogi/DSC25924_-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DSC25924_-800px.jpg)
 
 Kun koirasi osaa seurata, niin muiden koirien ohittamisen harjoittelu kannattaa ensin aloittaa sellaisessa paikassa, jossa on enemmän tilaa, vaikkapa puistossa. Koirasi kehonkieltä tulee seurata koko ajan ja jos koirasi vaikuttaa ahdistuneelta, niin älä pakota sitä ohittamaan vaan vaihtakaa suuntaa.
 

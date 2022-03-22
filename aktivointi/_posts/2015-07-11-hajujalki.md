@@ -3,7 +3,7 @@ title: "Hajujälki"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/muut/Kuva tulossa pian.jpg
+  teaser: https://cdn.minimuutti.com/muut/Kuva tulossa pian.jpg
   thumb:
 ---
 
@@ -14,4 +14,4 @@ Sisällä olen joskus piilottanut yhden palan esim. juustoa tai nakkia niin, ett
 Ne onnekkaat joilla on oma piha, niin kannattaa kokeilla laittaa esim. tonnikalaliemestä ja vedestä tai vaikka lihaliemestä tehtyä hajujälkeä pihalle ja naminpalanen odottaa sitten löytäjäänsä. En malta odottaa että pääsemme testaamaan tätä jossain.
 
 
-https://b2.minimuutti.com/muut/Kuva tulossa pian.jpg
+https://cdn.minimuutti.com/muut/Kuva tulossa pian.jpg

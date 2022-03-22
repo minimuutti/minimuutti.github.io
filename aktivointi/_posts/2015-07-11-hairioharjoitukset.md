@@ -3,7 +3,7 @@ title: "Häiriöharjoitukset"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/hairioharjoitukset/DSC41355-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/hairioharjoitukset/DSC41355-245px.jpg
   thumb:
 ---
 
@@ -19,6 +19,6 @@ Myös erilaiset äänet ovat hyviä häiriöitä. Tällaisia ovat mm. ruokanappu
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/hairioharjoitukset/DSC41354-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/hairioharjoitukset/DSC41354-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/hairioharjoitukset/DSC41355-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/hairioharjoitukset/DSC41355-800px.jpg)

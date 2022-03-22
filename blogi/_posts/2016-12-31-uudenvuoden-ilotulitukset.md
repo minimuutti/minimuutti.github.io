@@ -3,7 +3,7 @@ title: "Uudenvuoden ilotulitukset"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/mikin-kuvat/3/DS45771-245px.jpg
+  teaser: https://cdn.minimuutti.com/mikin-kuvat/3/DS45771-245px.jpg
   thumb:
 ---
 
@@ -35,76 +35,76 @@ Kun kello läheni puoltayötä niin hain pussillisen Mikin lempiherkkuja ja syö
 
 **Klo 19:45:**
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45547-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45547-800px.jpg)
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45596-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45596-800px.jpg)
 
 **Klo 20:00:**
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45592-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45592-800px.jpg)
 
 **Klo 20:30 Miki jopa halusi leikkiä, aivan fantastista!**
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45666-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45666-800px.jpg)
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45674-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45674-800px.jpg)
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45694-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45694-800px.jpg)
 
 **OMG MIKÄ SE OLI?!?**
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45714-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45714-800px.jpg)
 
 **Miki olisi jopa halunnut mennä parvekkeelle katsomaan, koska se jonotti oven edessä, mutta en kuitenkaan sitä sinne päästänyt, koska se olisi varmasti ollut liian pelottavaa.**
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45726-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45726-800px.jpg)
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45729-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45729-800px.jpg)
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45743-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45743-800px.jpg)
 
 **Tätä mieltä olen ilotulituksista :)**
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45736-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45736-800px.jpg)
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45772-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45772-800px.jpg)
 
 **MIKÄ SE OLI?!?**
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45755-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45755-800px.jpg)
 
 **Äh, ei kait mitään :)**
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45771-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45771-800px.jpg)
 
 **Klo 20:50 Susulla oli hauskaa kameran kanssa :)**
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45809-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45809-800px.jpg)
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45812-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45812-800px.jpg)
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45815-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45815-800px.jpg)
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45817-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45817-800px.jpg)
 
 **Klo 21:20:**
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45833-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45833-800px.jpg)
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45868-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45868-800px.jpg)
 
 **Klo 22:00:**
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45879-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45879-800px.jpg)
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45889-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45889-800px.jpg)
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45891-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45891-800px.jpg)
 
 **Klo 22:20:**
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45910-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45910-800px.jpg)
 
-![](https://b2.minimuutti.com/mikin-kuvat/3/DS45933-800px.jpg)
+![](https://cdn.minimuutti.com/mikin-kuvat/3/DS45933-800px.jpg)
 
 1.1.2017

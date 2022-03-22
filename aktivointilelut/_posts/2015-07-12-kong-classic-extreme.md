@@ -3,7 +3,7 @@ title: "Kong Classic (Extreme)"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointilelut/kongit/DS37157-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointilelut/kongit/DS37157-245px.jpg
   thumb:
 ---
 
@@ -25,32 +25,32 @@ Joskus laitan leluun myös keskeltä puoliksi taitetun (V –kirjaimen mallisen)
 
 Tämä lelu on ehdoton suosikkini sen monikäyttöisyyden ja kestävyyden vuoksi.
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DS37157-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DS37157-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC16731_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC16731_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC19223_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC19223_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC19253_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC19253_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC14116_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC14116_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC30350_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC30350_2-800px.jpg)
 
 Tätä lelua on käytetty myös seuraavissa tehtävissä:
 
 [Tötteröt:](/aktivointi/totterot/)
 
-[![](https://b2.minimuutti.com/aktivointi/totterot/DSC40378-800px.jpg)](/aktivointi/totterot/)
+[![](https://cdn.minimuutti.com/aktivointi/totterot/DSC40378-800px.jpg)](/aktivointi/totterot/)
 
 [Putkipiilo:](/aktivointi/putkipiilo/)
 
-[![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC47917-800px.jpg)](/aktivointi/putkipiilo/)
+[![](https://cdn.minimuutti.com/aktivointi/putkipiilo/DSC47917-800px.jpg)](/aktivointi/putkipiilo/)
 
 [Pehmopanda:](/aktivointi/pehmopanda/)
 
-[![](https://b2.minimuutti.com/aktivointi/pehmopanda/DSC49437-800px.jpg)](/aktivointi/pehmopanda/)
+[![](https://cdn.minimuutti.com/aktivointi/pehmopanda/DSC49437-800px.jpg)](/aktivointi/pehmopanda/)
 
 [Kongit mukeissa:](/aktivointi/kongit-mukeissa/)
 
-[![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC48179-800px.jpg)](/aktivointi/kongit-mukeissa/)
+[![](https://cdn.minimuutti.com/aktivointi/kongit-mukeissa/DSC48179-800px.jpg)](/aktivointi/kongit-mukeissa/)

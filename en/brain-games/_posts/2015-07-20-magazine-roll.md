@@ -3,7 +3,7 @@ title: "Magazine roll"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36316-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/lehtirulla/DSC36316-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/magazine-roll/
@@ -23,22 +23,22 @@ First you can try this game without rolling and taping the magazine. From an unr
 
 Rolled magazine:
 
-![](https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36316-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lehtirulla/DSC36316-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36330-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lehtirulla/DSC36330-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36415-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lehtirulla/DSC36415-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36428-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lehtirulla/DSC36428-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36439-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lehtirulla/DSC36439-800px.jpg)
 
 Unrolled magazine:
 
-![](https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36306-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lehtirulla/DSC36306-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36181-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lehtirulla/DSC36181-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36120-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lehtirulla/DSC36120-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lehtirulla/DSC36290-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lehtirulla/DSC36290-800px.jpg)

@@ -3,7 +3,7 @@ title: "Palloputket"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/palloputket/DS38807-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/palloputket/DS38807-245px.jpg
   thumb:
 ---
 
@@ -17,26 +17,26 @@ Laitoin kumpaankin pesupalloon muutamia nappuloita ennen kuin tungin hylsyn niid
 
 Kolmen palloputken avaaminen kesti Mikiltä vähän vajaa 10 minuuttia.
 
-![](https://b2.minimuutti.com/aktivointi/palloputket/DS38692-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/palloputket/DS38692-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/palloputket/DS38695-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/palloputket/DS38695-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/palloputket/DS38709-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/palloputket/DS38709-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/palloputket/DS38738-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/palloputket/DS38738-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/palloputket/DS38777-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/palloputket/DS38777-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/palloputket/DS38807-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/palloputket/DS38807-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/palloputket/DS38825-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/palloputket/DS38825-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/palloputket/DS38855-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/palloputket/DS38855-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/palloputket/DS38936-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/palloputket/DS38936-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/palloputket/DS38948-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/palloputket/DS38948-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/palloputket/DS38670-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/palloputket/DS38670-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/palloputket/DS38673-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/palloputket/DS38673-800px.jpg)

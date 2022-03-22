@@ -3,7 +3,7 @@ title: "How to desensitize a dog to nail clipping"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55752_-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55752_-245px.jpg
   thumb:
 ---
 
@@ -31,43 +31,43 @@ Every time you're about to desensitize something to your dog remember the classi
 
 Put the tongs on the floor but don't do anything with them - just let them be there and reward your dog for being calm. Your dog may want to sniff them and that's okay. You can reward him for doing that as well.
 
-![](https://b2.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55361-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55361-800px.jpg)
 
 The next step is to touch the tongs on the floor with your hand and reward your dog when he's calm.
 
-![](https://b2.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55368-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55368-800px.jpg)
 
 After that you can pick the tongs up and and put them down and reward your dog just like before.
 
-![](https://b2.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55467-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55467-800px.jpg)
 
 The next step is to ask your dog to give a paw when the tongs are on the floor and reward him for doing that calmly.
 
-![](https://b2.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55485-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55485-800px.jpg)
 
 Later on you can touch the tongs that are on the floor when your dog gives a paw and slowly make progress towards you taking the tongs to your hand while your dog's paw is in your hand.
 
-![](https://b2.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55613-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55613-800px.jpg)
 
 It's very important you desensitize him to the tongs slowly. If you rush your dog might get scared and then you are back in square one. It's best to keep the training sessions short - just 1 to 3 minutes at a time. And remember to reward him with something that he really enjoys.
 
 When you have advanced and you can hold your dog's paw while holding the tongs you can move forward. Now you can start touching your dog's paw gently with the tongs or stroke his paw with them.
 
-![](https://b2.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55706-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55706-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55829-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55829-800px.jpg)
 
 Later on you can clip the air with the tongs near your dog's paw but don't try to cut his nails yet.
 
-![](https://b2.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55712-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55712-800px.jpg)
 
 If your dog wants to sniff the tongs let him do that in his own pace.
 
-![](https://b2.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55732-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55732-800px.jpg)
 
 When you master the previous steps you can start cutting the nails. It's best to start as slowly as possible and cut only one nail per training session and reward your dog heavily when you do.
 
-![](https://b2.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55752-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55752-800px.jpg)
 
 You can add more steps between the ones I presented here. It's always better to make a slow progress towards your goal than to fix the problems occured by rushing too fast.
 
@@ -75,10 +75,10 @@ You can use this type of training to desensitize your dog to almost everything. 
 
 Or if you know your dog is going to have some operation that requires the dog to wear a protective collar, you may want to desensitize your dog to wear the protective collar before the actual operation.
 
-![](https://b2.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DSC58327-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DSC58327-800px.jpg)
 
 I also desensitized Miki to wear this furry cap :)
 
-![](https://b2.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/IMG29753-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/IMG29753-800px.jpg)
 
 2019-02-14

@@ -3,7 +3,7 @@ title: "Turntables"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/levysoittimet/DSC54548-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/levysoittimet/DSC54548-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/turntables/
@@ -27,16 +27,16 @@ This game was easy for Miki and it took Miki about 15 to 20 seconds to figure it
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/levysoittimet/DSC54511-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/levysoittimet/DSC54511-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/levysoittimet/DSC54548-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/levysoittimet/DSC54548-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/levysoittimet/DSC54554-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/levysoittimet/DSC54554-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/levysoittimet/DSC54624-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/levysoittimet/DSC54624-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/levysoittimet/DSC54681-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/levysoittimet/DSC54681-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/levysoittimet/DSC54691-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/levysoittimet/DSC54691-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/levysoittimet/DSC54485_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/levysoittimet/DSC54485_2-800px.jpg)

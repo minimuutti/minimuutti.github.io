@@ -69,4 +69,4 @@ I hope you enjoy the journey with Minimute and I hope that these pages can help 
 
 The journey with Minimute has just begun!
 
-![](https://b2.minimuutti.com/muut/2371-800px.jpg)
+![](https://cdn.minimuutti.com/muut/2371-800px.jpg)

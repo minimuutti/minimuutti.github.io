@@ -3,7 +3,7 @@ title: "Estelaatikko"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/estelaatikko/DSC41627-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/estelaatikko/DSC41627-245px.jpg
   thumb:
 ---
 
@@ -17,20 +17,20 @@ Joistain tekemistäni koloista tuli Mikille vähän liian pieniä, kuten noista 
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/estelaatikko/DSC41515-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/estelaatikko/DSC41515-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/estelaatikko/DSC41529-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/estelaatikko/DSC41529-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/estelaatikko/DSC41526-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/estelaatikko/DSC41526-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/estelaatikko/DSC41581-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/estelaatikko/DSC41581-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/estelaatikko/DSC41625-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/estelaatikko/DSC41625-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/estelaatikko/DSC41633-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/estelaatikko/DSC41633-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/estelaatikko/DSC41641-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/estelaatikko/DSC41641-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/estelaatikko/DSC41672-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/estelaatikko/DSC41672-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/estelaatikko/DSC41652-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/estelaatikko/DSC41652-800px.jpg)

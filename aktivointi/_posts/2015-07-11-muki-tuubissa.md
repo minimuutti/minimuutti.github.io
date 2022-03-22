@@ -3,7 +3,7 @@ title: "Muki tuubissa"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/muki-tuubissa/DSC56649-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/muki-tuubissa/DSC56649-245px.jpg
   thumb:
 ---
 
@@ -21,10 +21,10 @@ Koska muki oli putkessa aika tiukassa, niin pidin putkea toisesta päästä kiin
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/muki-tuubissa/DSC56581-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muki-tuubissa/DSC56581-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/muki-tuubissa/DSC56597-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muki-tuubissa/DSC56597-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/muki-tuubissa/DSC56649-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muki-tuubissa/DSC56649-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/muki-tuubissa/DSC56628-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muki-tuubissa/DSC56628-800px.jpg)

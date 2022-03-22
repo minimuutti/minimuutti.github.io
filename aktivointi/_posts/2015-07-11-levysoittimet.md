@@ -3,7 +3,7 @@ title: "Levysoittimet"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/levysoittimet/DSC54548-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/levysoittimet/DSC54548-245px.jpg
   thumb:
 ---
 
@@ -27,16 +27,16 @@ Tämä tehtävä oli Mikille helppo, Miki keksi tämän tehtävän idean noin 15
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/levysoittimet/DSC54511-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/levysoittimet/DSC54511-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/levysoittimet/DSC54548-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/levysoittimet/DSC54548-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/levysoittimet/DSC54554-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/levysoittimet/DSC54554-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/levysoittimet/DSC54624-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/levysoittimet/DSC54624-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/levysoittimet/DSC54681-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/levysoittimet/DSC54681-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/levysoittimet/DSC54691-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/levysoittimet/DSC54691-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/levysoittimet/DSC54485_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/levysoittimet/DSC54485_2-800px.jpg)

@@ -3,7 +3,7 @@ title: "Snuffle mat"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/fleecematto/DS16409-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/fleecematto/DS16409-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/snuffle-mat/
@@ -25,18 +25,18 @@ The first time you give the mat to your dog, put the threats ON TOP of the strip
 
 You may want to use only dry treats with the mat. If you make the mat with a towel, you can easily put the mat inside a laundry bag and put it in the washing machine. If you choose a rubber mat you may need to hand wash it if it gets dirty.
 
-![](https://b2.minimuutti.com/aktivointi/fleecematto/DS16645-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecematto/DS16645-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecematto/DS16649-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecematto/DS16649-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecematto/DS16370-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecematto/DS16370-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecematto/DS16386-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecematto/DS16386-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecematto/DS16409-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecematto/DS16409-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecematto/DS16401-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecematto/DS16401-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecematto/DS16431-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecematto/DS16431-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/fleecematto/fleecematto_kollaasi-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/fleecematto/fleecematto_kollaasi-800px.jpg)

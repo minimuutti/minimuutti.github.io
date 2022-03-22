@@ -3,7 +3,7 @@ title: "Cup in the tube"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/muki-tuubissa/DSC56649-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/muki-tuubissa/DSC56649-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/cup-in-the-tube/
@@ -23,10 +23,10 @@ As the cup was in the tube quite tightly, I hold the tube from the other end aga
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/muki-tuubissa/DSC56581-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muki-tuubissa/DSC56581-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/muki-tuubissa/DSC56597-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muki-tuubissa/DSC56597-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/muki-tuubissa/DSC56649-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muki-tuubissa/DSC56649-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/muki-tuubissa/DSC56628-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muki-tuubissa/DSC56628-800px.jpg)

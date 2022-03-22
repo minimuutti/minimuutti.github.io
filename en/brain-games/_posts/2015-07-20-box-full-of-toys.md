@@ -3,7 +3,7 @@ title: "Box full of toys"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/lelulaatikko/DSC30079-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/lelulaatikko/DSC30079-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/box-full-of-toys/
@@ -17,10 +17,10 @@ I usually put 10 to 15 pieces of wiener in the box, one at a time, and let Miki 
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/lelulaatikko/DSC29380_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lelulaatikko/DSC29380_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lelulaatikko/DSC30079_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lelulaatikko/DSC30079_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lelulaatikko/DSC30084_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lelulaatikko/DSC30084_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lelulaatikko/DSC26654_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lelulaatikko/DSC26654_2-800px.jpg)

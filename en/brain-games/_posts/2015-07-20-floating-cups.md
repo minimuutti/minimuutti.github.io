@@ -3,7 +3,7 @@ title: "Floating cups"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/kelluvat-kupit/DSC39318-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/kelluvat-kupit/DSC39318-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/floating-cups/
@@ -19,12 +19,12 @@ It took Miki about two minutes to complete this task.
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/kelluvat-kupit/DSC39307-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kelluvat-kupit/DSC39307-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kelluvat-kupit/DSC39318-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kelluvat-kupit/DSC39318-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kelluvat-kupit/DSC39312-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kelluvat-kupit/DSC39312-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kelluvat-kupit/DSC39344-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kelluvat-kupit/DSC39344-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kelluvat-kupit/DSC39357-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kelluvat-kupit/DSC39357-800px.jpg)

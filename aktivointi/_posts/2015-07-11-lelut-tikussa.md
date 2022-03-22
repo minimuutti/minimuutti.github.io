@@ -3,7 +3,7 @@ title: "Lelut tikussa"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/lelut-tikussa/DS07913_-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/lelut-tikussa/DS07913_-245px.jpg
   thumb:
 ---
 
@@ -19,26 +19,26 @@ Tehtävää voi vaikeuttaa niin, että pitelee tikkua yläviistoon, jolloin lelu
 
 Kong Traxx -lelun saat ostettua [Zooplussasta](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/lelut/aktivointilelut/aktivointi/326683)).
 
-![](https://b2.minimuutti.com/aktivointi/lelut-tikussa/DS07912-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lelut-tikussa/DS07912-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lelut-tikussa/DS07913-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lelut-tikussa/DS07913-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lelut-tikussa/DS07996-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lelut-tikussa/DS07996-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lelut-tikussa/DS08013-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lelut-tikussa/DS08013-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lelut-tikussa/DS08019-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lelut-tikussa/DS08019-800px.jpg)
 
 Teimme tätä tehtävää myös Hunter solmulelulla, jossa on sopiva lenkki pujottamista varten. Laitoin lelun toisessa päässä olevaan koloon pienen ankkafileestä leikatun palasen ennen kuin pujotin lelun tikkuun.
 
 Hunter solmulelun saat myös [Zooplussasta](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/shop/koirat/lelut/herkkulelut/hammashoitolelut/438146)).
 
-![](https://b2.minimuutti.com/aktivointi/lelut-tikussa/DS08025-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lelut-tikussa/DS08025-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lelut-tikussa/DS08028-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lelut-tikussa/DS08028-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lelut-tikussa/DS08031-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lelut-tikussa/DS08031-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lelut-tikussa/DS08050-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lelut-tikussa/DS08050-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/lelut-tikussa/DS08022-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/lelut-tikussa/DS08022-800px.jpg)

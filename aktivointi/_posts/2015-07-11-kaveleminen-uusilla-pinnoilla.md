@@ -3,7 +3,7 @@ title: "Käveleminen uusilla pinnoilla"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29607-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29607-245px.jpg
   thumb:
 ---
 
@@ -15,14 +15,14 @@ Tätä samaa pahvilaatikkoa käytettiin myös tunnelina.
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29605-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29605-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29601-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29601-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29607-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29607-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tunnelit/IMG29506-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tunnelit/IMG29506-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/DSC32295-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/DSC32295-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/DSC38680-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/DSC38680-800px.jpg)

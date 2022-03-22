@@ -8,9 +8,9 @@ Contact:
 email: minimuutti.com(at)gmail.com<br/>
 Twitter: @minimuutti
 
-[![](https://b2.minimuutti.com/muut/twitter.jpg)](https://twitter.com/minimuutti)
+[![](https://cdn.minimuutti.com/muut/twitter.jpg)](https://twitter.com/minimuutti)
 
-![](https://b2.minimuutti.com/muut/computer_wolf_.jpg)
+![](https://cdn.minimuutti.com/muut/computer_wolf_.jpg)
 
 If you find this site useful and you want to support me, you can donate free amount via Paypal or you can send bitcoins to the adress below:
 
@@ -28,9 +28,9 @@ If you find this site useful and you want to support me, you can donate free amo
 
 If you live in Finland, please use the link below next time you buy something from Zooplus' online store.
 
-![](https://b2.minimuutti.com/muut/minimute_.jpg)
+![](https://cdn.minimuutti.com/muut/minimute_.jpg)
 
-[![](https://b2.minimuutti.com/muut/zooplus.jpg)](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/))
+[![](https://cdn.minimuutti.com/muut/zooplus.jpg)](http://clk.tradedoubler.com/click?p(210840)a(2526211)g(19927404)url(http://www.zooplus.fi/))
 
 New and recently updated posts:
 

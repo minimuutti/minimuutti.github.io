@@ -3,7 +3,7 @@ title: "Rope in a box"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/koysilaatikko/DSC30102-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/koysilaatikko/DSC30102-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/rope-in-a-box/
@@ -17,20 +17,20 @@ So I put this rope into a cardboard box and take the metal snap hook out. Then I
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/koysilaatikko/DSC30098_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/koysilaatikko/DSC30098_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/koysilaatikko/DSC30102_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/koysilaatikko/DSC30102_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/koysilaatikko/DSC26678_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/koysilaatikko/DSC26678_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/koysilaatikko/DSC26701_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/koysilaatikko/DSC26701_2-800px.jpg)
 
 If you don't have any rope you can always improvise. I happened to have three long fleece plaits which I put on a basket and they were just perfect for this game.
 
-![](https://b2.minimuutti.com/aktivointi/koysilaatikko/DS40104-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/koysilaatikko/DS40104-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/koysilaatikko/DS40135-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/koysilaatikko/DS40135-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/koysilaatikko/DS40110-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/koysilaatikko/DS40110-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/koysilaatikko/DS40124-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/koysilaatikko/DS40124-800px.jpg)

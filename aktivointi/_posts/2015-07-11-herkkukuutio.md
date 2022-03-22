@@ -3,7 +3,7 @@ title: "Herkkukuutio"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/herkkukuutio/DSC37126-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/herkkukuutio/DSC37126-245px.jpg
   thumb:
 ---
 
@@ -17,16 +17,16 @@ T채h채n k채y hyvin kaikki kuivat namit, jotka vain mahtuvat ulos tuosta rei채st�
 
 Tennispallo toimi mukavana hidasteena tuolla kuution sis채ll채 ja Mikilt채 kului noin kolme minuuttia saada kaikki namit ulos tuolta.
 
-![](https://b2.minimuutti.com/aktivointi/herkkukuutio/DSC37048-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkukuutio/DSC37048-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/herkkukuutio/DSC37210-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkukuutio/DSC37210-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/herkkukuutio/DSC37226-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkukuutio/DSC37226-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/herkkukuutio/DSC37208-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkukuutio/DSC37208-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/herkkukuutio/DSC37186-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkukuutio/DSC37186-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/herkkukuutio/DSC37126-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkukuutio/DSC37126-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/herkkukuutio/DSC37040-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/herkkukuutio/DSC37040-800px.jpg)

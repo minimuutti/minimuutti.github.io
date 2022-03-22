@@ -3,7 +3,7 @@ title: "JW Playbites Caterpillar"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointilelut/muut/DS05515-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointilelut/muut/DS05515-245px.jpg
   thumb:
 ---
 
@@ -19,22 +19,22 @@ Yleensä laitan leluun kuivatusta kanafileestä leikattuja palasia. Mikillä kes
 
 ---
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS05450-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS05450-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS05515-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS05515-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS05597-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS05597-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS05663-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS05663-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS05673-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS05673-800px.jpg)
 
 Tätä lelua on käytetty myös tehtävissä:
 
 [Fleecekiepit:](/aktivointi/fleecekiepit/)
 
-[![](https://b2.minimuutti.com/aktivointi/fleecekiepit/DS06789-800px.jpg)](/aktivointi/fleecekiepit/)
+[![](https://cdn.minimuutti.com/aktivointi/fleecekiepit/DS06789-800px.jpg)](/aktivointi/fleecekiepit/)
 
 [Yhdistetyt lelut:](/aktivointilelut/yhdistetyt-lelut/)
 
-[![](https://b2.minimuutti.com/aktivointilelut/muut/DS11210-800px.jpg)](/aktivointilelut/yhdistetyt-lelut/)
+[![](https://cdn.minimuutti.com/aktivointilelut/muut/DS11210-800px.jpg)](/aktivointilelut/yhdistetyt-lelut/)

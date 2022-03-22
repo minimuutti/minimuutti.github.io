@@ -3,7 +3,7 @@ title: "Köysilaatikko"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/koysilaatikko/DSC30102-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/koysilaatikko/DSC30102-245px.jpg
   thumb:
 ---
 
@@ -15,20 +15,20 @@ Kuvissa näkyvä pahvilaatikko täyttyy noin puoliväliin kun tämän köyden la
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/koysilaatikko/DSC30098_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/koysilaatikko/DSC30098_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/koysilaatikko/DSC30102_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/koysilaatikko/DSC30102_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/koysilaatikko/DSC26678_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/koysilaatikko/DSC26678_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/koysilaatikko/DSC26701_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/koysilaatikko/DSC26701_2-800px.jpg)
 
 Köysilaatikon kanssa voi myös improvisoida. Minulla sattui olemaan tällaisia pitkiä fleecestä tehtyjä lettejä jotka laitoin koriin esteeksi ja ne toimivat aivan mainiosti.
 
-![](https://b2.minimuutti.com/aktivointi/koysilaatikko/DS40104-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/koysilaatikko/DS40104-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/koysilaatikko/DS40135-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/koysilaatikko/DS40135-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/koysilaatikko/DS40110-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/koysilaatikko/DS40110-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/koysilaatikko/DS40124-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/koysilaatikko/DS40124-800px.jpg)

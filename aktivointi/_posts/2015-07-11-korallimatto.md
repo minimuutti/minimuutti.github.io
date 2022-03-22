@@ -3,7 +3,7 @@ title: "Korallimatto"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/korallimatto/DS60577-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/korallimatto/DS60577-245px.jpg
   thumb:
 ---
 
@@ -17,14 +17,14 @@ Tähän mattoon meni 85 korallia, mutta määrä riippuu käyttämäsi pyyhkeen 
 
 Ensimmäisellä kerralla ripottelin nappulat tuohon päälle, jotta Miki yhdisti tehtävän haisteluun ja etsimiseen. Vasta myöhemmin piilottelin nappulat tuonne korallien koloihin.
 
-![](https://b2.minimuutti.com/aktivointi/korallimatto/DS60525-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/korallimatto/DS60525-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/korallimatto/DS60577-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/korallimatto/DS60577-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/korallimatto/DS60641-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/korallimatto/DS60641-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/korallimatto/DS60671-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/korallimatto/DS60671-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/korallimatto/DS60699-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/korallimatto/DS60699-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/korallimatto/DS60331-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/korallimatto/DS60331-800px.jpg)

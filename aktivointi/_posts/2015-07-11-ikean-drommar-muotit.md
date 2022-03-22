@@ -3,7 +3,7 @@ title: "Ikean Drömmar muotit"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16238-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16238-245px.jpg
   thumb:
 ---
 
@@ -15,36 +15,36 @@ Muottisetti soveltuu yhtä hyvin myös märkäruuan kanssa käytettäväksi. Mä
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16145-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16145-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16153-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16153-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16174-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16174-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16199-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16199-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16228-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16228-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16238-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16238-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16239-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16239-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16258-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16258-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16263-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/ikean-drommar-muotit/DS16263-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37739-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37739-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37744-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37744-800px.jpg)
 
 Tässä on jäädytettyä märkäruokaa, joka sopii täydellisesti kuumiin kesäpäiviin. Tehtävän vaikeutta voi säädellä  käyttämällä erilaisia tai eri määrän muotteja:
 
-![](https://b2.minimuutti.com/aktivointi/ikean-drommar-muotit/DS60168-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/ikean-drommar-muotit/DS60168-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/ikean-drommar-muotit/DS60181-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/ikean-drommar-muotit/DS60181-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/ikean-drommar-muotit/DS60937-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/ikean-drommar-muotit/DS60937-800px.jpg)
 
 Näitä muotteja on käytetty myös tehtävässä [Pyyheraketit](/aktivointi/pyyheraketit/):
 
-[![](https://b2.minimuutti.com/aktivointi/pyyheraketit/DS41785-800px.jpg)](/aktivointi/pyyheraketit/)
+[![](https://cdn.minimuutti.com/aktivointi/pyyheraketit/DS41785-800px.jpg)](/aktivointi/pyyheraketit/)

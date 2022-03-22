@@ -3,7 +3,7 @@ title: "Jään sisällä olevat namit"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC36569-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC36569-245px.jpg
   thumb:
 ---
 
@@ -19,18 +19,18 @@ Nameja jäädyttää myös suoraan jääpalamuottiin. Laitoin jääpalamuotin jo
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC29716_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC29716_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC36534-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC36534-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC36564-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC36564-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC36624-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC36624-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC36520-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC36520-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC43352-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC43352-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC43440-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC43440-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC42930-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/jaan-sisalla-olevat-namit/DSC42930-800px.jpg)

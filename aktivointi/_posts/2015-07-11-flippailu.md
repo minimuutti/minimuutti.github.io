@@ -3,7 +3,7 @@ title: "Flippailu"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/flippailu/DS060441-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/flippailu/DS060441-245px.jpg
   thumb:
 ---
 
@@ -21,20 +21,20 @@ Miki hoksasi tämän tehtävän nopeasti, eikä siltä mennyt montaa sekuntia ku
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/flippailu/DS06021-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/flippailu/DS06021-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/flippailu/DS06072-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/flippailu/DS06072-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/flippailu/DS06074-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/flippailu/DS06074-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/flippailu/DS06075-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/flippailu/DS06075-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/flippailu/DS06078-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/flippailu/DS06078-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/flippailu/DS06029-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/flippailu/DS06029-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/flippailu/DS06042-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/flippailu/DS06042-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/flippailu/DS06044-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/flippailu/DS06044-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/flippailu/Kollaasi_flip-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/flippailu/Kollaasi_flip-800px.jpg)

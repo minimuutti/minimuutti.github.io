@@ -3,7 +3,7 @@ title: "Training with distractions"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/hairioharjoitukset/DSC41355-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/hairioharjoitukset/DSC41355-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/training-with-distractions/
@@ -21,6 +21,6 @@ Different sounds are good distractions too. Open the drawer where you store the 
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/hairioharjoitukset/DSC41354-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/hairioharjoitukset/DSC41354-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/hairioharjoitukset/DSC41355-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/hairioharjoitukset/DSC41355-800px.jpg)

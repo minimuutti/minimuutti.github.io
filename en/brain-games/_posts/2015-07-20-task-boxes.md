@@ -3,7 +3,7 @@ title: "Task boxes"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52610-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52610-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/task-boxes/
@@ -25,17 +25,17 @@ At first time you may wanna use thicker piece of paper, like the covers of the m
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/DS06162-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/DS06162-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/DS06191-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/DS06191-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/DS06203-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/DS06203-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/DS06186-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/DS06186-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/DS06215-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/DS06215-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/DS06228-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-paperipalloilla/DS06228-800px.jpg)
 
 ### 2. Task box with bottles
 
@@ -47,23 +47,23 @@ It took Miki about 30 minutes to get all the kibble and treats out of which the 
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52610-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52610-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52647-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52647-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52801-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52801-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52815-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52815-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52847-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52847-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52876-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52876-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52899-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52899-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52908-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52908-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52918-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-pulloilla/DSC52918-800px.jpg)
 
 ### 3. Task box, hardened version - only for advanced dogs
 
@@ -77,27 +77,27 @@ This task box is harder because of the lid in the big box. Your dog has to open 
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31011-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31011-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31286-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31286-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31288-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31288-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31450-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC31450-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30968-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30968-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30977-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30977-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30990-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30990-800px.jpg)
 
 Miki couldn't wait, so he desided to offer the box trick for some samples of the food :D
 
-![](https://b2.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30983-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30983-800px.jpg)
 
 Picture about the box trick
 
-![](https://b2.minimuutti.com/temput/1/DSC27270_2-800px.jpg)
+![](https://cdn.minimuutti.com/temput/1/DSC27270_2-800px.jpg)
 
 ### 4. Hardest task box ever - only for dogs that are experienced and well motivated to search for their food
 
@@ -130,44 +130,44 @@ It took Miki 50 minutes to eat all the kibble. Miki completed all the tasks with
 
 But eventually he got tired and went to bed.
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56699-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56699-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56703-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56703-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56705-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56705-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56711-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56711-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56713-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56713-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56726-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56726-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56728-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56728-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56737-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56737-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56742-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56742-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56762-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56762-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56768-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56768-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56776-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56776-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56794-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56794-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56800-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56800-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56807-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56807-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56819-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56819-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56825-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56825-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56850-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56850-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56854-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56854-800px.jpg)
 
 That was fun, what fun thing do we do next...
 
-![](https://b2.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56843-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaikkien-aikojen-vaikein-tehtavalaatikko/DSC56843-800px.jpg)

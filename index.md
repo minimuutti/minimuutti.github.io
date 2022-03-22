@@ -75,4 +75,4 @@ Toivottavasti viihdyt Minimuutin matkassa ja tämä sivusto antaa sinulle vinkke
 
 Minimuutin matkassa mennään ja lujaa mennäänkin!
 
-![](https://b2.minimuutti.com/muut/2371-800px.jpg)
+![](https://cdn.minimuutti.com/muut/2371-800px.jpg)

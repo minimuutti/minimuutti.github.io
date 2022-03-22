@@ -3,7 +3,7 @@ title: "Kartonki- ja muovipakkaukset"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/kartonkipakkaukset/DSC25797-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/kartonkipakkaukset/DSC25797-245px.jpg
   thumb:
 ---
 
@@ -19,21 +19,21 @@ Näitäkin tehtäviä voi vaikeuttaa ripustamalla namipaketin roikkumaan kaitees
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/kartonkipakkaukset/DSC25797-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kartonkipakkaukset/DSC25797-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kartonkipakkaukset/DSC32143-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kartonkipakkaukset/DSC32143-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kartonkipakkaukset/DS04409-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kartonkipakkaukset/DS04409-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kartonkipakkaukset/DS04438-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kartonkipakkaukset/DS04438-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kartonkipakkaukset/DSC33827-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kartonkipakkaukset/DSC33827-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kartonkipakkaukset/DSC56453-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kartonkipakkaukset/DSC56453-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kartonkipakkaukset/DSC56545-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kartonkipakkaukset/DSC56545-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kartonkipakkaukset/DSC57932-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kartonkipakkaukset/DSC57932-800px.jpg)
 
 ## Muovipakkaukset
 
@@ -45,15 +45,15 @@ Hedelmärasioihin olen yleensä laittanut pelkkiä nappuloita ja nappuloiden saa
 
 Tehtävästä voi tehdä vaikeamman kiinnittämällä pakkaukset palasella maalarinteippiä.
 
-![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS36399-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muovipakkaukset/DS36399-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS36397-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muovipakkaukset/DS36397-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS36405-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muovipakkaukset/DS36405-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS36413-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muovipakkaukset/DS36413-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS36463-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muovipakkaukset/DS36463-800px.jpg)
 
 ##### Pallopakkaus
 
@@ -61,16 +61,16 @@ Tämä pallopakkaus oli siitä erikoinen, että nuo pallojen kohdat olivat ositt
 
 Mikiltä kesti noin 4 minuuttia saada ankat ulos tuolta.
 
-![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS21987-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muovipakkaukset/DS21987-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS22003-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muovipakkaukset/DS22003-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS22062-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muovipakkaukset/DS22062-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS22068-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muovipakkaukset/DS22068-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS22150-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muovipakkaukset/DS22150-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS22171-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muovipakkaukset/DS22171-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/muovipakkaukset/DS22184-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/muovipakkaukset/DS22184-800px.jpg)

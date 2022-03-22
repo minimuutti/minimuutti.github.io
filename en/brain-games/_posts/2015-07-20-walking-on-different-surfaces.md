@@ -3,7 +3,7 @@ title: "Walking on different surfaces"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29607-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29607-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/walking-on-different-surfaces/
@@ -17,14 +17,14 @@ And we did use this box as a fun tunnel as well.
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29605-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29605-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29601-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29601-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29607-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/IMG29607-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/tunnelit/IMG29506-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/tunnelit/IMG29506-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/DSC32295-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/DSC32295-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/DSC38680-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/kaveleminen-uusilla-pinnoilla/DSC38680-800px.jpg)

@@ -3,7 +3,7 @@ title: "Towel lasagna"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/pyyhelasagne/DS49199-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/pyyhelasagne/DS49199-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/towel-lasagna/
@@ -17,17 +17,17 @@ You shouldn't use your best towels for this game. I laid about 10-15 small towel
 
 It took Miki about 5 minutes to find all the kibble.
 
-![](https://b2.minimuutti.com/aktivointi/pyyhelasagne/DS49199-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyhelasagne/DS49199-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyhelasagne/DS49212-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyhelasagne/DS49212-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyhelasagne/DS49245-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyhelasagne/DS49245-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyhelasagne/DS49281-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyhelasagne/DS49281-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyhelasagne/DS49289-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyhelasagne/DS49289-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyhelasagne/DS49290-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyhelasagne/DS49290-800px.jpg)
 
 ### Canneloni
 
@@ -35,18 +35,18 @@ I also made a canneloni version of this. I rolled small towels and put them on t
 
 This game took Miki a little longer.
 
-![](https://b2.minimuutti.com/aktivointi/pyyhelasagne/Kollaasi_canneloni-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyhelasagne/Kollaasi_canneloni-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyhelasagne/DS49310-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyhelasagne/DS49310-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyhelasagne/DS49339-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyhelasagne/DS49339-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyhelasagne/DS49327-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyhelasagne/DS49327-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyhelasagne/DS49355-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyhelasagne/DS49355-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyhelasagne/DS49373-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyhelasagne/DS49373-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyhelasagne/DS49457-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyhelasagne/DS49457-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pyyhelasagne/DS49459-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pyyhelasagne/DS49459-800px.jpg)

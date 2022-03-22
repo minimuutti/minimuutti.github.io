@@ -3,7 +3,7 @@ title: "Nappulajahti"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/nappulajahti/DS38593-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/nappulajahti/DS38593-245px.jpg
   thumb:
 ---
 
@@ -19,32 +19,32 @@ Heitän yleensä vain yhden nappulan kerrallaan, jotta Mikillä riittää tekemi
 
 Mikillä on paksu pohjavilla ja sille tulee helposti kuuma, joten tällaisen metsästyssession jälkeen on hyvä päästä parvekkeelle vilvoittelemaan.
 
-![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38471-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nappulajahti/DS38471-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38472-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nappulajahti/DS38472-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38473-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nappulajahti/DS38473-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38474-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nappulajahti/DS38474-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38475-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nappulajahti/DS38475-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38568-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nappulajahti/DS38568-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38569-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nappulajahti/DS38569-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38570-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nappulajahti/DS38570-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38571-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nappulajahti/DS38571-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38572-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nappulajahti/DS38572-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38573-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nappulajahti/DS38573-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38593-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nappulajahti/DS38593-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38594-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nappulajahti/DS38594-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38595-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nappulajahti/DS38595-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/nappulajahti/DS38597-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/nappulajahti/DS38597-800px.jpg)

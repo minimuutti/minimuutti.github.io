@@ -3,7 +3,7 @@ title: "Kong Genius Mike"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointilelut/kongit/DSC17019-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointilelut/kongit/DSC17019-245px.jpg
   thumb:
 ---
 
@@ -19,16 +19,16 @@ Joskus olen laittanut tähän myös kinkkuviipaleen tai juustosiivun, mutta sill
 
 Kuvissa näkyvä lelu on ollut Mikillä käytössä jo vuosia, eikä lelu vieläkään näytä mitään kulumisen merkkejä vaikka käytämme sitä viikottain. Mikillä tosin ei ole tapana purra leluja rikki, mutta siitä huolimatta minua hämmästyttää, että lelu näyttää vuosienkin jälkeen melkein uudelta.
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC35180-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC35180-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC35135-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC35135-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC35158-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC35158-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC17019_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC17019_2-800px.jpg)
 
 Tätä lelua on käytetty myös tehtävässä:
 
 [Putkipiilo:](/aktivointi/putkipiilo/)
 
-[![](https://b2.minimuutti.com/aktivointi/putkipiilo/DSC47941-800px.jpg)](/aktivointi/putkipiilo/)
+[![](https://cdn.minimuutti.com/aktivointi/putkipiilo/DSC47941-800px.jpg)](/aktivointi/putkipiilo/)

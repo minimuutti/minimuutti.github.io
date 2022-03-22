@@ -3,7 +3,7 @@ title: "Hide and seek"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/muut/Picture coming soon.jpg
+  teaser: https://cdn.minimuutti.com/muut/Picture coming soon.jpg
   thumb:
 redirect_from:
   - /en/activation/hide-and-seek/

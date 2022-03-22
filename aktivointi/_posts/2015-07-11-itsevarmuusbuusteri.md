@@ -3,7 +3,7 @@ title: "Itsevarmuusbuusteri"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/itsevarmuusbuusteri/DS33929-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/itsevarmuusbuusteri/DS33929-245px.jpg
   thumb:
 ---
 
@@ -17,14 +17,14 @@ Mikäli koirasi vierastaa tötteröä, niin voit aloittaa palkitsemaan siitä et
 
 Miki on aina niin ahnas herkuille eikä yhtään aristellut laittaa kuonoaan tuonne, joten laitoin herkut syvälle Kongin sisään melkein heti.
 
-![](https://b2.minimuutti.com/aktivointi/itsevarmuusbuusteri/DS33934-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/itsevarmuusbuusteri/DS33934-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/itsevarmuusbuusteri/DS33936-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/itsevarmuusbuusteri/DS33936-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/itsevarmuusbuusteri/DS33937-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/itsevarmuusbuusteri/DS33937-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/itsevarmuusbuusteri/DS33967-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/itsevarmuusbuusteri/DS33967-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/itsevarmuusbuusteri/DS33929-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/itsevarmuusbuusteri/DS33929-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/itsevarmuusbuusteri/DS33930-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/itsevarmuusbuusteri/DS33930-800px.jpg)

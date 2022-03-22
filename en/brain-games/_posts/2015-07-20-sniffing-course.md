@@ -3,7 +3,7 @@ title: "Sniffing course"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/haistelurata/DSC58497-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/haistelurata/DSC58497-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/sniffing-course/
@@ -42,28 +42,28 @@ Your dog needs to wait outside the room while you hide the treats otherwise it'l
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/haistelurata/DSC58497-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelurata/DSC58497-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelurata/DSC58550-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelurata/DSC58550-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelurata/DSC58517-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelurata/DSC58517-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelurata/DSC58525-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelurata/DSC58525-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelurata/DSC58539-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelurata/DSC58539-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelurata/DSC58571-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelurata/DSC58571-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelurata/DSC58613-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelurata/DSC58613-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelurata/DSC58619-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelurata/DSC58619-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelurata/DSC58634-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelurata/DSC58634-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelurata/DSC58632-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelurata/DSC58632-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelurata/DSC58640-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelurata/DSC58640-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelurata/DSC58652-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelurata/DSC58652-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/haistelurata/DSC58672-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/haistelurata/DSC58672-800px.jpg)

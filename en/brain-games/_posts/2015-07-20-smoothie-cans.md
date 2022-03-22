@@ -3,7 +3,7 @@ title: "Smoothie cans"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/smoothie-tolkit/DS07129_-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/smoothie-tolkit/DS07129_-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/smoothie-cans/
@@ -17,20 +17,20 @@ I put a large handful of kibble in the can and it took Miki about 2 minutes to g
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/smoothie-tolkit/DS07066-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/smoothie-tolkit/DS07066-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/smoothie-tolkit/DS07129-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/smoothie-tolkit/DS07129-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/smoothie-tolkit/DS07229-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/smoothie-tolkit/DS07229-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/smoothie-tolkit/DS07272-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/smoothie-tolkit/DS07272-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/smoothie-tolkit/DS07282-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/smoothie-tolkit/DS07282-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/smoothie-tolkit/DS07284-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/smoothie-tolkit/DS07284-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/smoothie-tolkit/DS07197-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/smoothie-tolkit/DS07197-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/smoothie-tolkit/DS07207-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/smoothie-tolkit/DS07207-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/smoothie-tolkit/DS07298-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/smoothie-tolkit/DS07298-800px.jpg)

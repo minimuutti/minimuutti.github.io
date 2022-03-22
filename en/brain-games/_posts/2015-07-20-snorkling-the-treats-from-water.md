@@ -3,7 +3,7 @@ title: "Snorkling the treats from water"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC39375-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC39375-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/snorkling-the-treats-from-water/
@@ -23,14 +23,14 @@ And I’m sure you wanna play this game on the bathroom floor or maybe in the ga
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC30685_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC30685_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC30702_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC30702_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC39375-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC39375-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC39414-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC39414-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC39418-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC39418-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC39402-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namien-poiminta-vedesta/DSC39402-800px.jpg)

@@ -3,7 +3,7 @@ title: "Busy Buddy Twist'n Treat"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointilelut/muut/DSC13183-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointilelut/muut/DSC13183-245px.jpg
   thumb:
 ---
 
@@ -19,14 +19,14 @@ You can also open the the toy for cleaning.
 
 ---
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DSC13183_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DSC13183_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DSC13229_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DSC13229_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DSC13236_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DSC13236_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DSC13226_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DSC13226_2-800px.jpg)
 
 I've used this toy also in: [Toys combined](/en/treat-dispensers/toys-combined/)
 
-[![](https://b2.minimuutti.com/aktivointilelut/muut/DS11052-800px.jpg)](/en/treat-dispensers/toys-combined/)
+[![](https://cdn.minimuutti.com/aktivointilelut/muut/DS11052-800px.jpg)](/en/treat-dispensers/toys-combined/)

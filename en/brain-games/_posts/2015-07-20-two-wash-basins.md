@@ -3,7 +3,7 @@ title: "Two wash basins"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/pesuvadit-paallekkain/DS07837-245px (2).jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/pesuvadit-paallekkain/DS07837-245px (2).jpg
   thumb:
 redirect_from:
   - /en/activation/two-wash-basins/
@@ -17,22 +17,22 @@ At first it took Miki about a minute to get the wash basins separated. Nowadays 
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/pesuvadit-paallekkain/DSC32401-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pesuvadit-paallekkain/DSC32401-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pesuvadit-paallekkain/DS07870-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pesuvadit-paallekkain/DS07870-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pesuvadit-paallekkain/DS07778-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pesuvadit-paallekkain/DS07778-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pesuvadit-paallekkain/DS07799-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pesuvadit-paallekkain/DS07799-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pesuvadit-paallekkain/DS07812-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pesuvadit-paallekkain/DS07812-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pesuvadit-paallekkain/DS07837-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pesuvadit-paallekkain/DS07837-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pesuvadit-paallekkain/DS07840-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pesuvadit-paallekkain/DS07840-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pesuvadit-paallekkain/DS07849-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pesuvadit-paallekkain/DS07849-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pesuvadit-paallekkain/DSC32465-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pesuvadit-paallekkain/DSC32465-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/pesuvadit-paallekkain/DSC32466-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/pesuvadit-paallekkain/DSC32466-800px.jpg)

@@ -3,7 +3,7 @@ title: "Kong Genius Leo"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointilelut/kongit/DSC22961-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointilelut/kongit/DSC22961-245px.jpg
   thumb:
 ---
 
@@ -25,24 +25,24 @@ In these pictures Miki plays with the toy for the first time.
 
 ---
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC22957-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC22957-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC22961-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC22961-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC22980-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC22980-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC23031-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC23031-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC23034-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC23034-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC23081-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC23081-800px.jpg)
 
 I've used this toy also in the following games:
 
 [Kongs in cups:](/en/brain-games/kongs-in-cups/)
 
-[![](https://b2.minimuutti.com/aktivointi/kongit-mukeissa/DSC47968-800px.jpg)](/en/brain-games/kongs-in-cups/)
+[![](https://cdn.minimuutti.com/aktivointi/kongit-mukeissa/DSC47968-800px.jpg)](/en/brain-games/kongs-in-cups/)
 
 [Tug a fleece:](/en/brain-games/tug-a-fleece/)
 
-[![](https://b2.minimuutti.com/aktivointi/solmupiilo/DS02879-800px.jpg)](/en/brain-games/tug-a-fleece/)
+[![](https://cdn.minimuutti.com/aktivointi/solmupiilo/DS02879-800px.jpg)](/en/brain-games/tug-a-fleece/)

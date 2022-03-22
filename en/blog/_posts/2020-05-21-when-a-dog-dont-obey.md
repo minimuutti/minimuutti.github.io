@@ -3,7 +3,7 @@ title: "When a dog don't obey"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/blogi/obey-245px.jpg
+  teaser: https://cdn.minimuutti.com/blogi/obey-245px.jpg
   thumb:
 ---
 
@@ -13,7 +13,7 @@ An obedient dog is a dog to be proud of, but obedience is also crucial for every
 
 No dog is disobedient just for the sake of it. There is always a reason behind dog's (mis)behaviour.
 
-![](https://b2.minimuutti.com/blogi/obey-600px.jpg)
+![](https://cdn.minimuutti.com/blogi/obey-600px.jpg)
 
 ### Don't assume, teach
 
@@ -70,7 +70,7 @@ In addition we can't assume that dogs automatically know what it means it we add
 
 If this dog's owner want his dog to stand, he should teach him to "*stand*" instead of "*don't sit*".
 
-![](https://b2.minimuutti.com/blogi/stand-sit.jpg)
+![](https://cdn.minimuutti.com/blogi/stand-sit.jpg)
 
 Dogs don't understand synonyms either like people do so always use the correct words.
 
@@ -86,7 +86,7 @@ If you want a dog to obey don't yell at him. No matter how frustrating the situa
 
 No matter how frustrating the situation is, stay as calm as you possibly can.
 
-![](https://b2.minimuutti.com/blogi/Barking.jpg)
+![](https://cdn.minimuutti.com/blogi/Barking.jpg)
 
 
 ### Mixed cues and signals
@@ -115,7 +115,7 @@ If you ask your dog to sit, you are too late to reward him if he has just swiped
 
 The correct way to sit would be to sit as long as he's been freed or asked to do something else.
 
-![](https://b2.minimuutti.com/blogi/Sitting-600px.jpg)
+![](https://cdn.minimuutti.com/blogi/Sitting-600px.jpg)
 
 
 ### Rewarding
@@ -156,7 +156,7 @@ Imagine a situation, that your boss asks you to do something. You are not sure h
 
 Dogs feel punishment similarly as a negative thing. The more a dog is been punished the more passive he will get and he's more and more afraid to try anything because of the fear of a punishment. This type of dog is very passive and "disobedient". If he has been punished repeatedly, he might feel that the punishment comes no matter what.
 
-![](https://b2.minimuutti.com/blogi/scared.jpg)
+![](https://cdn.minimuutti.com/blogi/scared.jpg)
 
 ### Fear
 
@@ -201,7 +201,7 @@ In the dog park example a reward could be a *free* cue, so when the dog comes wh
 
 Here you can see Miki forgot to brake in time when I called him so he collided with me. He was in a hurry.
 
-![](https://b2.minimuutti.com/blogi/recall.jpg)
+![](https://cdn.minimuutti.com/blogi/recall.jpg)
 
 If you're about to do something to your dog he doesn't like, like clip his nails, never call him to you. This would only teach him not to come if he sees the nail clipping as a punishment. He might even start to get afraid of the recall.
 

@@ -3,7 +3,7 @@ title: "Paper balls in cups"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46322-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46322-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/paper-balls-in-cups/
@@ -19,20 +19,20 @@ Later on, you can make this game more challenging by pushing the paper balls fla
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46320-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46320-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46322-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46322-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46323-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46323-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46301-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46301-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46302-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46302-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46309-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46309-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46324-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46324-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46333-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46333-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46343-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/paperipallot-mukeissa/DSC46343-800px.jpg)

@@ -3,7 +3,7 @@ title: "Jailhouse playtime"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/blogi/DSC08357_1-245px.jpg
+  teaser: https://cdn.minimuutti.com/blogi/DSC08357_1-245px.jpg
   thumb:
 ---
 
@@ -27,11 +27,11 @@ In normal daily life we may just walk our dogs around few blocks and pet him whi
 
 Miki doesn't really enjoy playing, but he is eager to do almost anything when there is a chance of getting food rewards. We have now played with some interactive toys that were long forgotten. Miki is not a retriever by nature but now we have played a game where he fetches toys and gets a single food kibble as a reward. Whatever works!
 
-![](https://b2.minimuutti.com/blogi/DSC59046-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DSC59046-800px.jpg)
 
 Now when you have just about all the time in the world you can craft brain games and interactive dog toys by your self. You can find tips and instructions with pictures [here](https://minimuutti.com/en/brain-games/).
 
-![](https://b2.minimuutti.com/blogi/DSC51366-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DSC51366-800px.jpg)
 
 #### Teach new tricks or rehearse old ones
 
@@ -39,19 +39,19 @@ If you find yourself bored you can always teach new tricks to your dog or rehear
 
 "[Meet Porter. The World's First Driving Dog](https://www.youtube.com/watch?v=BWAK0J8Uhzk)", where a dog named Porter has been taught to drive a car.
 
-[![](https://b2.minimuutti.com/blogi/Porter.jpg)](https://www.youtube.com/watch?v=BWAK0J8Uhzk)
+[![](https://cdn.minimuutti.com/blogi/Porter.jpg)](https://www.youtube.com/watch?v=BWAK0J8Uhzk)
 
 "[Dog Flies Airplane](https://www.youtube.com/watch?v=82DoCawpJCE)", where a dog named Shadow has been taught to fly a real airplane.
 
-[![](https://b2.minimuutti.com/blogi/Shadow.jpg)](https://www.youtube.com/watch?v=82DoCawpJCE)
+[![](https://cdn.minimuutti.com/blogi/Shadow.jpg)](https://www.youtube.com/watch?v=82DoCawpJCE)
 
 "[20metre dalmatian bicycle race](https://www.youtube.com/watch?v=u4pmdMQ9nNA)", where two dalmatians have been taught to ride bicycles. This is SO FUNNY :D
 
-[![](https://b2.minimuutti.com/blogi/Dalmatian-race.jpg)](https://www.youtube.com/watch?v=u4pmdMQ9nNA)
+[![](https://cdn.minimuutti.com/blogi/Dalmatian-race.jpg)](https://www.youtube.com/watch?v=u4pmdMQ9nNA)
 
 You can also check the tricks Miki masters in [here](https://minimuutti.com/en/tricks/tricks-and-cues-that-Miki-knows/).
 
-![](https://b2.minimuutti.com/blogi/High5-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/High5-800px.jpg)
 
 #### Charity work
 
@@ -63,7 +63,7 @@ You can read [here](https://minimuutti.com/en/blog/happy-holidays/) about the ch
 
 Minimute wishes you all sunny spring days and fun times with your furry sweetheart!
 
-![](https://b2.minimuutti.com/blogi/DSC23474-800px.jpg)
+![](https://cdn.minimuutti.com/blogi/DSC23474-800px.jpg)
 
 
 8.4.2020

@@ -3,7 +3,7 @@ title: "Hiding the treats in the grass or in the snowdrift"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/hiding-the-treats-in-the-grass-or-in-the-snowdrift/
@@ -18,8 +18,8 @@ Searching in the dusk or in the dark is always harder for your dog than searchin
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23956_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23983_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC23983_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC27428_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/namien-piilotus-ruohikkoon-tai-lumihankeen/DSC27428_2-800px.jpg)

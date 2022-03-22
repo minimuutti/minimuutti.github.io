@@ -3,7 +3,7 @@ title: "Kun koira ei tottele"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/blogi/tottele-245px.jpg
+  teaser: https://cdn.minimuutti.com/blogi/tottele-245px.jpg
   thumb:
 ---
 
@@ -13,7 +13,7 @@ Tottelevainen koira on ihanne, mutta tottelevaisuus on myös turvallisuutta. Esi
 
 Koirat eivät ilkeyttään tee mitään väärää tai kiellettyä, vaan (väärän) käytöksen takana on aina jokin syy.
 
-![](https://b2.minimuutti.com/blogi/tottele-600px.jpg)
+![](https://cdn.minimuutti.com/blogi/tottele-600px.jpg)
 
 ### Älä oleta, vaan opeta 
 
@@ -65,7 +65,7 @@ Koira ei tässä tahattomasti tottele, vaan se on oppinut vihjeen tarkoittavan e
 
 Emme voi myöskään olettaa koiran ymmärtävän, jos opetettuun vihjeeseen liitetään kieltosana, esimerkiksi "et istu". Koiralle tulee opettaa esimerkiksi vihje: "seiso" sellaisia tilanteita varten, jossa sen halutaan seisovan. 
 
-![](https://b2.minimuutti.com/blogi/seiso-istu.jpg)
+![](https://cdn.minimuutti.com/blogi/seiso-istu.jpg)
 
 Koirat eivät myöskään ymmärrä synonyymejä, kuten me ihmiset. Koiralta tulee pyytää oikeaa asiaa oikealla vihjeellä. 
 
@@ -84,7 +84,7 @@ Jos koirasi haukkuu ja huudat sille jotta se olisi hiljaa, niin pahimmillaan koi
 
 Vaikka tilanne olisi miten turhauttava, niin ihmisen on tärkeää pysyä niin rauhallisena, kuin mahdollista.
 
-![](https://b2.minimuutti.com/blogi/Haukkuu.jpg)
+![](https://cdn.minimuutti.com/blogi/Haukkuu.jpg)
 
 
 ### Ihmisen tahattomat eleet
@@ -117,7 +117,7 @@ Jos koiraa palkitsee istumisesta tässä kohdassa, niin koiralle on juuri opetet
 
 Jos koiraa pyydetään istumaan, niin lähtökohtaisesti koiran tulee istua siihen saakka, kunnes se saa luvan lopettaa istumisen tai sitä pyydetään tekemään jotain muuta.
 
-![](https://b2.minimuutti.com/blogi/Istuu-600px.jpg)
+![](https://cdn.minimuutti.com/blogi/Istuu-600px.jpg)
 
 ### Palkitseminen
 
@@ -156,7 +156,7 @@ Koirat kokevat rankaisemisen samalla lailla negatiivisesti, kuin me ihmisetkin. 
 Tällainen koira on hyvin passiivinen ja "tottelematon". Jos koiraa on toistuvasti rankaistu, niin koira saattaa 
 kokea, että rangaistus tulee joka tapauksessa, miksi edes yrittää?
 
-![](https://b2.minimuutti.com/blogi/scared.jpg)
+![](https://cdn.minimuutti.com/blogi/scared.jpg)
 
 
 ### Pelko
@@ -204,7 +204,7 @@ Koirapuistoesimerkissä palkkio voi olla vaikkapa "vapaa" vihje; luoksetulosta s
 
 Tässä kuvassa näkyy, kun Miki unohti jarruttaa ajoissa ja juoksi minua päin, kun kutsuin sen luokse. Sillä oli niin kova kiire palkkion toivossa.
 
-![](https://b2.minimuutti.com/blogi/recall.jpg)
+![](https://cdn.minimuutti.com/blogi/recall.jpg)
 
 Koiraa ei koskaan saa kutsua luokse, jos aiot tehdä sille jotain mistä se ei pidä (esim. kynsien leikkuu), koska silloin opetat vain sen, ettei luokse kannata tulla kutsusta. Koirasi voi jopa alkaa pelkäämään luoksetuloa.
 

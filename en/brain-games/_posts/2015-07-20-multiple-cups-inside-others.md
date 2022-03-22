@@ -3,7 +3,7 @@ title: "Multiple cups inside others"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC42367-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC42367-245px.jpg
   thumb:
 redirect_from:
   - /en/activation/multiple-cups-inside-others/
@@ -21,24 +21,24 @@ You can make surprisingly hard game by taping six paper cups together. It took M
 
 ---
 
-![](https://b2.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC42367-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC42367-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC42425-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC42425-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC42414-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC42414-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC30738-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC30738-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC30747-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC30747-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC30778_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC30778_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC48329-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC48329-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC48334-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC48334-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC48380-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC48380-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC48387-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/useita-purkkeja-paallekkain/DSC48387-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointi/mukidonitsi/DSC57929-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointi/mukidonitsi/DSC57929-800px.jpg)

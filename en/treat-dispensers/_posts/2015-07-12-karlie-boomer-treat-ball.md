@@ -3,7 +3,7 @@ title: "Karlie Boomer treat ball"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointilelut/muut/DSC00904-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointilelut/muut/DSC00904-245px.jpg
   thumb:
 ---
 
@@ -22,14 +22,14 @@ Although the balls look similar I recommed to pay a bit extra for a proper ball 
 
 In these pictures Miki is just over a year old and he plays with the ball for the first time.
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DSC00913_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DSC00913_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DSC00904_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DSC00904_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DSC00991_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DSC00991_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DSC00992_2-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DSC00992_2-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DSC00996-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DSC00996-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/muut/DS57995-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/muut/DS57995-800px.jpg)

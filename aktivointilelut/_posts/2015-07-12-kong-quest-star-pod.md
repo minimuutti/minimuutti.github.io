@@ -3,7 +3,7 @@ title: "Kong Quest Star Pod"
 layout: article
 image:
   feature:
-  teaser: https://b2.minimuutti.com/aktivointilelut/kongit/DSC33990-245px.jpg
+  teaser: https://cdn.minimuutti.com/aktivointilelut/kongit/DSC33990-245px.jpg
   thumb:
 ---
 
@@ -20,10 +20,10 @@ Vaikka lelu saa pisteitä kestävyydestä, niin sopivan kokoisten herkkujen löy
 
 Tämä lelu on tyhjä yleensä noin 2–5 minuutissa ja kanafileiden kanssa menee joskus muutama minuutti kauemmin.
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC33990-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC33990-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC34029-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC34029-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC34066-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC34066-800px.jpg)
 
-![](https://b2.minimuutti.com/aktivointilelut/kongit/DSC34032-800px.jpg)
+![](https://cdn.minimuutti.com/aktivointilelut/kongit/DSC34032-800px.jpg)
