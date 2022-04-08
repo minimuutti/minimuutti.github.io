@@ -9,9 +9,9 @@ redirect_from:
   - /en/activation/tunnels-or-crawling-under/
 ---
 
-You may know the tunnel from dog agility sport. We made a tunnel from a sidetable and a towel and Miki has to crawl under the table and the towel.
+You may know the tunnel from dog agility sport. We made a tunnel from a side table and a towel and Miki has to crawl under the table and the towel.
 
-We’ll lenghten the towel section in each training session. In the pictures below you can see Miki crawling under the table without the towel.
+We’ll lengthen the towel section in each training session. In the pictures below you can see Miki crawling under the table without the towel.
 
 You can also make tunnels from big cardboard boxes.
 

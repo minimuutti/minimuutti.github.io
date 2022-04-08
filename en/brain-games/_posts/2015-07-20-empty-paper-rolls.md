@@ -134,7 +134,7 @@ It took Miki about 4 minutes to get all the treats out.
 
 #### Roll with rolled magazine
 
-I put small pieces of semi-moist chicket fillet inside a magazine. Then I rolled the magazine and pushed it into a cardboard roll. It took Miki about 7 minutes to find all the treats.
+I put small pieces of semi-moist chicken fillet inside a magazine. Then I rolled the magazine and pushed it into a cardboard roll. It took Miki about 7 minutes to find all the treats.
 
 You should only use magazines that bind using glue, not stapled. If you only have stapled magazines, then you should remove the staples before you give the magazine to your dog.
 

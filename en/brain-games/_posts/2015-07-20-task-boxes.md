@@ -91,7 +91,7 @@ This task box is harder because of the lid in the big box. Your dog has to open 
 
 ![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30990-800px.jpg)
 
-Miki couldn't wait, so he desided to offer the box trick for some samples of the food :D
+Miki couldn't wait, so he decided to offer the box trick for some samples of the food :D
 
 ![](https://cdn.minimuutti.com/aktivointi/tehtavalaatikko-vaikeutettuna/DSC30983-800px.jpg)
 

@@ -124,11 +124,11 @@ Every time you see other dogs on your walks, give your dog some treats or toys o
 
 Sometimes things go south, but don't punish your dog. Don't reward or pity him either. Just move on.
 
-Pay attention to your dog's body language. When your dog realizes that you understand when he tell's you he's uncomfortable, he will trust you more. Because now you notice when he's uncomfortable and can lead him out of the situation so your dog doesn't have to attack. Now he learns that there are other ways to get out scary situations.
+Pay attention to your dog's body language. When your dog realizes that you understand when he tells you he's uncomfortable, he will trust you more. Because now you notice when he's uncomfortable and can lead him out of the situation so your dog doesn't have to attack. Now he learns that there are other ways to get out scary situations.
 
 ##### Wanted replacement behaviour
 
-In addiotion to the positive association, you need to teach your dog some new behaviour to replace the lunging and brawling. Heeling is one that I recommend but you can choose any behaviour you want. You can search YouTube "teach dog to heel" if you don't know how to do that.
+In addition to the positive association, you need to teach your dog some new behaviour to replace the lunging and brawling. Heeling is one that I recommend but you can choose any behaviour you want. You can search YouTube "teach dog to heel" if you don't know how to do that.
 
 It's best not to start passing other dogs immediately on a close range. You can go to a park where there is more space for your dog to practise. And remember to always watch your dog's body language so you can lead him further away if needed.
 
@@ -156,6 +156,6 @@ When Miki was younger and brawled to on comers, this was the scenario I witnesse
 
 Luckily I can now share this story with you, so you know what to do if you ever face a scenario like this.
 
-And let's all remember that a dog is not a childrens toy, and you should never let young children walk a dog without supervision of an adult.
+And let's all remember that a dog is not a children's toy, and you should never let young children walk a dog without supervision of an adult.
 
 2019-04-22

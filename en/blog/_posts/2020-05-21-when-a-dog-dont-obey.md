@@ -164,7 +164,7 @@ Try to look at things from a dog's perspective. A dog might not obey if you ask 
 
 Like if a dog has been taught to jump but he's just too afraid to jump from a pier into a rocking boat. Or a dog  that loves to perform tricks at home but when he is with his family visiting friends the dog freezes and does nothing he's asked to do. The dog might fear something on the friends house like a shiny or slippery floor if he has got used to carpet at home. Or he might be afraid of a specific person there, or even your friends dog on whose territory he's at.
 
-One example is a dog that is lunging and barking on a leash and he's not calming down although he'd been asked. He might be so intimitated by the on comers that he thinks he's been forced to act that way. If this sounds familiar, you should read the blog posts: [Are reactive dogs just highly sensitive?](/en/blog/are-reactive-dogs-just-highly-sensitive/) and [Passing other dogs](/en/blog/passing-other-dogs/).
+One example is a dog that is lunging and barking on a leash and he's not calming down although he'd been asked. He might be so intimidated by the on comers that he thinks he's been forced to act that way. If this sounds familiar, you should read the blog posts: [Are reactive dogs just highly sensitive?](/en/blog/are-reactive-dogs-just-highly-sensitive/) and [Passing other dogs](/en/blog/passing-other-dogs/).
 
 
 ### Follow through

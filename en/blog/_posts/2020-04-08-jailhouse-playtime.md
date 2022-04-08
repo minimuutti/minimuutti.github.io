@@ -59,7 +59,7 @@ You can do some charity work despite the Corona restrictions.
 
 If you are good in arts and crafts or knitting or something like that, you can prepare items for charity fairs in advance. There will be a great need for charity after the Corona episode and you may as well prepare for it now when you have extra time.
 
-You can read [here](https://minimuutti.com/en/blog/happy-holidays/) about the charitywork I do, I hope it inspires you.
+You can read [here](https://minimuutti.com/en/blog/happy-holidays/) about the charity work I do, I hope it inspires you.
 
 Minimute wishes you all sunny spring days and fun times with your furry sweetheart!
 

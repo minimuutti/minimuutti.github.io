@@ -15,7 +15,7 @@ The piece of fleece I've used with the toys is under one meter long and about 10
 
 ##### Kong Traxx
 
-I put treats inside the toy and then I wired the fleece throught the toy three times.
+I put treats inside the toy and then I wired the fleece through the toy three times.
 
 It took Miki about 7 minutes to get all the treats out.
 

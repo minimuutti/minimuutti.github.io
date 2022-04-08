@@ -12,7 +12,7 @@ This toy is available in many sizes and this toy is size L.
 
 I usually put kibble in this toy and it takes Miki about 2-3 minutes to get all the kibble out.
 
-Because the toy is guite easy, you can give this toy to a dog that has only some experience with food dispenser toys, but remember to choose very small treats so they'll fall out easily.
+Because the toy is quite easy, you can give this toy to a dog that has only some experience with food dispenser toys, but remember to choose very small treats so they'll fall out easily.
 
 You can adjust the difficulty by using different size treats. And because this toy is more or less elongated you can also put long sticks inside, which you can't do with majority of food dispenser toys.
 

@@ -9,9 +9,9 @@ redirect_from:
   - /en/activation/pastimes-for-a-convalescent/
 ---
 
-I believe every dog has an upset stomach or diarrhea at some point of his life.
+I believe every dog has an upset stomach or diarrhoea at some point of his life.
 
-In these situations vets usually recommend to change a dogs diet, and that may include rice water, boiled white rice, boiled chicken, lactose free cottage cheese or plain natural yogurt.
+In these situations vets usually recommend to change a dogs diet, and that may include rice water, boiled white rice, boiled chicken, lactose free cottage cheese or plain natural yoghurt.
 
 That means you may not be able to walk and play normally with your dog and certainly can't use the normal food dispenser toys with this new diet.
 
@@ -21,7 +21,7 @@ Miki has been a convalescent a few times but he never seems to run out of energy
 
 Different shape ice cube trays are a great way to entertain your convalescent dog.
 
-Vets usually recommend rice water for a diarrhea patients and you can serve it from ice cube trays.
+Vets usually recommend rice water for a diarrhoea patients and you can serve it from ice cube trays.
 
 When you can give your dog just rice water and some rice and chicken you can put them in a blender before you fill the tray.
 
@@ -29,7 +29,7 @@ When you can give your dog just rice water and some rice and chicken you can put
 
 ![](https://cdn.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/IMG_20151213_183756-800px.jpg)
 
-Later on I didn't put the food in the blender anymore but instead put it straight in the tray. Starshaped tray and other shapes increases the difficulty to lick the trays clean.
+Later on I didn't put the food in the blender any more but instead put it straight in the tray. Star shaped tray and other shapes increases the difficulty to lick the trays clean.
 
 ![](https://cdn.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS10526-800px.jpg)
 
@@ -47,7 +47,7 @@ To make the tray last longer, you can put it in the freezer. It takes Miki about
 
 ## Advent calendar
 
-I've put the same pureed mixture on the trays taken from an advent calendar and I froze those as well. It takes Miki about 5-10 minutes to lick them clean.
+I've put the same puréed mixture on the trays taken from an advent calendar and I froze those as well. It takes Miki about 5-10 minutes to lick them clean.
 
 ![](https://cdn.minimuutti.com/aktivointi/ajanvietetta-toipilaalle/DS37106-800px.jpg)
 
@@ -59,7 +59,7 @@ I've put the same pureed mixture on the trays taken from an advent calendar and 
 
 The Kong toys are always convenient but they are essential for convalescent dogs.
 
-I usually put the Kongs in the freezer before I give them to Miki. You can put the mixture straight in the Kongs or you can puree the mixture first. I usually add some plain natural yogurt or if you like you can add some pumpkin puree as well.
+I usually put the Kongs in the freezer before I give them to Miki. You can put the mixture straight in the Kongs or you can purée the mixture first. I usually add some plain natural yoghurt or if you like you can add some pumpkin purée as well.
 
 When you put puree into a Kong you should put the Kong on a cup before you put it in the freezer to avoid the fluids leaking all over your freezer.
 
@@ -69,7 +69,7 @@ It takes Miki about 10-15 minutes to lick a frozen Kong clean.
 
 ## Wash balls
 
-You need to throughly clean the wash balls before you give them to your dog. I washed them twice before I gave them to Miki.
+You need to thoroughly clean the wash balls before you give them to your dog. I washed them twice before I gave them to Miki.
 
 Wash balls are a great way to entertain your convalescent dog because you can put wet food in them and it takes quite a long for a dog to lick them clean.
 

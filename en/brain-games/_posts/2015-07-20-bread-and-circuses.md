@@ -11,7 +11,7 @@ This game is for the bread and circuses - a game where your dog can win treats b
 
 I have taught to Miki how to clean up his toys by placing them into a basket and now I developed this game based on that.
 
-You need two differend sized circles for example two round cookie cutters from Ikea's Drömmar set. If you don't have any you can use a plastic basin and some smaller cup.
+You need two different sized circles for example two round cookie cutters from Ikea's Drömmar set. If you don't have any you can use a plastic basin and some smaller cup.
 
 In addition you need a ball and two different kinds (different values) of treats. I took some food kibble and dried chicken hearts.
 

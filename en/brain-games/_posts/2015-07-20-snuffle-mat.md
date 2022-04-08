@@ -9,7 +9,7 @@ redirect_from:
   - /en/activation/snuffle-mat/
 ---
 
-You might need to spend a few hours in making a snuffle mat for your dog. But I recommend doing it, because using the mat calms yor dog and allows him to work for his food. And the mat can be used even for several years.
+You might need to spend a few hours in making a snuffle mat for your dog. But I recommend doing it, because using the mat calms your dog and allows him to work for his food. And the mat can be used even for several years.
 
 First I cut lots of holes in a towel. You can use a piece of a rubbery door mat instead which already has holes in it.
 

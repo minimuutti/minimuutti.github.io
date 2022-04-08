@@ -13,7 +13,7 @@ At first I thought of making a ball pool in the cardboard box, but the balls wou
 
 In this box full of toys we have for example rope toys, stuffed animal, different kinds of balls, empty treat tubes, a small towel, Kong toys, empty soda bottles etc. The items should be soft or rounded, so your dog doesn’t hurt his nose while he is plowing in the box to get the treats.
 
-I usually put 10 to 15 pieces of wiener in the box, one at a time, and let Miki search for them.
+I usually put 10 to 15 pieces of a hot dog in the box, one at a time, and let Miki search for them.
 
 ---
 

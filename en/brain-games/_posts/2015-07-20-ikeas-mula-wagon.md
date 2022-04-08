@@ -20,7 +20,7 @@ You can also play this game with kibble. Just take one or two blocks out make so
 
 I also stacked the blocks to make a small tower and hid some cheese in it. You can also use the blocks as obstacles for other games as well.
 
-I tried hiding some treats under the wagon, so that Miki needed move the wagon out ot the way to get the treats. That game was way too easy; the treats vanished in seconds. Next time I'll put the wagon upside down, so that is't harder to move.
+I tried hiding some treats under the wagon, so that Miki needed move the wagon out ot the way to get the treats. That game was way too easy; the treats vanished in seconds. Next time I'll put the wagon upside down, so that it's harder to move.
 
 This wagon has also served as a fun tray as well. I tied one circular block to the string attached to the wagon. Then I put some treats onto the empty wagon and then I placed the wagon into a cardboard box. It took Miki only a few seconds to pull the wagon out.
 

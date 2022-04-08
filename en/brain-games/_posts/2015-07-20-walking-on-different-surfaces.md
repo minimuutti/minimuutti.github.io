@@ -9,7 +9,7 @@ redirect_from:
   - /en/activation/walking-on-different-surfaces/
 ---
 
-Walking on different surfaces can be count as sosializing, but always when there is a chance to try something new, I adress Miki to try it.
+Walking on different surfaces can be count as socializing, but always when there is a chance to try something new, I address Miki to try it.
 
 For example a metal staircase where you can see through the stairs into the ground, can be scary for some dogs, as it was for Miki at first. We also got a fun surface from the cardboard box that our new mattress arrived in.
 

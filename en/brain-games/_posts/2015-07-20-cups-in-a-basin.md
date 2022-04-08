@@ -15,7 +15,7 @@ At the first time I put one yoghurt cup into the basin face down. Then I put a t
 
 This game was relatively easy for Miki. Every treat I put under the cups vanished in a few seconds, although I moved and mixed the cups in the basin before I asked Miki to search.
 
-You can make this game harder by replacing the yoghurt cups with a kettle lid or even with a dinnerplate. But you need to use some slippery underlay, like a basin. The idea of this game is that the dog needs to use his nose to figure out where the treat is hidden and also to move and lift the cups which are moving on a slippery underlay.
+You can make this game harder by replacing the yoghurt cups with a kettle lid or even with a dinner plate. But you need to use some slippery underlay, like a basin. The idea of this game is that the dog needs to use his nose to figure out where the treat is hidden and also to move and lift the cups which are moving on a slippery underlay.
 
 ---
 

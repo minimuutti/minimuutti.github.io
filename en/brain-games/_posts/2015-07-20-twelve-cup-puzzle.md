@@ -11,7 +11,7 @@ redirect_from:
 
 This game has six cups hidden inside larger cups. The number of the cups depends on the tray you are using - my tray had six holes.
 
-You can buy those cardboard trays full of yogurt cups or you can ask for empty trays from your supermarket - at least in Finland. In addition you need six cups that fits quite tight in the holes of the tray and then you need six smaller cups that fit inside the larger cups. You find the right size cups only by trying.
+You can buy those cardboard trays full of yoghurt cups or you can ask for empty trays from your supermarket - at least in Finland. In addition you need six cups that fits quite tight in the holes of the tray and then you need six smaller cups that fit inside the larger cups. You find the right size cups only by trying.
 
 I put kibble into the paper cups and then I pushed them into the blue plastic cups. You can use any dry treats in this game, you don't have to use kibble.
 

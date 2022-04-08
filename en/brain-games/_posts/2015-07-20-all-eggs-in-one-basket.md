@@ -9,9 +9,9 @@ redirect_from:
   - /en/activation/all-eggs-in-one-basket/
 ---
 
-We got this basket full of delicacies as a christmas present, but it soon found its way to be part of Miki's games.
+We got this basket full of delicacies as a Christmas present, but it soon found its way to be part of Miki's games.
 
-You can put any toys or other items in the basket as obstacles, as long as they are either soft or rounded, so your dog doens't hurt his nose while plowing in the basket. You should also check the bottom of the basket for any sharp spikes and put some tape on top of them if necessary.
+You can put any toys or other items in the basket as obstacles, as long as they are either soft or rounded, so your dog doesn't hurt his nose while plowing in the basket. You should also check the bottom of the basket for any sharp spikes and put some tape on top of them if necessary.
 
 I used only kibble in these games, but you can use any dry treats.
 

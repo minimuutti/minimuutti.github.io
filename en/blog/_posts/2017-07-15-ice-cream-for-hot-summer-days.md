@@ -9,7 +9,7 @@ image:
 
 I've collected some tips and recipes for ice creams that are suitable for dogs.
 
-### Ice cream doesn't have to look like a sunday on a cone
+### Ice cream doesn't have to look like a sundae on a cone
 
 Dogs enjoy cold treats on hot summer days just like we do. Ice cream made for humans isn't suitable for dogs because it contains large amount of sugar, lactose and additives that are no good for dogs. In addition many ice creams contains chocolate which is toxic to dogs. I've always prepared dog friendly ice creams for Miki and now I have collected some tips and recipes to this post.
 
@@ -55,7 +55,7 @@ Before you start creating all possible flavour combinations, you should know tha
 * tomato
 * egg plant
 * soy
-* chili
+* chili pepper
 * acorn
 
 ##### Foods that are perfectly okay for dogs to eat:
@@ -64,7 +64,7 @@ Before you start creating all possible flavour combinations, you should know tha
 * chicken and turkey
 * fish
 * egg yolk
-* lactose free and low fat dairy, like sourmilk, yoghurt, cottage cheese and quark
+* lactose free and low fat dairy, like sour milk, yoghurt, cottage cheese and quark
 * cooked root vegetables, like carrot, sweet potato and turnip. You should never give chunks of raw root vegetables to your dog, because they can lead to intestinal blockage.
 * oats and white rice
 * cucumber, pumpkin and zucchini
@@ -78,11 +78,11 @@ Before you start creating all possible flavour combinations, you should know tha
 * capsicum (deseeded)
 * peas and green beans
 * berries, like strawberry, blueberry/bilberry, raspberry, lingonberry, cranberry
-* natural peanutbutter in small doses
+* natural peanut butter in small doses
 
 ### Ice cream can be simple
 
-Dog's aren't vegetarians - althought they like to eat vegetables - so you should always start planning all of your dogs meals from animal protein, like meat. A dog's meal should contain at least 50% animal protein. Best ratio is something like 2/3 to 3/4 meat per dish. So if you have 10 oz meat you shoud add about 3-5 oz rice/oats/vegetables/lactose free dairy.
+Dog's aren't vegetarians - although they like to eat vegetables - so you should always start planning all of your dogs meals from animal protein, like meat. A dog's meal should contain at least 50% animal protein. Best ratio is something like 2/3 to 3/4 meat per dish. So if you have 10 oz meat you should add about 3-5 oz rice/oats/vegetables/lactose free dairy.
 
 Ice cream doesn't have to be complicated. I usually choose one type of meat and one or two types of vegetables that I happen to have in the fridge. Miki values every single food item I give to him so he would eat two pounds of lettuce or cucumber at one sitting if he were given the choice. You can read more about dogs' food motivation from [here](/en/blog/no-food-motivation/).
 
@@ -139,7 +139,7 @@ Boil the rice and add some extra water. When the rice is almost cooked (about 5 
 ##### Trixie patés and fresh greens
 
 * 1 tube of Trixie liver paté
-* 50g (about 2 oz) greens like cucumber or sallad OR 1dl (about 1/2 cup) lactose free natural yoghurt
+* 50g (about 2 oz) greens like cucumber or salad OR 1dl (about 1/2 cup) lactose free natural yoghurt
 
 This is one of the easiest recipes. Just blend the chosen greens and add the paté from the tube. Or if you use yoghurt then just mix the yoghurt and the paté together. This is so convenient when you are in a hurry.
 

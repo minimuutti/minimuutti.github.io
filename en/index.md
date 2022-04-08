@@ -11,19 +11,19 @@ This site introduces ideas how you can drain your dog's excess energy in various
 
 [**Treat dispensers**](/en/treat-dispensers/) –category contains treat dispenser and puzzle feeder reviews and also some recommendations about the treats suitable for different toys.
 
-[**Tricks**](/en/tricks/) –category contais all the tricks and cues Miki knows by now and also something that we are working with right now.
+[**Tricks**](/en/tricks/) –category contains all the tricks and cues Miki knows by now and also something that we are working with right now.
 
 [**Blog**](/en/blog) contains blog posts and other articles I want to share with you.
 
 [**Info**](/en/info/) –site contains list of the latest updates and contact information.
 
-If you find this site useful and you want to support me, you can donate free amount via Paypal - the link is located on the [**Info**](/en/info/) -site. Alternatively you can send bitcoins to the adress shown on the [**Info**](/en/info/) –site.
+If you find this site useful and you want to support me, you can donate free amount via Paypal - the link is located on the [**Info**](/en/info/) -site. Alternatively you can send bitcoins to the address shown on the [**Info**](/en/info/) –site.
 
 This site also contains my favourite photographs about [**Miki**](/en/photography/pictures-of-miki/), beautiful [**Finnish nature**](/en/photography/finnish-nature/) through the four seasons and [**Other things**](/en/photography/abstract-other).
 
 ### First about Miki and something about me too
 
-Miki (means small in inuite language) was born on August 2012. He is a mixed-breed dog. Miki’s mother is an Alaskan Malamute and his father is a Finnish Lapphund, so that’s why we call Miki a minimute. In his heart, he is 100% malamute. Miki’s litter had 8 puppies and he was the puppy number one. He was always the first to eat, he was the first that came to greed us when we first met the dogs and we were told that Miki used to eat his parents foods as well.
+Miki (means small in Inuit language) was born on August 2012. He is a mixed-breed dog. Miki’s mother is an Alaskan Malamute and his father is a Finnish Lapphund, so that’s why we call Miki a minimute. In his heart, he is 100% malamute. Miki’s litter had 8 puppies and he was the puppy number one. He was always the first to eat, he was the first that came to greed us when we first met the dogs and we were told that Miki used to eat his parents foods as well.
 
 Alaskan Malamutes have been bred to pull heavy sledges in harsh conditions without getting tired. Malamutes are one of the smartest dog breeds and they are very clever as well.
 
@@ -31,13 +31,13 @@ Miki’s nickname is "wolfy". Miki is not a wolf-dog hybrid, but he is primal an
 
 I usually describe Miki as energetic, lives his life to the fullest, he really loves humans (friends or complete strangers) and he is always eager to do almost anything and he likes to try new things head on. But, there’s a backside of all this.. he almost never drains out of energy. He just keeps going and going and going.
 
-He can be also described as a reactive dog because because his temper fills quite fast when he sees other dogs on our walks. I believe that most of the energetic dogs who are labeled as "problem dogs", has the greatest motivation to work for humans like Miki does. You only need to see that eagerness through the problems. I love Miki because he never refuses to do anything when there’s a food reward available. Fortunately Miki has bottomless stomach and endless appetite.
+He can be also described as a reactive dog because because his temper fills quite fast when he sees other dogs on our walks. I believe that most of the energetic dogs who are labelled as "problem dogs", has the greatest motivation to work for humans like Miki does. You only need to see that eagerness through the problems. I love Miki because he never refuses to do anything when there’s a food reward available. Fortunately Miki has bottomless stomach and endless appetite.
 
-###The best way to draind your dog’s energy, is by doing the thing he was bred for in the first place.
+### The best way to draind your dog’s energy, is by doing the thing he was bred for in the first place.
 
 Alaskan malamutes have been bred to pull heavy loads without getting tired. Before Miki came in to our life, we had imagined that we would teach him to pull sled or a bicycle. We did begin to teach pulling to him, but he seemed to enjoy every other kind of things, but pulling. Miki pulls a bicycle like a minute and then gets bored to it. So we had to come up with something else to drain all that energy.
 
-Some dogs can be labeled as easy, but Miki is as far from that as could be. Even when we arrive home after three hours of walking, Miki comes sitting in front of me and looks at me, like he was saying "that walking was fun, what are we doing next, let’s do something fun!" In the last autumn we were picking blueberries in the thick forest for four hours. When we came home Miki dropped down to the hallway floor and falled asleep right away. I already had thought myself "yes, at least once we managed to a walk so long that Miki got tired." But, after ten minutes of sleeping, Miki came to me and gave me THAT look again "now I have slept, what fun thing do we do next".
+Some dogs can be labelled as easy, but Miki is as far from that as could be. Even when we arrive home after three hours of walking, Miki comes sitting in front of me and looks at me, like he was saying "that walking was fun, what are we doing next, let’s do something fun!" In the last autumn we were picking blueberries in the thick forest for four hours. When we came home Miki dropped down to the hallway floor and felled asleep right away. I already had thought myself "yes, at least once we managed to a walk so long that Miki got tired." But, after ten minutes of sleeping, Miki came to me and gave me THAT look again "now I have slept, what fun thing do we do next".
 
 We lived in an apartment with Miki when he was a puppy, so many people thought that we were out of our minds. Our friends usually asked what kind of things or furnitures Miki had destroyed when he had been left home alone or when he was a puppy. None of them believes the answer: nothing. Absolutely nothing. He didn’t destroy anything even when he was a puppy. We had a crate for him when he was a puppy, but we mainly used it to house train him.
 
@@ -59,7 +59,7 @@ For example I can have a conversation with one person without getting too tired.
 
 It’s just the same thing for Miki. First couple of dogs that passes us on our walks triggers usually no big reactions in Miki. Once we encounter one overexcited dog walking towards us or if there just has been too many dogs altogether, it’s like game over. After that we can’t walk past any dog – regardless of how calm or friendly they are. Everything becomes suddenly just too much and the poor dogs that pass us gets to feel Miki’s anger on their skin. Not literally, but you can clearly see and hear Miki is not happy about them. (Fortunately these scenarios are rare these days.)
 
-Nowadays when I notice that Miki’s temper is about to fill, I tie a yellow bandana on Miki’s leash. You can read more about the usage of yellow bandanas [here](https://minimuutti.com/en/blog/please-give-space-to-dogs-wearing-yellow-bandanas/). Then we make a fun and quick exit before his temper flows over.
+Nowadays when I notice that Miki’s temper is about to fill, I tie a yellow bandanna on Miki’s leash. You can read more about the usage of yellow bandanna [here](https://minimuutti.com/en/blog/please-give-space-to-dogs-wearing-yellow-bandanas/). Then we make a fun and quick exit before his temper flows over.
 
 We have practised different exit strategies that I use depending on the situation. It's important to leave the situation so that your dog is left with positive feelings about what just happened. One of the most important things in training a reactive dog is that you should never allow your dogs temper to fill and always plan your exit before that happens.
 

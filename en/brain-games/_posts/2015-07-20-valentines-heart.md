@@ -15,7 +15,7 @@ For one heart you need some cardboard, two zip ties and some thin and sticky tre
 
 I begun by printing a model heart on paper and drew 10 hearts on a cardboard with it (look at the picture mosaic at the bottom, picture 1). Then I cut them out with a modelling knife. Feel free to make less hearts if you don't have enough cardboard for ten. My hearts were 21 x 18 cm. The size is not important, but if you have a smaller dog you may want to make the hearts slightly smaller.
 
-Then I made a small hole in the center of the model heart and used it to mark the centers of the cardboard hearts (mosaic picture 2). Then I cut small slashes on the cardboard hearts for the zip ties on the marked spots.
+Then I made a small hole in the centre of the model heart and used it to mark the centres of the cardboard hearts (mosaic picture 2). Then I cut small slashes on the cardboard hearts for the zip ties on the marked spots.
 
 I also cut two small hearts out of thin rubber for the zip ties to hold the cardboard hearts better in stack (mosaic picture 3). Then I made small slashes in the middle of these hearts too for the zip ties. You don't necessarily need to do this. But if you do, make sure that the hearts are large enough, so that your dog won't accidentally eat them.
 

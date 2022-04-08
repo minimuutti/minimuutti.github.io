@@ -18,7 +18,7 @@ These food dispenser balls may all look similar, but there are some differences.
 
 When this yellow ball got dirty enough I bought this green ball as a replacement. This green ball was a bulk so I don't know the manufacturer but I know it's a cheap copy. I paid 5 euros for it and I thought that I made a good deal, but I was wrong. The green ball won't stand still and the opening is so small that filling the ball with kibble is a torment. It also lacks the second opening so it's very hard to clean.
 
-Although the balls look similar I recommed to pay a bit extra for a proper ball so you don't need to loose your temper with it.
+Although the balls look similar I recommend to pay a bit extra for a proper ball so you don't need to loose your temper with it.
 
 In these pictures Miki is just over a year old and he plays with the ball for the first time.
 

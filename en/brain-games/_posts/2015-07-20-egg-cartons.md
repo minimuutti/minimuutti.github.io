@@ -51,7 +51,7 @@ It took Miki about 3 minutes to get the treats out.
 
 ##### Game 4:
 
-I've also given these plastic egg cartons to Miki. If your dog tends to eat something inapproppriate, you may not want to give these plastic cartons to your dog. Miki doesn't normally eat anything that he's not supposed to eat, so I know Miki isn't going to eat any plastic pieces that might brake away from the carton.
+I've also given these plastic egg cartons to Miki. If your dog tends to eat something inappropriate, you may not want to give these plastic cartons to your dog. Miki doesn't normally eat anything that he's not supposed to eat, so I know Miki isn't going to eat any plastic pieces that might brake away from the carton.
 
 ![](https://cdn.minimuutti.com/aktivointi/kananmunakotelot/DS11990-800px.jpg)
 
@@ -77,7 +77,7 @@ I've also given these plastic egg cartons to Miki. If your dog tends to eat some
 
 ##### Game 5:
 
-You need a larger carton, for example a plastic tray from easter egg package for these games.
+You need a larger carton, for example a plastic tray from Easter egg package for these games.
 
 At first I turned the tray upside down and I put some kibble on the holes of the tray. Later on I put small corals as obstacles. Learn how to crochet corals in [here](/en/brain-games/corals/).
 

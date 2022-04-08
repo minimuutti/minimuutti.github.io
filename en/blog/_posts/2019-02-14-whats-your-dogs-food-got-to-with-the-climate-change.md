@@ -27,9 +27,9 @@ Meat and dairy causes over a fifth of all greenhouse gas emissions in the world.
 
 Consumption of red meat (such as. beef, pork, lamb, goat) and cheese accelerates the climate change more than anything else. Poultry and fish has lesser effect - about 25% compared to red meat and dairy. So you could cut your emissions quite a lot by changing red meat and dairy to poultry and fish. Fish meat is nowadays full of micro plastic so I would recommend not to have that at all. In addition, scientist say that if we continue to consume fish as we do now - all fish species are extinct by year 2048. That is less than twenty years.
 
-Farm animals cause climate change in many different ways. Cattle produce massive amounts of greenhouse gasses and their manure pollutes our water. They need large areas to graze and that's why people need to cut down rainforests in an accelerating pace. When a forest is cut down, all the carbon emissions stored in trees are now being released in the atmosphere. Rainforests are the lungs of earth and they naturally remove carbondioxide from the air which slows the climate change. Cutting those forests accelerates climate change.
+Farm animals cause climate change in many different ways. Cattle produce massive amounts of greenhouse gasses and their manure pollutes our water. They need large areas to graze and that's why people need to cut down rainforests in an accelerating pace. When a forest is cut down, all the carbon emissions stored in trees are now being released in the atmosphere. Rainforests are the lungs of earth and they naturally remove carbon dioxide from the air which slows the climate change. Cutting those forests accelerates climate change.
 
-Farm animals use already 50% of all earths ice-free surface, and that percentage is growing rapidly.
+Farm animals use already 50% of all earth's ice-free surface, and that percentage is growing rapidly.
 
 You may think that buying only domestic food your consumption won't influence the rainforests but unfortunately you are wrong. Farm animals all over the world are often fed with feed that is produced in those used-to-be-rainforests.
 
@@ -51,7 +51,7 @@ Most dog food brands have a wide selection so you can ditch red meat and choose 
 
 And because Miki's food produces lots of greenhouse gasses, we compensate that by eating only vegan food ourselves.
 
-Most dogs like vegetables and some fruits. Miki loves boiled carrot, sweet potato, broccoli, cabbage and many other vegetables. Obesity in dogs is also a great problem so why not provide a low fat vegatable treat for your dog every now and then? I always have some prepared vegetables for Miki in the fridge, so at late evenings when Miki is still hungry after his dinner I give him some vegetables because they won't make him fat. You can try variety of different vegetables to find out what your dog likes, but remember to boil root vegetables first so they won't clog your dog's bowels.
+Most dogs like vegetables and some fruits. Miki loves boiled carrot, sweet potato, broccoli, cabbage and many other vegetables. Obesity in dogs is also a great problem so why not provide a low fat vegetable treat for your dog every now and then? I always have some prepared vegetables for Miki in the fridge, so at late evenings when Miki is still hungry after his dinner I give him some vegetables because they won't make him fat. You can try variety of different vegetables to find out what your dog likes, but remember to boil root vegetables first so they won't clog your dog's bowels.
 
 If you are unsure what you can or can't feed to your dog you can check it [here](https://minimuutti.com/en/blog/ice-cream-for-hot-summer-days/).
 

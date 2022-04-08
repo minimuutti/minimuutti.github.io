@@ -19,7 +19,7 @@ The toy is quite durable. Miki tried to "open" the toy once, or in other words h
 
 It took Miki over 15 minutes to get all the kibble out.
 
-Couple of years later Miki learned to open this toy, althougt it has a screw-on lid, amazing.
+Couple of years later Miki learned to open this toy, although it has a screw-on lid, amazing.
 
 ![](https://cdn.minimuutti.com/aktivointilelut/muut/DS16936-800px.jpg)
 

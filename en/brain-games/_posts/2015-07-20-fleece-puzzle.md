@@ -11,7 +11,7 @@ redirect_from:
 
 This game is convenient because you can adjust the difficulty to fit your dog's level.
 
-I used a tray which I got from an advent calendar, but if you don't have that, don't worry. You can use any compartment from tool box, tackle box, jewelry box etc.
+I used a tray which I got from an advent calendar, but if you don't have that, don't worry. You can use any compartment from tool box, tackle box, jewellery box etc.
 
 The fleece is good for your dog to play with, because it doesn't unravel. If you don't have fleece, you can try to make a similar game with strips of paper.
 

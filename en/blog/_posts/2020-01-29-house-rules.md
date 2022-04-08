@@ -27,9 +27,9 @@ No! is also problematic, because correct timing is the key if you need to say it
 
 The rules need to be clear and simple enough, so everyone in the family knows them.
 
-The most important thing when creating new rules is to reward your dog for the right behaviour and ignore bad/wrong behaviour (as long as it isn't anything dangerous). This way the dog learns what pays (right behaviour) and what doens't (wrong behaviour). Doing so, you don't need to teach any new behaviour, just reward him whenever he behaves correctly.
+The most important thing when creating new rules is to reward your dog for the right behaviour and ignore bad/wrong behaviour (as long as it isn't anything dangerous). This way the dog learns what pays (right behaviour) and what doesn't (wrong behaviour). Doing so, you don't need to teach any new behaviour, just reward him whenever he behaves correctly.
 
-If you need to create a rule for some specific situation, you should create the rule when you are feeling good and you have time to wait a correct behaviour. In addition your dog needs to be as calm as possible. Before you teach anything, think throughly what is the goal you're looking for. There are as many ways to teach as there are teachers, but keep in mind that the things you teach need to be clear and simple enough. 
+If you need to create a rule for some specific situation, you should create the rule when you are feeling good and you have time to wait a correct behaviour. In addition your dog needs to be as calm as possible. Before you teach anything, think thoroughly what is the goal you're looking for. There are as many ways to teach as there are teachers, but keep in mind that the things you teach need to be clear and simple enough. 
 
 I've created dozens of rules and Miki obeys them automatically and no one has to enforce them. That's why I found it a bit hard to tell you some examples, but here's something: I've created a rule that Miki is allowed to sniff everything in our house, but he isn't allowed to take or taste anything without a permit. He needs to sit when I put his collar on and when a door opens Miki doesn't rush out but instead sits and waits for me to go first. Open front door doesn't mean Miki should bolt out and by staying in while the door is open pays well. Begging for food or attention is a sure way to be left without and not begging pays well. By whining or barking he gets nothing and by being silent and calm he gets what he wants. Jumping didn't get him any attention when he was a puppy and now he greets calmly.
 
@@ -89,7 +89,7 @@ If you have more than one dog, you should always be fair to all of them. By that
 
 Everyone has bad days and those days you couldn't give a damn about rules. But if you ignore the rules "just this one time because I'm so tired" your dog will be really confused next time.
 
-When you are in a bad mood your dog will sense it too. Your dog might see you as weak instead of balanced person. He might try something forbidden especially if you have gave in at some other time you have been in a bad mood. Or he might see you as too unbalanced and unable to do right desicions and deside not to obey. On the otherhand he might be so emphatic that he becomes anxious just to see you in a bad mood and unintentionally stop obeying because he's too anxious.
+When you are in a bad mood your dog will sense it too. Your dog might see you as weak instead of balanced person. He might try something forbidden especially if you have gave in at some other time you have been in a bad mood. Or he might see you as too unbalanced and unable to do right decisions and decide not to obey. On the other hand he might be so emphatic that he becomes anxious just to see you in a bad mood and unintentionally stop obeying because he's too anxious.
 
 Following the rules consistently is hard but the more you give in the worse he behaves. Bad behaviour turns little by little to new "normal" and nobody wants that. Create rules that are relatively easy to follow through, even those days you're feeling tired. 
 

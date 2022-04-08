@@ -7,11 +7,11 @@ image:
   thumb:
 ---
 
-This was not an ordinary photosession - it was a triumph.
+This was not an ordinary photo session - it was a triumph.
 
-Miki has been scared of fireworks since he was a puppy, because we happened to be on our walk during Miki's first fireworks experience. Later on he was always cowering although we were inside our apartment during fireworks and he was scared for his dear life. I made a desicion just less than a year ago that this needed to change.
+Miki has been scared of fireworks since he was a puppy, because we happened to be on our walk during Miki's first fireworks experience. Later on he was always cowering although we were inside our apartment during fireworks and he was scared for his dear life. I made a decision just less than a year ago that this needed to change.
 
-We live in a neighbourhood which is located by a lake and an old harbour, just a couple of kilometers from the city centre. There is also a sports stadium near by so we are "fortunate" to witness several fireworks per year.
+We live in a neighbourhood which is located by a lake and an old harbour, just a couple of kilometres from the city centre. There is also a sports stadium near by so we are "fortunate" to witness several fireworks per year.
 
 I started counter conditioning him to the sound of fireworks every time there was one near by. I feel so lucky that we were inside our apartment every time they started firing - not outside which would've been too much for Miki. 
 
@@ -23,9 +23,9 @@ As 31.12.2016 came we took Miki on his walk in the afternoon and I also provided
 
 I knew that I couldn't toss him kibble the whole night so I froze him a Kong toy full of liver paté. I know that timing is very important in counter conditioning and I also knew that the general public is allowed to fire rockets starting at 18:00. I gave the Kong toy to Miki at 17:58 - just in time before the fireworks started.
 
-We had closed all the blinds so he couldn't see the fireworks. I was so proud of Miki that even if he stressed a bit he was still able to lick the Kong clean in our livingroom floor despite of all the noise.
+We had closed all the blinds so he couldn't see the fireworks. I was so proud of Miki that even if he stressed a bit he was still able to lick the Kong clean in our living room floor despite of all the noise.
 
-As the evening went on Miki was able to sleep in the middle of the livingroom floor (instead of whining and cowering somewhere as before). He was a bit alert as you can see in the photos as his ears are up and a bit in a "radar mode" but still he remained mainly calm the whole evening.
+As the evening went on Miki was able to sleep in the middle of the living room floor (instead of whining and cowering somewhere as before). He was a bit alert as you can see in the photos as his ears are up and a bit in a "radar mode" but still he remained mainly calm the whole evening.
 
 As the time approached to midnight I took a bag of Miki's favourite treats and fed him the treats from about 23:55 to 00:05 when the most of the rockets were fired. Miki was able to concentrate to the treats he was given  the whole time and I couldn't have been more happier about that :)
 

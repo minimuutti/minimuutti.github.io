@@ -11,7 +11,7 @@ redirect_from:
 
 If food dispensing toys are too easy for your dog, you can make some of them more difficult by combining them with other objects.
 
-First I put a small handfull of kibble in a plastic cup. Then I put some kibble in the Kong Genius Leo toy and then I pushed the toy in the cup.
+First I put a small handful of kibble in a plastic cup. Then I put some kibble in the Kong Genius Leo toy and then I pushed the toy in the cup.
 
 It took Miki about four minutes to get all the kibble out.
 

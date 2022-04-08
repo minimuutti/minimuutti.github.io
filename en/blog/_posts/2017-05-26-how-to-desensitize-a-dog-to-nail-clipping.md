@@ -13,7 +13,7 @@ Your know your dog has an issue with you cutting his nails, when he panics from 
 
 When your dog is calm you can start desensitizing your dog to the new tongs. Notice that your dog doesn't yet know what they are for so don't feed your dog's fear and remember to stay calm and positive near the new tool.
 
-Remember to start the desensitizing process early, at least a couple of weeks before your dog's nails needs to be trimmed. If you have always cut your dog nails on the bathroom floor I recommend that you start the training for example in the livingroom. You should do the training on a carpet so your dog's paws don't slip - which can create more fear.
+Remember to start the desensitizing process early, at least a couple of weeks before your dog's nails needs to be trimmed. If you have always cut your dog nails on the bathroom floor I recommend that you start the training for example in the living room. You should do the training on a carpet so your dog's paws don't slip - which can create more fear.
 
 I took these photos in one session, because Miki doesn't have any issues with cutting his nails. In reality these steps would take at least 20 training sessions.
 
@@ -69,7 +69,7 @@ When you master the previous steps you can start cutting the nails. It's best to
 
 ![](https://cdn.minimuutti.com/aktivointi/siedattaminen-sheippaamalla/DS55752-800px.jpg)
 
-You can add more steps between the ones I presented here. It's always better to make a slow progress towards your goal than to fix the problems occured by rushing too fast.
+You can add more steps between the ones I presented here. It's always better to make a slow progress towards your goal than to fix the problems occurred by rushing too fast.
 
 You can use this type of training to desensitize your dog to almost everything. If your dog barks at the doorbell you can always change the doorbell to a new one that has different ringing tune and start from there.
 

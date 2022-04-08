@@ -27,7 +27,7 @@ I made a desicion that this time I would do everything I could to make this move
 
 ### Stress and even more stress
 
-We started this prosess by listing our apartment. That also meant a thorough cleaning process for private views. This happened in the spring just when Miki was shedding like no tomorrow and that's why we needed to vacuum and dust about 2 to 3 hours every day for three weeks because there was just SO MUCH fur everywhere. All that cleaning obviously took time from Miki's walks and from our play sessions. Miki couldn't understand this cleaning frenzy and he got stressed and he begun throwing up.
+We started this process by listing our apartment. That also meant a thorough cleaning process for private views. This happened in the spring just when Miki was shedding like no tomorrow and that's why we needed to vacuum and dust about 2 to 3 hours every day for three weeks because there was just SO MUCH fur everywhere. All that cleaning obviously took time from Miki's walks and from our play sessions. Miki couldn't understand this cleaning frenzy and he got stressed and he begun throwing up.
 
 Within all this frenzy we tried to hold on to Miki's schedule and tried to feed and walk him at the same time every day as before. Miki's upset tummy got better only after we sold the apartment and stopped the cleaning frenzy.
 
@@ -37,7 +37,7 @@ If it's possible I recommend that you take your dog to daycare to a familiar pla
 
 ##### Alternative 1: Miki is with me the whole day we are moving. He's leashed and the leash is attached to my waist.
 
-When I started training this, I put on Miki's collar and leash and put the leash around my waist. It would've been essential to have him leashed because the doors would've been open the whole day. First I walked and Miki followed me by my side in contact and every now and then I changed my direction and rewarded Miki for following and consentrating on me calmly. When Miki understood this was the thing I wanted, I added more challenge. I changed my dirention towards Miki or reversed towards him and rewarded him for giving me some space.
+When I started training this, I put on Miki's collar and leash and put the leash around my waist. It would've been essential to have him leashed because the doors would've been open the whole day. First I walked and Miki followed me by my side in contact and every now and then I changed my direction and rewarded Miki for following and concentrating on me calmly. When Miki understood this was the thing I wanted, I added more challenge. I changed my direction towards Miki or reversed towards him and rewarded him for giving me some space.
 
 ![](https://cdn.minimuutti.com/blogi/DS54986-800px.jpg)
 
@@ -57,7 +57,7 @@ Later on I moved some larger boxes and chairs from one room to another and rewar
 
 We also practiced that my spouse carried stuff outside our apartment to the hallway and I rewarded Miki for staying calmly inside with me.
 
-As we practised these situations we simultaneously practised for a situation where I "accidentally" dropped the leash. When the other end of the leash dropped onto the floor and Miki stopped I marked that behaviour and gave him a reward. That gave me an idea that I should teach that to Miki whether we were moving or not. Everytime the leash drops he stops :)
+As we practised these situations we simultaneously practised for a situation where I "accidentally" dropped the leash. When the other end of the leash dropped onto the floor and Miki stopped I marked that behaviour and gave him a reward. That gave me an idea that I should teach that to Miki whether we were moving or not. Every time the leash drops he stops :)
 
 ##### Alternative 2: I take Miki to daycare to my mum on the morning we are moving and we move our stuff as quickly as possible so that I'm able to pick him up before he needs to go outside to do his business.
 
@@ -95,11 +95,11 @@ We cleaned our new apartment a day before we moved in. I left Miki's fleece mat 
 
 ### New beginnings
 
-If you have any issues with your dog (nail clipping, doorbell, a mailman or whatever) a move is a great opportunity to tackle the issues. The new setting (new home, new smells, new sounds, new surroundings etc.) allows you to start off from a clean slate.
+If you have any issues with your dog (nail clipping, doorbell, a mail man or whatever) a move is a great opportunity to tackle the issues. The new setting (new home, new smells, new sounds, new surroundings etc.) allows you to start off from a clean slate.
 
 Fortunately Miki hasn't ever had any major issues. We do have some issues when we are drying him after a shower. Miki lets me dry him with a towel but he whines a lot so he's not very pleased. I can't dry a wet dog anywhere else but in the bathroom so my choice was to show the new bathroom in a different light to him after we moved.
 
-When I had picked up Miki from the day care, I sprinkled his dinner all over the bathroom floor so Miki thougt that the new bathroom is the best place in the whole world :)
+When I had picked up Miki from the day care, I sprinkled his dinner all over the bathroom floor so Miki thought that the new bathroom is the best place in the whole world :)
 
 ### Separation anxiety
 
@@ -107,7 +107,7 @@ Miki has always suffered from mild separation anxiety and after we moved I notic
 
 Although I planned everything beforehand and tried to make Miki feel as comfortable as possible in our new home, there are unfortunately things that I can't control. There are lots of other dogs in our apartment building and the first day we moved in we heard many of those dogs barking - also in the middle of the night - and Miki got scared. Because Miki felt that the new surroundings were scary he got very anxious when even just one of us were about to leave home.
 
-Fortunately me and my fiance have an option to telework. If you have the same option and your dog suffers from separation anxiety you should use it to stay home with your dog even for a couple of days. If you don't have that option, think if there's a way to take a few days off.
+Fortunately me and my fiancé have an option to telework. If you have the same option and your dog suffers from separation anxiety you should use it to stay home with your dog even for a couple of days. If you don't have that option, think if there's a way to take a few days off.
 
 If your dog is scared and you have no choice but to leave him alone it's always possible that the fear might get worse. To prevent that from happening I recommend that you leave him with a tasty and long lasting treat, like a bully stick or a frozen Kong toy and leave tv or radio on for ambient noise.
 

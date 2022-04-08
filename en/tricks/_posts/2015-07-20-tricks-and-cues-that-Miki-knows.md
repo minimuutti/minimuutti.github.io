@@ -39,7 +39,7 @@ image:
 
 ![](https://cdn.minimuutti.com/temput/3/DSC34547-245px.jpg)
 
-* empty (stops destroying a treat dispencer toy or some other object that has no longer food in it)
+* empty (stops destroying a treat dispenser toy or some other object that has no longer food in it)
 * Miki! (comes when called, although Miki thinks that he has a number of first names, such as. hungry, food or eat :D )
 
 ![](https://cdn.minimuutti.com/temput/3/DSC22530-245px.jpg)

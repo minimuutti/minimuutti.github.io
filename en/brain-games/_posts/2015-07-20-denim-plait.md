@@ -11,7 +11,7 @@ redirect_from:
 
 For these games you need a pair of jeans that you are about to throw away and some dry and hard treats.
 
-#### Demin plait
+#### Denim plait
 
 I cut one leg off the jeans and cut the leg into five long strings. Then I tied them together with a knot and plaited it and put some treats in between. At the end I secured the plait with another knot and cut the rest of the strips off.
 

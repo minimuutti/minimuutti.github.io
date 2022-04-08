@@ -9,7 +9,7 @@ redirect_from:
   - /en/activation/peek-a-hole/
 ---
 
-This is like a giant version of a slow feeding foodbowl.
+This is like a giant version of a slow feeding food bowl.
 
 For this game you need a cardboard box with a lid, masking tape and any kind of treats. You should choose a shallow cardboard box, so that your dog can reach the treats on the bottom when he puts his nose through those holes. The box we used, was 10 cm (4") high.
 

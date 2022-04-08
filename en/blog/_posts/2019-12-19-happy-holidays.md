@@ -21,11 +21,11 @@ Remember, that the donation doesn't need to be massive, even small things can he
 
 ##### Use your own strenghts
 
-When you are about to embark charity work but aren't sure what to do think about your own strenghts and ask charities what kind of help do they need.
+When you are about to embark charity work but aren't sure what to do think about your own strengths and ask charities what kind of help do they need.
 
 If you can't or don't want to donate money or aren't able to do specific charity work for some other reason, here's some alternative ways to do charity.
 
-If you are a good baker or good at knitting, sewing or crocheting you should definately use your skills. Charities may need these skills when they organize cake sales or fairs or some other events where they need something to sell. Or you can organize a cake sale or sell handmade gifts at your workplace. (Tip: handmade gifts and cakes fly off the shelves a few weeks before Christmas.) Extra money raised can then be donated.
+If you are a good baker or good at knitting, sewing or crocheting you should definitely use your skills. Charities may need these skills when they organize cake sales or fairs or some other events where they need something to sell. Or you can organize a cake sale or sell handmade gifts at your workplace. (Tip: handmade gifts and cakes fly off the shelves a few weeks before Christmas.) Extra money raised can then be donated.
 
 Wash your neighbours car or mow their lawn or plow snow from their driveway for a small fee you can then donate. As a bonus you'll get a free workout :)
 
@@ -35,7 +35,7 @@ Give a different (Christmas) gift this year. Especially if you aren't sure what 
 
 ##### My charity work in 2019
 
-I managed to knit 48 pairs of children's wool socks. I offered the socks to my local animal shelter so they could sell them, but they didn't have any fairs coming soon. I donated the socks to the Salvation Army so they can give them to children that most need them. Some of that yarn I made the socks with was donated to me, so thanks to the doner :)
+I managed to knit 48 pairs of children's wool socks. I offered the socks to my local animal shelter so they could sell them, but they didn't have any fairs coming soon. I donated the socks to the Salvation Army so they can give them to children that most need them. Some of that yarn I made the socks with was donated to me, so thanks to the donor :)
 
 ![](https://cdn.minimuutti.com/blogi/DSC02790-800px.jpg)
 
@@ -55,7 +55,7 @@ In addition I emptied my piggy bank and gave that money to my local shelter as w
 
 New years eve is also coming soon. If your dog is afraid of the fireworks please read [this](https://minimuutti.com/en/blog/new-years-eve-and-the-fireworks/) post.
 
-Merry christmas and happy new year 2020!
+Merry Christmas and happy new year 2020!
 
 ![](https://cdn.minimuutti.com/blogi/joulumiki-800px.jpg)
 

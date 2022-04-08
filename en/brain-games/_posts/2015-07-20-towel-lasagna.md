@@ -29,9 +29,9 @@ It took Miki about 5 minutes to find all the kibble.
 
 ![](https://cdn.minimuutti.com/aktivointi/pyyhelasagne/DS49290-800px.jpg)
 
-### Canneloni
+### Cannelloni
 
-I also made a canneloni version of this. I rolled small towels and put them on the bottom layer and then stacked the lasagna on top hiding kibble in every layer.
+I also made a cannelloni version of this. I rolled small towels and put them on the bottom layer and then stacked the lasagna on top hiding kibble in every layer.
 
 This game took Miki a little longer.
 

@@ -30,7 +30,7 @@ When I introduced the game to Miki I placed a few kibble on the bottom of the ho
 
 It took Miki about 2-3 minutes to get all the kibble and treats out.
 
-When Miki dived to the bottom after the kibble, he accidentally rolled the tube with his neck and some treats fell on his neck and they got stuck within the fur. Oh boy we laughted hard :D
+When Miki dived to the bottom after the kibble, he accidentally rolled the tube with his neck and some treats fell on his neck and they got stuck within the fur. Oh boy we laughed hard :D
 
 The second time we played this game I covered the largest hole on the tube to make the game just a bit harder. I put a piece of paper on top of the hole and then I secured it with clear tape (mosaic, picture 10). If you cover the holes with just tape the kibble could get stuck to the tapes glue.
 
