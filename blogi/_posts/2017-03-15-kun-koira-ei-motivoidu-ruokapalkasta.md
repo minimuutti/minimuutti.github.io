@@ -17,7 +17,7 @@ Jotkut koirat paastoavat säännöllisin väliajoin, mutteivät koko elämääns
 
 ### Onko koirasi nälkäinen?
 
-Kuvittele itsesi lempiravintolaasi. Olet juuri syönyt kolmen ruokalajin aterian viineineen ja jälkiruokineen ja olosi on vähintäänkin kylläinen. Söisitkö tässä vaiheessa lautasellisen makaroonilaatikkoa? Entä siinä tapauksessa, että sinun pitäisi vielä tehdä työtä tuon makaroonilaatikon eteen, vaikkapa tiskata koko seurueesi astiat? Melkeinpä uskallan sanoa, ettet haluisi sitä.
+Kuvittele itsesi lempiravintolaasi. Olet juuri syönyt kolmen ruokalajin aterian viineineen ja jälkiruokineen ja olosi on vähintäänkin kylläinen. Söisitkö tässä vaiheessa lautasellisen makaroonilaatikkoa? Entä siinä tapauksessa, että sinun pitäisi vielä tehdä työtä tuon makaroonilaatikon eteen, vaikkapa tiskata koko seurueesi astiat? Melkeinpä uskallan sanoa, ettet haluaisi sitä.
 
 Jos koirasi ei ole nälkäinen, niin se voi olla yksi syy siihen, ettei se halua syödä. Se voi haluta maistaa muttei syö kuppiaan tyhjäksi. Ihmisen silmään tämä saattaa näyttää siltä, ettei koiralla ole ruokahalua.
 
@@ -49,7 +49,7 @@ Koiran ruuan tulisi pääsääntöisesti koostua eläinproteiineista sekä vihan
 
 Sama asia on koirien koulutuspalkkioksi suunnitelluissa herkuissa. Valitettavasti yleensä ne pienet luun muotoiset pehmeät ja kätevät koulutusnamit koostuvat pääsääntöisesti viljoista, vaikka purkin kyljessä saattaa komeilla sanat: "kanan makuinen tai pihvin makuinen". Näistä herkuista kuitenkin jopa 80-90% voi olla vehnää, maissia ja/tai riisiä, joten koulutuspalkkioidenkin ainesosaluetteloita kannattaa vilkaista.
 
-Uutta asiaa koulutettaessa kannattaakin antaa koiralle ihan oikeaa lihaa, esimerkiksi kanaa. Kun palkkio on hyvä, niin sen eteen koira on valmis näkemään vaivaa. Tällöin koira motivoituu koulutukseen ihan eri tavalla ja odottaa tulevia kertoja innolla.
+Uutta asiaa koulutettaessa kannattaakin antaa koiralle ihan oikeaa lihaa, esimerkiksi kanaa. Kun palkkio on hyvä, niin sen eteen koira on valmis näkemään vaivaa. Tällöin koira motivoituu koulutukseen ihan eri tavalla ja odottaa tulevia koulutuskertoja innolla.
 
 Kun Miki oli pentu, niin syötimme sille kasvattajan valitsemaa penturuokaa, eli Nutra Nuggetsia. Miki ei pitänyt tästä ruuasta ollenkaan, vaikka se syntyikin valmiiksi nälkäisenä. Katsoin tuotteen valmistusaineluetteloa, joka alkaa näin: Kanajauho, jauhettu maissi... ja heti löytyikin syy, miksei ruoka kelvannut - se koostui suureltaosin maissista, vaikka valmistaja mainostaa tuotetta premium-tuotteena. Kun vaihdoimme ruuan toiseen merkkiin (Orijen), niin siitä lähtien ruoka on kelvannut aina ja Miki on syönyt tätä samaa ruokaa koko ikänsä siitä lähtien. Edelleen se on aina yhtä innostunut ja kiitollinen saadessaan sitä.
 
@@ -79,7 +79,7 @@ Jos koira saa kaiken tarvitsemansa hopealautaselta, niin se ei todennäköisesti
 
 ### Testaa koiraasi ja selvitä mistä se motivoituu eniten
 
-Fakta on se, että jokaisen koiran pitää syödä pysyäkseen hengissä. Kaikkia koiria ruoka ei motivoi yhtä paljon ja tämä yleensä vaihtelee koiran rodusta riippuen. Koiran kouluttamisen kannalta jokaisen kannattaa testata omaa koiraansa ja tärkeintä onkin löytää se asia, joka motivoi sitä parhaiten. Yksi koira palkkaantuu ruuasta, toinen leikistä, kolmas rapsutuksista, neljäs saattaa palkkantua pelkistä kehuista ja viides vaikkapa näistä kaikista - tai ihan jostain muusta.
+Fakta on se, että jokaisen koiran pitää syödä pysyäkseen hengissä. Kaikkia koiria ruoka ei motivoi yhtä paljon ja tämä yleensä vaihtelee koiran rodusta riippuen. Koiran kouluttamisen kannalta jokaisen kannattaa testata omaa koiraansa ja tärkeintä onkin löytää se asia, joka motivoi sitä parhaiten. Yksi koira palkkaantuu ruuasta, toinen leikistä, kolmas rapsutuksista, neljäs saattaa palkkaantua pelkistä kehuista ja viides vaikkapa näistä kaikista - tai ihan jostain muusta.
 
 Jos et ole varma mikä motivoi koiraasi eniten, kannattaa tehdä tällainen testi. Jokainen meistä varmaan tunnistaa koirastaan sen ilmeen, kun se odottaa saavansa jotain. Kun Miki suorittaa pyytämäni toiminnon ja saa siitä palkaksi vain kehun tai rapsutuksia, niin tällöin Mikille tulee se ilme, että se odottaa jotain =ruokapalkkaa. Sen koko olemus sanoo "Haloo, tein juuri jotain mistä odotan palkkaa" ja se katsoo vuorotellen silmiini ja kättäni odottaen sen menevän taskuun, jossa pidän koulutuspalkkaa. Välillä se myös näyttää ihan suoraan pettyneeltä, jos ruokapalkkaa ei tule.
 
