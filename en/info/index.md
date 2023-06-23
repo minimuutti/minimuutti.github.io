@@ -6,9 +6,6 @@ layout: article
 Contact:
 
 email: minimuutti.com(at)gmail.com<br/>
-Twitter: @minimuutti
-
-[![](https://cdn.minimuutti.com/muut/twitter.jpg)](https://twitter.com/minimuutti)
 
 ![](https://cdn.minimuutti.com/muut/computer_wolf_.jpg)
 
